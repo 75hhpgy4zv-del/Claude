@@ -505,3 +505,33 @@ else; (d) genericise as drafted, which is the weakest — it makes his defining 
 vague in a book whose whole method is specificity.
 **Provisional:** (c) if the user has no preference. **Blocking nothing** — Ch. 12 is not
 yet drafted, and Ch. 22's one line is a two-word change.
+
+### G7 — Line-level tics caught in the ch. 4 / ch. 22 audit [2026-07-25] [settled]
+Two patterns, flagged by the user, confirmed by grep. Both are recurring-construction
+problems rather than word choice, which makes them worse: a reader registers them as
+rhythm before noticing the cause.
+
+**1. The negation flip.** *"It wasn't a mask over her. It was her, turned up."* Seven
+of these in Ch. 22. The construction is genuinely useful for this novel, because the
+whole book runs on distinctions that look like contradictions, and that is exactly why
+it metastasised. Cut to two, both load-bearing and both in the same passage where the
+argument actually turns: *"he understood that it was not integrity. It was scale"* and
+*"She was not less honest than him. She was more loved than a person can be honest at."*
+Everything else rewritten as a positive statement — *"She meant it. All of it,"* *"the
+version is true, and it will still stand between you and every single person on the
+other side of it forever."* The positives are stronger anyway.
+**Standing rule for the remaining 50 chapters: two per chapter, hard cap.**
+
+**2. "with the [adjective] [noun] of a man who [verb]."** Four instances across two
+chapters — *the specific shame of a man checking a phone in a stairwell*, *the small
+proprietary warmth of a man who has been allowed backstage*, *the fast hot shame of a
+man catching himself*. I liked the construction and stopped hearing it. It also has a
+second defect: it narrates Derek's feeling and then labels it, which is the opposite of
+what close third should do. All four rewritten, mostly shorter. *"at 2:15 he checked his
+phone in the stairwell like a fifteen-year-old."*
+**Standing rule: once per book, if that.**
+
+**Not changed:** em dashes (14 per chapter). The skill targets nonfiction and wants
+them near zero; in this register they are load-bearing punctuation, and Derek's voice
+in particular is built on self-interrupting qualification. Flagging the decision rather
+than silently ignoring the guidance. Revisit if a full-draft read shows them clustering.
