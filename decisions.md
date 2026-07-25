@@ -535,3 +535,38 @@ phone in the stairwell like a fifteen-year-old."*
 them near zero; in this register they are load-bearing punctuation, and Derek's voice
 in particular is built on self-interrupting qualification. Flagging the decision rather
 than silently ignoring the guidance. Revisit if a full-draft read shows them clustering.
+
+### G6 — RESOLVED: real performers named, with rules [2026-07-25] [settled]
+**User's call:** name them. Reasoning, which I think is right: the novel is the real
+world with slight variations, and specificity is grounding when it isn't exploitative.
+Naming New Jeans and Danielle Marsh also matches how the rest of the book already
+works — Lynch, *Ferris Bueller*, *Baahubali* and Best Buy are all load-bearing and all
+real, and inventing a fictional K-pop group in that company would have been the one
+false note on the shelf.
+
+**The line I'm holding, which is narrower than "don't name her":** a real public figure
+may be *observed*, never *depicted*. No dialogue. No scenes. No invented interiority.
+Nothing attributed to her that isn't already her public work. Derek's fixation is
+rendered entirely as *his* experience of watching, which keeps every sentence a fact
+about Derek and none of them a claim about her. She never appears in the novel; only
+his watching does.
+
+**Drafted accordingly (Ch. 22):** a phone-shot live stream from a hotel room in Seoul,
+her talking about missing her mother. Generic to the form, invented as to no fact.
+
+**Two further rulings the beat forced:**
+1. **Not a crush, and the text says so.** *"He had checked it for a crush, the way you
+   check a pocket. There wasn't one. What was in there was gratitude, which he found
+   much harder to explain and much harder to put down."* A 35-year-old man's romantic
+   fixation on a performer half his age would be a different and worse book, and it
+   would also wreck the theme — desire is the cheap reading and it lets the reader
+   dismiss him. Gratitude is the parasocial relation in its purest form: something real
+   was given, nothing can be given back, and the giver will never know. That is exactly
+   what six million people feel about Mari, which is the comparison Ch. 22 needs Derek
+   to make about himself and immediately regret.
+2. **Corrected: Danielle Marsh is Korean-Australian**, born in Newcastle, New South
+   Wales. The draft had "a nineteen-year-old girl from New Zealand," which was wrong on
+   both counts. New Jeans also debuted in 2022, so the memory moved from 2019 to 2023.
+   Getting a real person's basic facts wrong is the failure mode that makes naming them
+   exploitative rather than grounding — **verify before every real-world reference,
+   every time.**
