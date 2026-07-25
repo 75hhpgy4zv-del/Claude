@@ -714,3 +714,13 @@ winter break, the district meeting, Ch. 22 and 40) already run 1,800–2,400 nat
 average is still under 1,600 there, the fix is more scenes rather than longer ones —
 A3's reversal trigger runs the wrong way, and the honest correction is that Part I is
 under-dramatised, not that the sentences are too short.
+
+### H10 — Caught breaking G7 in the same session it was written [2026-07-25]
+"The particular [noun] of a man who [verb]" turned up in both Ch. 1 and Ch. 3, one
+chapter apart, against a rule capping it at once per book. Kept Anand's — *"the
+particular ease of a man who has never once wondered whether he was welcome in a room"*
+does character work no other phrasing does. Rewrote Derek's into plain statement:
+*"by 3 p.m. most days there was nothing left of him, because the machine had no off
+switch and he had been running it since 7:20."*
+**Recording that the tic returned within an hour of being named.** Self-imposed style
+rules do not hold on their own. Grep every batch before commit; do not trust the rule.
