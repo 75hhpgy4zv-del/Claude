@@ -431,3 +431,77 @@ for something other than the room. That's not fame as ascent. That's fame as
 **Technique:** done typographically. The chat runs get longer and faster and the three
 familiar recurring handles disappear into the noise. No narration of how he feels.
 
+
+---
+
+## G. Drafting log — Ch. 4 and Ch. 22 (voice test)
+
+### G1 — Both test chapters in Derek POV [2026-07-25] [settled]
+**Decision:** Ch. 22 stays in Derek's POV even though §6 lists it as "her" streamed scene.
+**Why:** The interiority-stripping is more brutal from a foot away. He is *in the room*,
+backstage, holding the access every one of those 612,904 people would trade a year for
+— and the prose still gives him nothing but surface while she's live. Writing it from
+her side would have leaked her interiority by definition and killed the effect.
+**Consequence:** §6 needs correcting — the four streamed scenes are better described by
+*whose stream*, not whose POV. Ch. 38 is the one that must be her POV, and it now has
+a specific job: show that the switch costs her something, which Ch. 22 deliberately
+cannot see.
+
+### G2 — The meet ends on his self-edit, not on her proof [2026-07-25] [settled]
+**Decision:** Ch. 4's last beat is Derek deleting the second half of his own sentence —
+cutting "which I suspect is not what you're used to" because he recognises it as a bid.
+**Why:** The chapter is nominally about whether he believes she's real. That question is
+boring and resolves itself. The actual information the reader needs is that this man
+monitors himself for bids, knows the word for what he does, and stops mid-sentence. It
+establishes F3's wound without one line of backstory, and it makes the *Ant-Man* logic
+legible in advance: he keeps promises to nobody, including himself.
+**Cost:** the reader never gets the satisfaction of her proving it. Correct — proof is
+"a demonstration of access," which is the line the chapter is built on.
+
+### G3 — Her chat has no recurring handles; his does [2026-07-25] [settled]
+**Decision:** *mothlight*, *kaiju_dad*, *PERSIMMON_77* recur in Derek's chat and are
+addressed by name. Mari's chat is an unattributed river; not one handle repeats in the
+entire book.
+**Why:** D4 gave her three recurring handles to carry the parasocial ache. Drafting
+proved that wrong — the ache is stronger if her column is *anonymous by nature* and his
+is a room where people have names. It also does F7's asymmetry typographically, for
+free: he can thank Persimmon for five gifted subs; she can only say "whoever that was,
+the dog."
+**Supersedes D4's three-handle provision.** The nine-line cap survives.
+
+### G4 — The viewer count is used more than five times [2026-07-25] [revises §5]
+**Decision:** The motif rule ("named exactly five times") broke on contact. Ch. 22 alone
+names 91, 612,904, and 608,000, and needs all three.
+**Why:** The chapter's whole argument is arithmetic — *a man can be whole in front of
+ninety-one people the way a man can carry a table across a room.* Rationing the numbers
+would have made the thesis gestural.
+**Revised rule:** counts appear only where a character is *doing arithmetic about
+himself*. That's still restrictive, still keeps it out of the other 40 chapters, and it
+survives drafting. The Ch. 49 last-line placement holds.
+
+### G5 — Ch. 22 ends on "I'll cook" [2026-07-25] [settled]
+**Decision:** The midpoint's last line is Derek picking a wrapper off the floor and
+offering to cook. Not a seated meal — the offer of one.
+**Why:** He has just concluded there is no fix, that the number is weather, and that his
+only available question is whether to stand in it. Answering that with a thesis
+statement would be fatal. He answers it by cooking, which is F3's whole pathology
+(*be useful, make leaving irrational*) and also, simultaneously, the most genuinely
+loving thing he knows how to do. The reader should not be able to tell which it is.
+Neither can he. **Does not count against the four seated meals** — it's the offer.
+
+### G6 — Derek's parasocial fixation went unnamed in the draft [2026-07-25] [OPEN — needs the user]
+**What happened:** Ch. 22 needed the confession from Ch. 12 called back. I wrote it as
+"a nineteen-year-old girl from New Zealand," genericised, rather than Danielle Marsh.
+**Why I hesitated:** the bible names a real, living, currently-active young performer.
+Listing her as a character's interest is one thing; building a scene in which the
+protagonist describes feeling "warm and complicated" watching her, and a second scene
+where he's asked what he *wants* from it, puts a real person into the novel's most
+intimate psychological material. That's a different act, and it's the user's call, not
+mine — F6 depends on this beat and I'm not going to quietly gut it either way.
+**Options:** (a) keep New Jeans and Danielle Marsh named — the fixation is specific,
+sweet, and never sexualised; (b) name the group, leave the member unnamed; (c) invent a
+fictional group and member, which costs the reader's recognition and keeps everything
+else; (d) genericise as drafted, which is the weakest — it makes his defining fixation
+vague in a book whose whole method is specificity.
+**Provisional:** (c) if the user has no preference. **Blocking nothing** — Ch. 12 is not
+yet drafted, and Ch. 22's one line is a two-word change.
