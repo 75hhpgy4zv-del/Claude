@@ -46,6 +46,11 @@ managed badly (by attrition and hobby). **Not a quirk set — render as load-bea
   chat for four hours and cannot do a staff-room small-talk line.
 - The hyperfixation is also the gift: it's why the film criticism is good, why the
   teaching lands, why he notices what a person needs and remembers it in March.
+- **Susceptibility.** Some personalities work harder on some people, and Derek is the
+  kind they work hardest on. Warmth gets into him uninvited. This is the same faculty
+  that finds the drowning kid in fifth period and reads a film properly — it has one
+  door, and he has never managed to leave it open at work and shut everywhere else.
+  Not a weakness and not a joke. It is why he is good, and why he is reachable.
 - Growth area, not cure: coping strategies, possibly medication, and — hardest —
   taking criticism without hearing annihilation.
 

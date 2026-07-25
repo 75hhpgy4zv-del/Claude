@@ -570,3 +570,40 @@ her talking about missing her mother. Generic to the form, invented as to no fac
    Getting a real person's basic facts wrong is the failure mode that makes naming them
    exploitative rather than grounding — **verify before every real-world reference,
    every time.**
+
+### G8 — Susceptibility, not gratitude [2026-07-25] [settled — supersedes G6's ruling 1]
+**Author's correction, and it's a better reading than mine.** The parasocial pull isn't
+gratitude and isn't attraction. Some personalities work harder on some people. An
+unguarded, outgoing, artlessly positive presence makes certain people feel good, and
+empathetic people are the ones it works hardest on. Beauty is incidental to the
+mechanism.
+
+**Why this is a significant upgrade, not a tweak:** gratitude located the phenomenon in
+*her* — something given, a debt, a one-way transaction. Susceptibility locates it in
+**him**. It is a property of the receiver. That single move converts Derek's fixation
+from a quirk he has into the operating cost of the faculty that makes him good at
+everything he is good at. The empathy that finds the kid going under in fifth period is
+the same empathy that lets a stranger's happiness in uninvited. One door, no separate
+setting for work.
+
+**Consequences, all of them good:**
+1. **The fixation stops being embarrassing and becomes characterising.** A reader can
+   feel superior to a man with a crush. Nobody feels superior to a man whose openness
+   has no off switch.
+2. **It rhymes with the wound instead of sitting beside it.** *Be so useful that leaving
+   is irrational* and *let everyone's feeling in the front door* are the same
+   architecture seen from two sides. He is permeable, and he has spent his life trying
+   to convert permeability into indispensability.
+3. **It re-arms the midpoint.** New line added to Ch. 22: what Danielle Marsh did to him
+   by accident on a Sunday afternoon is what Mari does on purpose, at four o'clock, six
+   days a week, to six hundred thousand people built with the same door he is. That is
+   the sharpest available statement of the novel's thesis, and it is now Derek's own
+   thought rather than my narration. The **artless / professionalised** distinction is
+   the whole book, and it did not exist as a clean formulation until this note.
+4. **It protects the Danielle material permanently.** The passage now says outright that
+   beauty has almost nothing to do with it, which is both true to the brief and the
+   surest guard against the exploitative reading G6 was worried about.
+
+**Added to `characters/derek.md`** as a core trait rather than a Part I detail, because
+it governs how he responds to warmth from *everyone* — Mari, Halle, Tomás, and the
+family whose well-meaning selfishness he keeps letting in.
