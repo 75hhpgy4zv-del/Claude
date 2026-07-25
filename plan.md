@@ -1,8 +1,7 @@
-# PLAN — *Signal Delay* (working title)
+# PLAN — *Concurrent* (working title; alt: *Signal Delay*)
 
-A literary-leaning contemporary romance. An English teacher falls in love with one of
-the most-watched women on the internet. Neither of them is stupid, so neither of them
-thinks this is going to work.
+Derek has ninety people in his chat. Mari has six million four hundred thousand.
+They have the same job. This is a love story about scale.
 
 ---
 
@@ -15,271 +14,292 @@ thinks this is going to work.
 | Parts | 4 |
 | Chapters | 52 + epilogue |
 | Avg chapter | 1,850 words (range 900–3,200) |
-| POV | Close third, alternating — {{TEACHER}} (2/3) and Mari (1/3) |
-| Tense | Past, except streamed scenes (see §6) |
+| POV | Close third, alternating — Derek (2/3), Mari (1/3) |
+| Tense | Past, except streamed scenes (§6) |
 | Timeline | One academic year, late August → early July |
-
-**Why 52 chapters:** the book is partly about a life measured in periods, uploads, and
-scheduled blocks. Short chapters let the prose imitate the attention economy it's
-critiquing without the *prose itself* becoming choppy or cheap.
 
 ---
 
 ## 1. Principals
 
-### {{TEACHER}} — *placeholder pending character sheet*
+### Derek — 35, English teacher, part-time film critic and streamer
 
-Held slots the outline depends on. Once the sheet lands I fill these and reconcile
-every beat below; anything the sheet contradicts gets renegotiated in `decisions.md`,
-not silently overwritten.
+Full sheet: `characters/derek.md`. What the plot is built on:
 
-- **Name / age / pronouns** — outline currently uses they/them throughout.
-- **School & subject band** — assumed public high school, grades 10–12 English.
-- **Years teaching** — assumed 6–9. Past first-year panic, short of burnout-vet.
-- **Home life** — assumed lives alone or with one roommate; needed for the Nov beats.
-- **The wound** — assumed: made a bid at something (writing, academia, a person)
-  and stopped. Chose a smaller, realer life and hasn't decided whether that was
-  wisdom or fear. **This is the load-bearing one.** The whole novel is the argument.
+- **He is in the same industry, five orders of magnitude down.** 80–100 concurrent.
+  He knows exactly what she is the second he sees her. There is no naive outsider in
+  this book — which is better, because it means the gap between them can't be
+  explained to him. He already understands it. He just has to live in it.
+- **Honest to a fault.** He has not watched *Ant-Man* in ten years because he said he
+  wouldn't. This man is now going to be asked to conduct a secret. That's Part II.
+- **He is a fan.** New Jeans, Danielle Marsh specifically. He has felt real fondness
+  for a performer who does not know he exists. **He is, in miniature, Mari's chat.**
+  He is the only love interest in the genre who arrives pre-equipped to understand
+  the parasocial problem from the *wrong* side, and pre-equipped to be ashamed of it.
+- **The wound: he has been chosen and then discarded, every time.** Cheated on in
+  every relationship, including a marriage he solely funded, by a wife and a best
+  friend. He believes he is not enough to be kept, and compensates by being so useful
+  that leaving would be irrational.
+- **Autistic.** Fluent when there's a connection point, stranded without one. The
+  hyperfixation is the engine of everything good about him.
+- **Undervalues himself in exactly the areas he's excellent.** The edits are
+  semi-professional. The criticism is real criticism. He thinks both are hobbies.
 
-**Constant regardless of sheet:** {{TEACHER}} is not starstruck. That's the premise.
-They are the one person in Mari's life whose regard is not downstream of her numbers,
-because they didn't know the numbers existed.
+### Marisol "Mari" Ocampo — 30, `marimint`, 6.4M
 
-### Marisol "Mari" Ocampo — handle **marimint**
+Full sheet: `characters/mari-ocampo.md`. Personality modeled on the requested
+archetype; biography entirely original (`decisions.md` D2).
 
-Filipina-Canadian, 29, Scarborough → Los Angeles. Nine years online. 6.4M followers.
-Variety streamer: games as a pretext, the actual product is her company.
-
-*Personality is modeled on the Pokimane archetype and stays there:*
-
-- Warm the way a good host is warm — a real gift, professionalized until she can't
-  always locate the seam between the gift and the job.
-- Funny in a deflecting register. Jokes arrive one beat before feeling would have.
-- Unusually boundary-literate. Has thought harder about parasocial dynamics than most
-  of her critics, and gets read as *calculated* precisely because she's *careful*.
-- The big-sister-of-the-internet role: millions of people are sincerely fond of her
-  and sincerely believe they know her. Both halves are true. That's the problem.
-- Business-fluent in a way that embarrasses her. She built an actual company. Saying
-  so out loud sounds like bragging; not saying so lets people call her lucky.
-- The private register: blunter, sadder, funnier, worse at ending conversations.
-
-**Her wound:** she has been legible to millions and known by roughly four people, and
-she is no longer certain she'd survive being known by five.
-
-**Explicitly not:** Pokimane. No real drama, real names, real platforms-as-defamation,
-or real incidents are reproduced. Archetype and pressures only. See `decisions.md` §D2.
+Warmth as craft, deflective comedy, unusual boundary-literacy, big-sister-of-the-
+internet, quiet business competence, read as *calculated* for behavior that is merely
+*careful*. **Wound:** legible to millions, known by four, no longer sure she'd survive
+a fifth.
 
 ### Supporting
 
-- **Devin Okafor** — Mari's manager. Not a villain. His job is protecting an asset,
-  and he is *right* about the risk. Every antagonistic thing he does is correct.
-- **Halle** — Mari's editor/best friend since the 200-viewer days. The other person
-  who remembers her before. Function: the one who can say *you're lying* for free.
-- **Priya Raghunathan** — {{TEACHER}}'s department head. Weary, decent, protects her
-  people up to exactly the line where her own job starts.
-- **Tomás Bevilacqua** — a student. Sixteen, sharp, sees it before anyone. The
-  novel's moral fulcrum: what {{TEACHER}} owes him is not the same as what they
-  owe Mari, and Part III is the collision.
-- **Corinne** — {{TEACHER}}'s ex or near-ex. Appears three times. Exists to show what
-  {{TEACHER}} already survived opting out of.
+- **Devin Okafor** — Mari's manager. Right about everything. Not a villain (`D` B5).
+- **Halle** — her editor and friend since the 200-viewer days. Can say *you're lying*
+  for free.
+- **Tomás Bevilacqua**, 16 — Derek's student. Sees it first. The novel's moral fulcrum.
+- **Priya Raghunathan** — department head. Decent, weary, protects her people up to
+  the line where her own job begins.
+- **Anand** — Derek's brother, 45, civil engineer, narcissist. Three appearances.
+  Never a scene where he is simply wrong; he is wrong in ways the family finds
+  reasonable.
+- **Derek's father** — four scenes, mostly near-misses. The relationship the book
+  does *not* repair, because some don't.
+- **Sana** — Derek's ex-wife. One scene, Part III, and she is not a monster. Worse:
+  she's ordinary and a little sad, and she tells him something true.
 
 ---
 
 ## 2. The argument
 
-Three claims the book advances by dramatizing, never by stating:
+1. **Attention is not intimacy — and Derek knows this professionally, which does not
+   protect him at all.** He can articulate the parasocial trap in a forty-minute video
+   essay and still be inside it.
+2. **Privacy is a form of care, not shame.** Their central fight is not *will we go
+   public* but *what do we owe the people who feel entitled to us* — and for a man
+   constitutionally unable to lie, secrecy is a daily moral injury.
+3. **Being kept is not something you earn by being useful.** Derek's whole
+   architecture is *make leaving irrational.* It has never worked. Mari is the first
+   person who wants him when he is not useful, and he cannot metabolize it.
 
-1. **Attention is not intimacy, and the two are easy to confuse from inside.**
-   Mari has 6.4M people's attention. {{TEACHER}} has thirty teenagers'. One of these
-   is a job; one is a job; neither is love. The book takes the teacher's classroom
-   seriously as a *parallel* performance, so the comparison isn't cheap.
-
-2. **Privacy is a form of care, not a form of shame.** The lovers' central fight is
-   not "will we go public" but "what do we owe the people who feel entitled to us."
-
-3. **Choosing the smaller life is a real choice with real costs, and it is not
-   automatically cowardice — nor is it automatically integrity.** {{TEACHER}}'s wound
-   and Mari's wound are the same wound from opposite ends.
-
-**Thematic sentence, for my own use, never on the page:**
-*To be loved you have to be known, and to be known you have to be reachable, and
-everything that made her reachable is also what makes her impossible to know.*
+**Thematic sentence, my use only, never on the page:**
+*He has spent his life proving he's worth keeping to people who were never going to
+keep him, and she has spent hers being adored by people who were never going to
+know her, and neither of them can tell the difference between being wanted and
+being watched.*
 
 ---
 
 ## 3. Structure
 
-Four parts, each with its own question, tonal signature, and failure mode.
+### PART I — CONCURRENTS (Ch. 1–13, ~24,000 words, late Aug → mid Oct)
 
-### PART I — CONTACT (Ch. 1–13, ~24,000 words, late Aug → mid Oct)
+*Question: what do you do when the person you've been performing for turns out to be
+watching back?*
 
-*Question: what happens when someone doesn't know who you are?*
-
-Tone: warm, funny, light on its feet. The book's most pleasurable stretch, deliberately.
-The reader should be enjoying themself enough that Part III can hurt.
-
-- **1–3.** {{TEACHER}} in the machinery of a school year: rosters, the copier, the
-  syllabus they've stopped believing in. Establish competence, wit, and the low hum of
-  a life slightly under-lived. Establish Tomás. Establish that {{TEACHER}} is offline
-  in a way that is 40% principle and 60% avoidance.
-- **4.** **The meet.** Mari is in town for a family thing, in a bookstore, hiding —
-  half from a fan cluster, half from herself. {{TEACHER}} mistakes her hiding for
-  someone avoiding an ex and provides cover without asking why. They talk for forty
-  minutes about a novel. She gives no last name. *He/they never ask what she does.*
-- **5–7.** Second and third meetings. She keeps not telling her. Comedy of a woman
-  discovering she has no conversational moves that aren't broadcast-shaped, and a
-  teacher discovering they've been grading their own life on completion.
-- **8.** Mari's first POV chapter. Retroactive: the bookstore from inside her head,
-  and the sheer physical relief of a room with no chat in it. Reader learns the scale
-  of her fame *here*, thirty pages after {{TEACHER}} didn't.
-- **9–11.** The stretch where it becomes a real thing. Texts at 1 a.m. Her schedule vs
-  the school bell. First genuine conflict: she cancels twice, and {{TEACHER}} has to
-  decide whether to be a person who gets managed.
-- **12.** **The reveal.** Not a scandal — a mundanity. Tomás sees a photo of the two
-  of them on a phone screen, or {{TEACHER}} is handed a phone in the staff room.
-  Delivered flat, no swelling. {{TEACHER}}'s reaction is the character beat: not awe.
-  Something closer to grief, immediately, for a thing not yet lost.
-- **13.** Part-ender. She asks them to say it out loud — *do you want this anyway* —
-  and they say yes before they understand the terms.
+- **1–3.** Derek's two jobs. Fifth period; then a four-hour Lynch stream to ninety
+  people at 11 p.m. Establish that he is *the same person in both rooms* — this is his
+  distinction from Mari and the book's central formal contrast. Establish Tomás.
+  Establish the family via a phone call from Anand that Derek handles well and then
+  sits in his car about.
+- **4.** **The meet.** A new sub in his chat asks a question about Lynch that is too
+  good. Then a DM. Then a name he recognizes instantly. **Derek assumes it's an
+  impersonator** — because a man who has been discarded by everyone who chose him does
+  not believe that `marimint` is a fan of his podcast. He is polite, unimpressed, and
+  a little cold. *That* is what gets her attention.
+- **5–7.** She proves it, absurdly. The correspondence: she has been watching him for
+  seven months. His stream is the one place she is an audience member rather than the
+  product — ninety people, no chat velocity, a man talking about *Fire Walk With Me*
+  for four hours and never once performing.
+- **8.** **Mari POV.** Retroactive. Why him: he is the only person she has encountered
+  in nine years who is *unmonetized*. She envies him and can't say so without it
+  sounding like an insult.
+- **9–10.** First meeting in person. Neutral city, a repertory screening.
+  Derek — charismatic on camera, stranded in public — is *fine*, because there is an
+  obvious connection point, and the book should make clear that this is not luck.
+- **11.** They cook. First of the four seated meals (§5). The door opens.
+- **12.** **The Danielle Marsh conversation.** He confesses the fixation, half-joking,
+  and she doesn't laugh. She asks him what he thinks he wants from that. He answers
+  honestly, because he can't not. It is the most exposed either of them has been, and
+  it is about a third party neither has met. *The novel's thesis is delivered here,
+  in a joke, in Part I.*
+- **13.** Part-ender. Derek states the terms out loud, because he states everything
+  out loud: he cannot be a secret indefinitely, and he will be one for now. He is
+  the one who names the expiry. Nobody hears it as a countdown yet.
 
 ### PART II — LATENCY (Ch. 14–27, ~26,000 words, mid Oct → early Feb)
 
-*Question: can a private thing survive inside a public life?*
+*Question: can an honest man run a secret?*
 
-Tone: happiest, then quietly claustrophobic. Love and logistics braided.
-
-- **14–17.** The good months. Hotel rooms, marked essays on her kitchen island,
-  {{TEACHER}} learning the vocabulary of an industry, Mari learning what a Tuesday is.
-  Genuine joy — the book must *earn* the reader's investment here or Part III is free.
-- **18.** Devin. The talk. NDAs, "optics," the calendar. He is polite and completely
-  reasonable and {{TEACHER}} leaves feeling like a liability line item.
-- **19–21.** Halle takes {{TEACHER}}'s measure and approves, which matters more than
-  Devin's disapproval. Mari's second POV run: she tries to describe the job honestly
-  and finds she can only do it in bits.
-- **22.** **Midpoint.** {{TEACHER}} sits off-camera through a live stream and watches
-  her be *magnificent* — and watches the exact instant she switches on. Not fake.
-  Not her either. They understand for the first time that they are in love with
-  someone who is professionally, ethically obligated to be everyone's.
-- **23–25.** The winter break arc. Meeting her family in Scarborough. A near-miss with
-  a fan at an airport. The first real fight, which is not about fame: it's about
-  {{TEACHER}} minimizing their own work — "it's just teaching" — and Mari refusing to
-  let that stand.
-- **26–27.** Part-ender: a photo of them exists somewhere. Nobody has posted it yet.
+- **14–16.** The good months. Marked essays on her kitchen island. She learns what a
+  Tuesday is. He builds her a small thing with a Raspberry Pi — a physical object that
+  proves he was listening — and it is the best gift she has received in nine years,
+  because it cost attention rather than money.
+- **17.** First sex scene. About privacy, not heat.
+- **18.** **Devin.** The talk, the NDA, the calendar. Derek signs it. Then goes home
+  and can't eat. The document is the first lie he has ever formally executed.
+- **19.** He does his podcast that week and *does not mention his life*, which is
+  technically not a lie and feels exactly like one. Establishes the erosion.
+- **20–21.** Halle takes his measure and approves; matters more than Devin's veto.
+  Mari POV: she tries to explain the job honestly and can only do it in fragments.
+- **22.** **MIDPOINT.** Derek off-camera through a live stream. Watches her be
+  magnificent, and clocks the *instant she switches on*. Not fake; not her. The horror
+  is comparative: he doesn't have a switch. Ninety people get the same man six million
+  don't get from her. He realizes he is in love with someone who is professionally and
+  ethically obligated to be everyone's — and, worse, that his own smallness is the
+  only reason he gets to be whole.
+- **23–24.** **Winter break, doubled.** Scarborough with her family: proud, warm,
+  baffled, nobody watches the streams. Then Derek's family: Anand, the father, the
+  well-meaning selfish advice, Mari watching a man she loves get made small by people
+  who think they're helping. She is *furious* on his behalf and he defends them, and
+  that fight is the best material in Part II.
+- **25.** The theater-chain conversation. He says the real dream out loud for the
+  first time. She could fund it with a phone call and they both know it, and the fact
+  that she doesn't offer is the most loving thing she does in the first half.
+- **26.** First real fight — not about fame. About Derek calling his own work a hobby.
+  She refuses to let it stand. He gets stubborn and aggressive, and then it clicks,
+  and he apologizes completely and immediately. First deployment of the turn.
+- **27.** Part-ender: a photo of them exists. Nobody has posted it.
 
 ### PART III — EXPOSURE (Ch. 28–41, ~28,000 words, Feb → late Apr)
 
 *Question: who pays?*
 
-Tone: the floor drops. Pace accelerates, chapters shorten, POV alternates faster.
-
-- **28–30.** It surfaces. Not a leak by a villain — an ordinary person, no malice,
-  eleven likes, then a hundred thousand. The novel is precise about the mechanism.
-- **31–33.** {{TEACHER}}'s life is searched. Employer identified in nine hours.
-  Students find it. **Tomás** — who trusted {{TEACHER}} with something in Part I —
-  is put in an impossible position by his own peers, and {{TEACHER}} fails him
-  slightly. Not monstrously. Slightly. That's worse and truer.
-- **34.** Priya, the district, the meeting. The professional consequence is real,
-  procedural, and unglamorous.
-- **35–37.** Mari's crisis run in POV. She has been here before, which is the horror:
-  she knows the playbook, she executes it, and executing it costs her the last
-  unprofessional thing she had. Her instinct is to manage {{TEACHER}} *as content*,
-  and she catches herself doing it, and that self-recognition is the low point of
-  her arc.
-- **38–39.** The statement. Devin's draft. Mari's edit. What gets cut from the edit.
-- **40.** **The break.** Not a betrayal — an act of love done wrong. One of them
-  decides for the other. (Leaning: **Mari** ends it, to spare {{TEACHER}} their job
-  and their students, without asking. Doing to {{TEACHER}} exactly what the internet
-  does to her: deciding who she is on her behalf.)
-- **41.** Part-ender. Spring, unbearable. {{TEACHER}} teaches the poetry unit.
+- **28–29.** It surfaces. An ordinary person, no malice, eleven likes, then a hundred
+  thousand (`D` C2).
+- **30.** Derek's ninety become forty thousand overnight. **This is the version of
+  fame the book is actually interested in** — not glamour, but a man's small honest
+  room filled with people who came for something other than the room. His chat, the
+  one space where his neurotype was an asset, becomes unnavigable in four hours.
+- **31–32.** The search. Employer identified in nine hours. Every opinion he has ever
+  stated on ten years of podcasts is now evidence, because he has never once hedged.
+  **His honesty, the thing he is proudest of, is the attack surface.**
+- **33.** **Tomás.** Put in an impossible position by his own classmates, and Derek —
+  who trusted him in Part I and was trusted back — fails him slightly. Not
+  monstrously. He protects himself for about ninety seconds. That's all it takes.
+- **34.** Priya, the district, procedure. Unglamorous and real.
+- **35.** **Sana.** His ex-wife surfaces, contacted by someone or simply watching.
+  One scene. She tells him something true and unbearable: that he was never actually
+  present in the marriage either, that being *useful* is not the same as being *there*,
+  and that she was wrong and cruel and also not entirely wrong.
+- **36–38.** Mari's crisis run in POV. She knows the playbook and executes it and the
+  execution costs her the last unprofessional thing she had. She catches herself
+  handling Derek *as content* and cannot unsee it.
+- **39.** The statement. Devin's draft, her edit, what gets cut from the edit.
+- **40.** **THE BREAK.** Mari ends it, unilaterally, to save his job and his students,
+  without asking him. To Derek this is not a break-up; it is the fourth confirmation
+  of the only thing he has ever believed about himself. He does not fight — and his
+  *not fighting*, from the most stubborn man in the book, is how the reader knows how
+  bad it is.
+- **41.** Part-ender. Spring. He teaches the poetry unit. He does not stream.
 
 ### PART IV — RESOLUTION (Ch. 42–52 + epilogue, ~21,000 words, May → early July)
 
-*Question: what would it cost to choose it on purpose?*
+*Question: what would it cost to ask to be kept?*
 
-- **42–44.** Separate recoveries. {{TEACHER}} repairs the Tomás thing properly — a
-  real apology to a sixteen-year-old, no self-justification. This scene, not the
-  reunion, is the novel's moral climax. Mari goes quiet for six weeks and the
-  internet writes her absence for her.
-- **45–47.** Mari's reckoning with Halle. The question she can't dodge: *is the job
-  the thing you love, or the thing you hide inside.* Answer: the job. Genuinely, the
-  job. She is not going to quit and the book will not make her. Her change is
-  structural, not vocational — she rebuilds the terms.
-- **48–50.** {{TEACHER}}'s reckoning: they wanted the smaller life and *also* used it
-  as a bunker, and the difference between those has to be settled by them alone,
-  before any reunion, or the reunion is worthless.
-- **51–52.** They meet. Not a grand gesture — a conversation, mostly about logistics,
-  which is what love looks like at this altitude. They negotiate actual terms:
-  what's shared, what never is, what happens the next time.
-- **Epilogue.** July. One year on. Small, domestic, unphotographed. The last image is
-  a thing nobody else will ever see.
+- **42–43.** **THE MORAL CLIMAX (Ch. 43).** Derek apologizes to Tomás. Properly, with
+  no self-justification, to a sixteen-year-old, out loud. This is the peak of the
+  novel and it has nothing to do with Mari (`D` C4).
+- **44.** He watches *Ant-Man*. Four sentences, no commentary, placed without emphasis.
+  The reader will understand that a rule he kept for a decade has stopped being the
+  shape of his integrity and started being the shape of his fear. **Do not explain it.**
+- **45.** He starts doing the actual work — a therapist, a psychiatrist, the
+  unglamorous logistics of managing depression and ADHD and being autistic in a world
+  that made him do all the translating. Rendered as tedious and mildly humiliating and
+  worth it. Not a montage. Not a cure.
+- **46–47.** Mari and Halle. *Is the job the thing you love or the thing you hide
+  inside?* Answer: the job, genuinely. She does not quit (`D` B2). She rebuilds terms.
+- **48–49.** Derek's reckoning: he wanted a small life and also used it as a bunker,
+  and he has to settle that alone before any reunion or the reunion is worthless. He
+  streams again. Ninety-one people. **Ch. 49 is the fourth streamed scene and the one
+  that breaks the form** (§6).
+- **50.** He tells his father something true. It does not land. He is okay anyway.
+  This is the scene that proves the arc, not the reunion.
+- **51–52.** They meet. A conversation, largely logistical, because that is what love
+  looks like at this altitude — what's shared, what never is, what happens next time.
+  Derek **asks to be kept, out loud, without offering anything in exchange.** Second
+  sex scene: less choreographed, more frightening.
+- **Epilogue.** July. Small, domestic, unphotographed. A seated meal, cooked together.
+  The last image is something nobody else will ever see.
 
 ---
 
 ## 4. Structural rules
 
-1. **No villain.** Devin is right, the fans are ordinary, the poster wasn't cruel.
-   The pressure is systemic. Any scene that finds a bad guy is a scene I wrote lazily.
-2. **The classroom is never metaphor-only.** Every school scene must work as school:
-   a real text, a real kid, a real problem. If a scene's only function is to rhyme
-   with the A-plot, it gets cut.
-3. **No chapter ends on a rhetorical question.** No chapter ends on a one-line
-   paragraph for effect more than four times in the book.
-4. **Mari is never a prize.** She gets the same interiority budget per page as
-   {{TEACHER}}, and her arc resolves on a question about *her work*, not about him/them.
-5. **The internet is rendered concretely or not at all.** No "the internet exploded."
-   Specific posts, specific counts, specific timestamps.
-6. **Fame is never the reason a scene is interesting.** If the scene stops working
-   when you make her a mid-level accountant, it's a bad scene.
+1. **No villain.** Devin is right. The poster wasn't cruel. Anand is a narcissist and
+   is never *simply* wrong. Sana is not a monster.
+2. **The classroom is never metaphor-only.** Real text, real kid, real problem, or cut.
+3. **Derek's interests are never a checklist.** Any reference must do work — character,
+   argument, or joke. Two per chapter maximum. A Lynch mention that doesn't earn its
+   place is a Lynch mention I put there because I like Lynch.
+4. **The autism is never the punchline and never the lesson.** It is load-bearing
+   architecture: it makes him a better critic, a better teacher, a worse guest at a
+   party, and it is why he cannot lie comfortably. Nobody in the book "helps him
+   overcome" it.
+5. **Mari is never a prize.** Equal interiority budget. Her arc resolves on a question
+   about her work.
+6. **Fame is never the reason a scene is interesting.** If it stops working when she's
+   an accountant, it's a bad scene.
+7. **No chapter ends on a rhetorical question.**
 
 ---
 
 ## 5. Motifs
 
-- **Latency / delay** — the half-second between what she says and what chat sees;
-  the gap between feeling and admitting. Title source. Used sparingly: 5–6 times max.
-- **Reading aloud** — {{TEACHER}}'s classroom habit, then a private one. Pays off in
-  Ch. 52 and the epilogue.
-- **Doors** — greenrooms, classrooms, the bookstore stockroom. Who controls them.
-- **Names** — "marimint," "Miss Ocampo," "Mari," and the one thing {{TEACHER}} calls
-  her that nobody else does. Introduced Ch. 16, weaponized Ch. 40, restored Ch. 52.
-- **Food eaten standing up** — both of them, both jobs, whole book. Seated meal =
-  intimacy achieved. Track it; there should be exactly four.
+- **Concurrents** — the viewer counter. 90 / 6,400,000 / 40,000 / 91. The number is
+  named exactly five times and the fifth is the last line of Ch. 49.
+- **The gift as receipt for attention** — the Raspberry Pi build (Ch. 15), a lens
+  (Ch. 24), and the thing he doesn't give her in Ch. 40 and does in Ch. 52.
+- **Reading aloud** — his classroom habit, then a private one. Pays off Ch. 52.
+- **Cooking together** — exactly **four seated meals** in the novel: Ch. 11, Ch. 24,
+  Ch. 40 (uneaten), epilogue. Everything else is eaten standing up.
+- **The *Ant-Man* rule** — comic in Part I, characterizing in Part II, quietly
+  devastating in Ch. 44.
+- **Names** — `marimint`, "Miss Ocampo," "Mari," and the one thing Derek calls her
+  that nobody else does. Introduced Ch. 16, weaponized Ch. 40, restored Ch. 52.
+- **Danielle Marsh** — invoked Ch. 12 as a joke, Ch. 22 as a comparison Derek makes
+  and immediately regrets, Ch. 38 from Mari's side, and never again.
 
 ---
 
 ## 6. Voice & technical
 
-- Close third, past tense. Free indirect style — {{TEACHER}}'s sections carry a
-  literate, self-deprecating, slightly over-figured register (they think in the books
-  they teach); Mari's are faster, funnier, more fragmentary, more present-tense verbs
-  inside past-tense narration.
-- **Streamed scenes** shift to present tense and lose interiority — the reader is
-  put in chat's position, seeing only surface. Used exactly four times: Ch. 22, 30,
-  38, 49. The Ch. 49 one breaks the rule by giving interiority back, and that break
-  *is* the arc landing.
-- Chat messages: rendered as flush-left italic runs, no usernames except three
-  recurring handles. Never more than nine lines at a stretch.
-- Texts: rendered inline in prose, not as formatted blocks. Keeps the pace literary.
-- Sex: on the page, but the scenes are about privacy rather than heat. Two of them,
-  Ch. 17 and Ch. 51, and the second is deliberately less choreographed and more
-  frightening.
-- Chapter headers: number only. No dates, no POV labels — the voice does that work.
+- Close third, past. Free indirect. **Derek's register:** fluent, allusive, structured
+  like criticism even when it isn't — he thinks in readings. Under stress it becomes
+  *more* formal and precise, not less; he prosecutes. **Mari's:** faster, funnier,
+  fragmentary, more present-tense verbs inside past-tense narration.
+- **Streamed scenes** shift to present tense and strip interiority — the reader gets
+  what chat gets. **Four times: Ch. 22 (her), Ch. 30 (him), Ch. 38 (her), Ch. 49 (him).**
+  Ch. 49 restores interiority mid-stream, to ninety-one people. The formal break *is*
+  the arc landing; nobody comments on it.
+- Chat: flush-left italic runs, unattributed except three recurring handles, nine lines
+  max. In Ch. 30 the runs get longer and faster and the three familiar handles vanish
+  into it — that's the whole horror of the chapter, done typographically.
+- Texts and DMs: inline in prose, not blocked. Keeps the pace literary.
+- Multilingual: Telugu with family, untranslated and unglossed where the meaning is
+  carried by the scene. Never italicized.
+- Sex: on the page. Ch. 17 and Ch. 51. About privacy, not heat.
+- Chapter headers: number only.
 
 ---
 
 ## 7. Files
 
 ```
-plan.md          this
-decisions.md     running log of why — updated with every drafting session
-characters/      one file per principal; {{TEACHER}}.md pending upload
-manuscript/      chNN.md, one file per chapter
+plan.md              this
+decisions.md         running log of why; §F holds the post-sheet reconciliation
+characters/derek.md  protagonist
+characters/mari-ocampo.md
+manuscript/          chNN.md
 ```
 
 ## 8. Drafting order
 
-1. Fill {{TEACHER}} from the sheet; reconcile §1 and every flagged beat.
-2. Draft Ch. 4 and Ch. 22 first — the meet and the midpoint. If the voice works
-   in both, the book works. If not, revise the plan before drafting sequentially.
-3. Then Part I straight through, then II, III, IV.
-4. Log every non-obvious call in `decisions.md` as it's made, not retroactively.
+1. **Ch. 4** (the meet — does the impersonator misread land?) and **Ch. 22**
+   (midpoint — does the switch-recognition land?). Voice test. If both work, the book
+   works. If not, revise this plan before drafting sequentially.
+2. Then Part I straight through, then II, III, IV.
+3. Log every non-obvious call in `decisions.md` as it's made.

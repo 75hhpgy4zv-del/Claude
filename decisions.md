@@ -75,14 +75,14 @@ acumen she's shy about) carries the resemblance the brief actually wants. Scarbo
 not vocationally.
 **Why:** Quitting would frame the job as the disease, which is both untrue and
 condescending toward a woman who built a company. It would also make her love for
-{{TEACHER}} a rescue, and the book has no interest in rescue. Her real problem isn't
+Derek a rescue, and the book has no interest in rescue. Her real problem isn't
 that she streams; it's that she has let being *legible* substitute for being *known*,
 and you can fix that without changing careers. Harder to dramatize. Correct.
 **Cost:** Denies the reader an obvious sacrifice-proves-love beat. Part IV has to
 work harder to feel like change.
 **Reversal trigger:** none.
 
-### B3 — {{TEACHER}} kept in placeholder until the sheet arrives [2026-07-25] [open]
+### B3 — Derek kept in placeholder until the sheet arrives [2026-07-25] [open]
 **Decision:** Outline written around named slots (§1) rather than invented traits,
 with they/them pronouns throughout.
 **Why:** Inventing a protagonist now and retrofitting the sheet later produces a
@@ -94,7 +94,7 @@ beats are genuinely dependent.
 change as its own entry in §F.
 
 ### B4 — The wound is symmetrical [2026-07-25] [settled]
-**Decision:** {{TEACHER}} chose a small life and won't say whether it was wisdom or
+**Decision:** Derek chose a small life and won't say whether it was wisdom or
 fear. Mari chose a huge one and won't say whether it was ambition or hiding. Same
 wound, opposite ends.
 **Why:** Gives the romance a reason to exist beyond attraction — each is the only
@@ -116,11 +116,11 @@ choose it anyway with open eyes, the ending is a decision, which is a novel.
 
 ### B6 — Tomás exists so the cost lands on a third party [2026-07-25] [settled]
 **Decision:** A student is harmed, mildly and recoverably, by the exposure — and by
-{{TEACHER}}'s small failure of nerve.
+Derek's small failure of nerve.
 **Why:** Without him, all the damage falls on the two people who chose it, and the
 reader can dismiss the stakes as self-inflicted. A sixteen-year-old who trusted a
 teacher in Chapter 6 and gets used by his classmates in Chapter 32 makes the privacy
-question *ethical* rather than merely romantic. It also gives {{TEACHER}} an arc
+question *ethical* rather than merely romantic. It also gives Derek an arc
 that is not about Mari, which every protagonist in a romance needs and rarely gets.
 **Cost:** Risk of the subplot reading as manufactured. Guard: he must be fully drawn
 in Part I, before he's useful.
@@ -131,11 +131,11 @@ in Part I, before he's useful.
 ## C. Plot
 
 ### C1 — The reveal is mundane, not dramatic [2026-07-25] [settled]
-**Decision:** Ch. 12. {{TEACHER}} learns who she is from a phone screen in a staff
+**Decision:** Ch. 12. Derek learns who she is from a phone screen in a staff
 room. No confrontation, no accusation of deceit.
 **Why:** A dramatic reveal makes the withholding a *lie*, which turns Part I into a
 deception plot and makes Mari untrustworthy for the rest of the book. Mundane delivery
-keeps her sympathetic and relocates the drama where it belongs: in {{TEACHER}}'s
+keeps her sympathetic and relocates the drama where it belongs: in Derek's
 reaction. Which is grief, not awe — they immediately understand what it costs, and
 that reaction is the fastest way to show the reader this protagonist is not naive.
 **Cost:** Sacrifices a conventional Act I climax.
@@ -153,22 +153,22 @@ rather than conflict. Chapters 31–34 carry that load.
 procedure — not via inventing a hater.
 
 ### C3 — Mari initiates the break [2026-07-25] [provisional]
-**Decision:** Ch. 40. She ends it to protect {{TEACHER}}'s job and students, without
+**Decision:** Ch. 40. She ends it to protect Derek's job and students, without
 consulting them.
 **Why:** This is the only break-up available that is an act of love, a genuine moral
-error, *and* thematically exact — she does to {{TEACHER}} precisely what six million
+error, *and* thematically exact — she does to Derek precisely what six million
 people do to her: decides who they are and what they need on their behalf. It makes
 her low point a failure of her own stated principle, which is the most damning and
-most human kind. If {{TEACHER}} instead initiated, the beat would only say "the
+most human kind. If Derek instead initiated, the beat would only say "the
 pressure was too much," which is weather, not character.
 **Cost:** Puts the protagonist in a reactive position for two chapters (41–42). Guard:
-Ch. 42–44 immediately hands {{TEACHER}} the Tomás repair, which is fully active.
-**Reversal trigger:** If the character sheet gives {{TEACHER}} a strong decisive or
+Ch. 42–44 immediately hands Derek the Tomás repair, which is fully active.
+**Reversal trigger:** If the character sheet gives Derek a strong decisive or
 controlling streak, consider a mutual break instead — a unilateral one from her side
 may read as her doing all the work of the plot.
 
 ### C4 — Moral climax ≠ romantic climax [2026-07-25] [settled]
-**Decision:** The book's peak is Ch. 43, {{TEACHER}} apologizing properly to a
+**Decision:** The book's peak is Ch. 43, Derek apologizing properly to a
 sixteen-year-old, not Ch. 51, the reunion.
 **Why:** Guarantees the novel is about something other than whether two people kiss
 again. It also fixes a structural problem in the genre: if the reunion is the peak,
@@ -215,7 +215,7 @@ same terms as streaming, without irony.
 **Why:** Otherwise the book is a famous world and a normal world, and the normal world
 is just a rest stop. Making the classroom a *parallel* — thirty people who feel they
 know you, a persona you switch on at the bell, real care delivered through a
-professional frame — earns {{TEACHER}} the standing to understand Mari, and gives the
+professional frame — earns Derek the standing to understand Mari, and gives the
 Ch. 22 midpoint its charge: they recognize the switch because they have one.
 **Cost:** Risks the reader finding the parallel too neat. Guard: plan §4 rule 2 —
 no school scene exists only to rhyme.
@@ -236,7 +236,7 @@ the three handles do more.
 
 ## E. Rejected
 
-### E1 — Rejected: {{TEACHER}} teaches Mari's younger sibling
+### E1 — Rejected: Derek teaches Mari's younger sibling
 Too convenient a hinge, and it makes the meeting institutional rather than accidental.
 The premise needs a stranger who owes her nothing.
 
@@ -249,9 +249,9 @@ Would explain her rather than reveal her, and would blunt the Ch. 8 POV switch, 
 is the best structural card in Part I. Her history gets delivered in dialogue and in
 the Scarborough chapters instead.
 
-### E4 — Rejected: {{TEACHER}} becomes internet-famous by association
+### E4 — Rejected: Derek becomes internet-famous by association
 The obvious Part III escalation and a much smaller story — it converts the theme from
-*what do we owe people who watch us* into *fame is bad, here's a montage*. {{TEACHER}}
+*what do we owe people who watch us* into *fame is bad, here's a montage*. Derek
 gets searched, doxxed-adjacent, and professionally endangered. They do not get a
 following.
 
@@ -260,8 +260,173 @@ Resolves A1 by capitulating to it. The final image is deliberately unphotographe
 
 ---
 
-## F. Post-upload reconciliation
+## F. Post-upload reconciliation — Derek's Character Bible [2026-07-25]
 
-*Empty until the character sheet lands. Every outline beat the sheet forces me to
-change gets its own entry here, with the original intent recorded so nothing is lost
-silently.*
+Sheet received. Protagonist is **Derek**, 35, South Indian (Andhra Pradesh), immigrated
+at 10, English teacher **and part-time streamer/film critic (80–100 concurrent)**.
+Placeholder retired; `characters/derek.md` written; `plan.md` rebuilt.
+
+Each entry records what the sheet broke, what replaced it, and what the original was
+for — so nothing is lost silently.
+
+### F1 — The premise inverts: he is in the same industry [status: settled]
+**Broken:** B3/§1 assumed an outsider who doesn't recognize her. C1 built an entire
+Act I climax on a delayed reveal.
+**Now:** Derek streams. He is a working critic with an audience. He identifies
+`marimint` in about a second and a half. The reveal plot is gone.
+**Replacement:** **she finds him.** She has been watching his podcast for seven months.
+The gap is no longer knowledge, it's *scale* — 90 vs 6,400,000 — and scale can't be
+explained away in a conversation the way ignorance can. It just sits there for 350
+pages.
+**Why this is better:** the old version needed Mari to withhold, which made her
+faintly deceptive and made Part I a deception plot I was already working to defuse
+(see C1). The new version has no lie in it at all. It also means both leads can
+discuss the parasocial problem as *colleagues*, in technical terms, which raises the
+book's ceiling — the theme can now be argued by the characters instead of narrated
+by me.
+**Cost:** loses the Ch. 8 structural card where the reader learns her scale thirty
+pages after the protagonist didn't. Mari's first POV chapter now has to earn its place
+on interiority alone. Acceptable — it's a stronger chapter for it.
+
+### F2 — The meet is a disbelief, not a mistake [status: settled]
+**Decision:** Ch. 4. She subs, asks too good a Lynch question, DMs him. **Derek assumes
+he is being impersonated** and is polite, unimpressed, slightly cold. That coldness is
+what makes her stay.
+**Why:** it comes straight out of the wound. A man cheated on in every relationship,
+whose wife left him for his best friend, does not believe that one of the most-watched
+women alive is a fan of his four-hour Lynch stream. The disbelief is characterization,
+comedy, and premise in one move, and it means the relationship starts with him *not*
+being impressed by her — which is the only foundation this particular pairing can bear.
+**Cost:** none. This replaced a bookstore meet-cute I now think was inert.
+
+### F3 — The wound changes, and the symmetry survives [status: settled]
+**Broken:** B4 assumed *made a bid at something and stopped; wisdom or fear?*
+**Now:** the sheet gives something sharper — cheated on in every relationship, a
+marriage he solely funded ended by his wife and his best friend, layered over a family
+whose well-meaning advice is about their wants, not his. Operating belief: **he is not
+enough to be kept.** Compensation: be so useful that leaving is irrational. Has never
+worked. Keeps doing it.
+**Symmetry preserved, and improved:** she is *adored by millions and known by four*;
+he is *useful to everyone and kept by no one*. Both have mistaken a proxy for the
+real thing — she took legibility for intimacy, he took utility for love. Same error,
+opposite ends. That's a tighter rhyme than the original wisdom/fear pairing, and it
+gives each of them standing to diagnose the other without either becoming the other's
+mentor (the thing B4 existed to prevent).
+**Consequence:** the novel's final beat is now fixed. He asks to be kept, out loud,
+offering nothing in exchange. That is the hardest possible act for this character and
+it costs him nothing external, which is the point.
+
+### F4 — C3 confirmed, and now much worse [status: settled — was provisional]
+**The old reversal trigger** said: if the sheet gives him a decisive or stubborn
+streak, consider a mutual break instead. The sheet gives him stubborn, aggressive in
+conflict, outspoken, **and VERY LOYAL** in capitals.
+**Ruling: keep the unilateral break, and it's now the strongest beat in the book.**
+He would never leave. Loyalty is his organizing principle. So the break can only come
+from her — and when it does, it is the *fourth* time someone he chose has decided
+about him without him. Mari, trying to save his job, does the exact thing the internet
+does to her: decides who he is on his behalf. She confirms his life's thesis while
+acting out of love.
+**New load-bearing detail:** he doesn't fight it. The most stubborn man in the novel,
+who argues about *everything*, does not argue. That silence is how the reader measures
+the damage, and it's cheaper and better than any scene of him breaking down.
+
+### F5 — Honesty as attack surface [status: settled]
+**New, sheet-derived.** He is honest to a fault — he hasn't watched *Ant-Man* for ten
+years because he said on a podcast he wouldn't, and nobody is checking but him.
+**Two consequences the plan now runs on:**
+1. **Part II is a moral injury.** Making this specific man run a secret relationship,
+   sign an NDA, and do a podcast where he omits his own life is a slow, quiet wound
+   that requires no external conflict to generate tension. Ch. 18–19 exist for this.
+2. **Part III turns his virtue into the weapon.** Ten years of stated opinions, never
+   hedged, all searchable. The thing he is proudest of is the largest attack surface
+   he could possibly have. I did not have to invent a single hostile actor to make
+   this hurt (preserves C2 and B5 intact).
+**And Ch. 44:** he watches *Ant-Man*. Four sentences, no commentary, no emphasis. The
+rule stopped being the shape of his integrity and became the shape of his fear. If I
+explain it, I've ruined it.
+
+### F6 — Danielle Marsh: the thesis, delivered as a joke, in Part I [status: settled]
+**New, sheet-derived, and the single most valuable thing in the bible.** He has a
+genuine parasocial fixation on a K-pop performer.
+**Decision:** Ch. 12 is Derek confessing it, half-joking; Mari not laughing; Mari
+asking what he thinks he *wants* from that; and Derek — who is incapable of a
+comfortable lie — answering honestly.
+**Why:** it means the novel's central claim is spoken aloud on page ~60 by the two
+people it will eventually destroy, about a third party, as banter. **Derek is Mari's
+chat.** He is in miniature exactly what six million people are to her, he knows it,
+and he is ashamed of it. No other configuration lets me put the thesis on the table
+that early without preaching, and every later beat is re-lit by it — especially
+Ch. 22, where he compares himself to her audience and immediately regrets it.
+**Rule:** invoked four times total (Ch. 12, 22, 38, and once from her side), then
+never again. If I go back to the well a fifth time it becomes a bit.
+
+### F7 — Formal contrast: he has no switch [status: settled]
+**Broken/upgraded:** D3 argued teaching-as-performance to give him standing to
+understand Mari. The sheet makes it sharper.
+**Now:** Derek is *the same person in both rooms* — fifth period and the 11 p.m.
+stream. His autism is why: he's fluent wherever there's a connection point and
+stranded without one, but he does not have a persona, he has a subject. Mari has a
+switch and he doesn't.
+**The midpoint (Ch. 22) is now precise:** he watches the instant she switches on. Not
+fake, not her. And the horror is comparative — *ninety people get all of him; six
+million don't get all of her; and the only reason he's whole is that he's small.*
+That's a real, unresolvable thought, and it's the engine of the back half.
+
+### F8 — The theater chain is a trap I must not spring [status: settled]
+**New, sheet-derived.** His real ambition is a theater chain for actual film lovers.
+Mari could fund it with a phone call.
+**Decision: she never offers, and the book never does it.** She could; they both know
+it; she doesn't. Ch. 25.
+**Why:** funding it would convert him into what his marriage already made him — a man
+whose worth is transactional — and it would let the novel buy an ending. It is also,
+concretely, the most loving thing she does in the first half, precisely because it
+looks like withholding. A reader who notices what she didn't do is a reader who
+understands both characters.
+**Watch:** if any draft has her writing a check, the book has lost its nerve.
+
+### F9 — Anand, the father, and the fight that isn't about fame [status: settled]
+**New, sheet-derived.** Doubled winter break (Ch. 23–24): her family in Scarborough,
+warm and baffled; then his, where well-meaning selfish advice makes him small.
+**The beat:** Mari is furious on his behalf. **Derek defends them.** That's the fight.
+**Why:** it gives Part II a serious conflict with no connection to fame whatsoever,
+which the book badly needs to prove it isn't a one-note premise. It also shows Mari
+what she's up against — not a rival, but a thirty-five-year-old architecture of
+self-diminishment that she cannot argue him out of.
+**Ch. 50 pays it off:** he tells his father something true, it does not land, and he
+is okay anyway. The father relationship is **not repaired.** Some aren't, and a book
+that fixes it in a page is lying.
+
+### F10 — Sana gets one scene and is not a monster [status: settled]
+**New.** The ex-wife appears once, Ch. 35. She tells him he was never actually present
+in the marriage either — that being *useful* is not the same as being *there*.
+**Why:** she cheated, and she is also not entirely wrong, and both facts have to be
+true at once or the wound stays a grievance instead of becoming a diagnosis. It is the
+one piece of information Derek needs before Part IV that Mari structurally cannot give
+him. Consistent with rule 1: no villains, including the obvious one.
+**Cost:** risks readers feeling the cheating is being excused. Guard: she does not
+apologize and he does not forgive her. He just leaves the room carrying something new.
+
+### F11 — Autism rendered as architecture, not garnish [status: settled]
+**Decision (plan §4 rule 4):** never the punchline, never the lesson, nobody helps him
+overcome it. It is why the criticism is good, why the teaching lands, why he can hold
+ninety people for four hours and cannot do a staff-room greeting, and why he cannot
+lie comfortably.
+**Ch. 45** is the growth beat the sheet asks for — therapist, psychiatrist, the tedious
+logistics of depression and ADHD — rendered as boring, mildly humiliating, and worth
+it. Not a montage, not a cure.
+**Also decided:** his interests are capped at **two references per chapter** (plan §4
+rule 3). A character bible this rich is a standing invitation to write inventory
+instead of character. Every Lynch or Baahubali or Best Buy mention has to do work.
+
+### F12 — Ch. 30 is the fame chapter [status: settled]
+**New, sheet-derived, and only possible because he streams.** When it breaks, his 90
+become 40,000 overnight.
+**Why this replaces E4:** I'd previously rejected "Derek becomes internet-famous" as a
+smaller story. That rejection stands for *glamour* — he still gets no following and no
+arc from it. But the sheet unlocks a version I want badly: his small honest room, the
+one place where his neurotype was an asset, fills in four hours with people who came
+for something other than the room. That's not fame as ascent. That's fame as
+**eviction**, and it costs him the thing the novel established in Ch. 2.
+**Technique:** done typographically. The chat runs get longer and faster and the three
+familiar recurring handles disappear into the noise. No narration of how he feels.
+

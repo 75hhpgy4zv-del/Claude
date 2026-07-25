@@ -53,7 +53,7 @@ read as unfriendly and which is simply unemployed.
   *you're lying* for free.
 - **Family, Scarborough** — proud, baffled, protective. Nobody watches the streams.
   This is a relief and a small ongoing grief.
-- **{{TEACHER}}** — the first person in nine years whose regard was not downstream
+- **Derek** — the first person in nine years whose regard was not downstream
   of the numbers.
 
 ## Arc
