@@ -82,7 +82,7 @@ and you can fix that without changing careers. Harder to dramatize. Correct.
 work harder to feel like change.
 **Reversal trigger:** none.
 
-### B3 — Derek kept in placeholder until the sheet arrives [2026-07-25] [open]
+### B3 — Derek kept in placeholder until the sheet arrives [2026-07-25] [SUPERSEDED by F1 — sheet received; retained for the reasoning trail]
 **Decision:** Outline written around named slots (§1) rather than invented traits,
 with they/them pronouns throughout.
 **Why:** Inventing a protagonist now and retrofitting the sheet later produces a
@@ -93,7 +93,7 @@ beats are genuinely dependent.
 **Reversal trigger:** Sheet arrives → fill, reconcile, log every beat that had to
 change as its own entry in §F.
 
-### B4 — The wound is symmetrical [2026-07-25] [settled]
+### B4 — The wound is symmetrical [2026-07-25] [REVISED by F3 — the symmetry holds, the wound itself changed]
 **Decision:** Derek chose a small life and won't say whether it was wisdom or
 fear. Mari chose a huge one and won't say whether it was ambition or hiding. Same
 wound, opposite ends.
@@ -130,13 +130,13 @@ in Part I, before he's useful.
 
 ## C. Plot
 
-### C1 — The reveal is mundane, not dramatic [2026-07-25] [settled]
+### C1 — The reveal is mundane, not dramatic [2026-07-25] [SUPERSEDED by F1/F2 — there is no reveal plot; Derek recognizes her instantly]
 **Decision:** Ch. 12. Derek learns who she is from a phone screen in a staff
 room. No confrontation, no accusation of deceit.
 **Why:** A dramatic reveal makes the withholding a *lie*, which turns Part I into a
 deception plot and makes Mari untrustworthy for the rest of the book. Mundane delivery
 keeps her sympathetic and relocates the drama where it belongs: in Derek's
-reaction. Which is grief, not awe — they immediately understand what it costs, and
+reaction. Which is grief, not awe — he immediately understands what it costs, and
 that reaction is the fastest way to show the reader this protagonist is not naive.
 **Cost:** Sacrifices a conventional Act I climax.
 **Reversal trigger:** none.
@@ -157,7 +157,7 @@ procedure — not via inventing a hater.
 consulting them.
 **Why:** This is the only break-up available that is an act of love, a genuine moral
 error, *and* thematically exact — she does to Derek precisely what six million
-people do to her: decides who they are and what they need on their behalf. It makes
+people do to her: decides who he is and what he needs on his behalf. It makes
 her low point a failure of her own stated principle, which is the most damning and
 most human kind. If Derek instead initiated, the beat would only say "the
 pressure was too much," which is weather, not character.
@@ -216,7 +216,8 @@ same terms as streaming, without irony.
 is just a rest stop. Making the classroom a *parallel* — thirty people who feel they
 know you, a persona you switch on at the bell, real care delivered through a
 professional frame — earns Derek the standing to understand Mari, and gives the
-Ch. 22 midpoint its charge: they recognize the switch because they have one.
+Ch. 22 midpoint its charge: he recognizes the switch. (Revised by F7: he has no
+switch of his own, and that asymmetry is sharper than the parallel I planned.)
 **Cost:** Risks the reader finding the parallel too neat. Guard: plan §4 rule 2 —
 no school scene exists only to rhyme.
 **Reversal trigger:** none.
@@ -249,7 +250,7 @@ Would explain her rather than reveal her, and would blunt the Ch. 8 POV switch, 
 is the best structural card in Part I. Her history gets delivered in dialogue and in
 the Scarborough chapters instead.
 
-### E4 — Rejected: Derek becomes internet-famous by association
+### E4 — Rejected: Derek becomes internet-famous by association [PARTIALLY REOPENED by F12]
 The obvious Part III escalation and a much smaller story — it converts the theme from
 *what do we owe people who watch us* into *fame is bad, here's a montage*. Derek
 gets searched, doxxed-adjacent, and professionally endangered. They do not get a
