@@ -607,3 +607,110 @@ setting for work.
 **Added to `characters/derek.md`** as a core trait rather than a Part I detail, because
 it governs how he responds to warmth from *everyone* — Mari, Halle, Tomás, and the
 family whose well-meaning selfishness he keeps letting in.
+
+---
+
+## H. Drafting log — Part I, Ch. 1–3
+
+### H1 — Ch. 1 opens on the broken copier [2026-07-25] [settled]
+**Decision:** First image of the novel is a photocopier with a BACK MONDAY sign on it
+that "had been true once."
+**Why:** The book's largest risk is that a reader arrives for the famous woman and reads
+the school chapters as a waiting room. So Ch. 1 refuses to trade on the premise at all —
+no phone, no internet, no Mari, no hint. It earns the classroom on its own terms first
+(plan §4 rule 2), and it establishes the register: dry, exact, funny about institutions.
+A reader who enjoys the copier will follow this man anywhere. One who doesn't should
+find out on page one rather than page ninety.
+**Cost:** slow open by commercial-romance standards. Accepted.
+
+### H2 — Reading aloud is established before it is a motif [2026-07-25] [settled]
+**Decision:** He reads Hopkins's "Spring and Fall" cold to twenty-nine juniors, refuses
+to let them say what it means, and asks what it *sounded* like.
+**Why:** The motif has to be a real teaching practice before it can carry weight in
+Ch. 52. Hopkins earns its place three ways: the sprung rhythm makes reading-aloud the
+only way to deliver it, so the habit is functional rather than decorative; the poem is
+about grief arriving before comprehension, which is the novel's whole method for Derek;
+and *Márgarét, áre you gríeving* lets a room laugh at him and then stop laughing, which
+is what his classroom does. It also plants the book's thesis in a second register —
+*everything we read is going to be doing something to you underneath the part you can
+explain* — which is susceptibility (G8) stated as pedagogy on page 3.
+**Ch. 2 mirrors it deliberately:** he reads a real 1985 city council resolution aloud,
+then RoboCop's fake ad copy, and shuts up. Same man, same move, both rooms (F7).
+
+### H3 — The counting-the-room passage [2026-07-25] [settled]
+**Decision:** A short direct passage in Ch. 1 naming what he does involuntarily — the
+rolling scan, the kid who kept his backpack on — framed as something he has never told
+anyone and could not explain "without sounding either mystical or unwell."
+**Why:** G8 needs to exist before the Danielle material in Ch. 22, or that passage has
+to do its own setup and becomes an essay. Establishing it here as a *professional
+faculty* means the later parasocial beat is a callback rather than a claim. The
+Magnolia detail is doing real work: the same faculty sold speakers, so it predates
+teaching and isn't a virtue he acquired.
+**Guard:** the autism is never named in the prose. It's in the character file and it is
+visible in behaviour. Nobody diagnoses him on the page in Part I.
+
+### H4 — Tomás introduced on an index card, in nine words [2026-07-25] [settled]
+**Decision:** *everyone in this class has known each other since kindergarten and I
+moved here in March.* He hands it in separately so it won't be "in the middle."
+**Why:** B6 requires him fully drawn before he's useful, and the cheapest way to fail
+that is a scene explaining him. The card does it and simultaneously shows Derek's
+faculty working — he had already clocked the backpack. Derek's response (leaving a card
+in the seat, "it's the entire job," see me Thursday) establishes the trust that Ch. 33
+breaks. **"He did not think of it as an intervention. He never did. It was closer to an
+itch."** — that line is load-bearing for Part IV: what he does for kids is not virtue,
+it's compulsion, which is why failing Tomás will hit him as a malfunction rather than a
+guilt.
+
+### H5 — The Ant-Man rule stated by him, on stream, in Ch. 2 [2026-07-25] [settled]
+**Decision:** He explains it himself: 2015, eleven listeners, one of them his mother.
+*"Bits are for people with an audience. In 2015 I had eleven listeners, so it can't be
+a bit, it can only be a promise."*
+**Why:** it has to be funny and sincere in the same breath here so that Ch. 44 can be
+devastating without a word of commentary. Putting the reasoning in his own mouth also
+means Ch. 44 needs no narration at all — the reader already has his argument and will
+watch it fail on its own.
+
+### H6 — Ch. 3: the family is never wrong on the facts [2026-07-25] [settled]
+**Decision:** Anand asks what the plan is, kindly, and every factual claim he makes is
+correct. Eleven years is a long time. Four hundred dollars is not a living.
+**Why:** F9 and rule 1. A brother who is simply obnoxious gives Derek an enemy and the
+reader a rest. A brother who is *right about the numbers and wrong about the person* is
+unanswerable, which is the actual experience being dramatised. The formulation the
+chapter arrives at — *they were asking on their own behalf; every question was a
+question about how his life was going to feel to them* — is the sheet's "well meaning
+but inherently selfish" turned into something a character could think at a table.
+**The mother's laugh is the worst moment in the chapter** and it is affectionate. That
+was the point.
+
+### H7 — THEATRE_v9.xlsx [2026-07-25] [settled]
+**Decision:** The theater-chain dream appears in Ch. 3 as a spreadsheet with six tabs,
+nineteen scouted listings, and a working knowledge of rights fees for a 1988 Malayalam
+print — and he says none of it, because he has run the simulation and it ends with
+Anand being kind about it.
+**Why:** Establishes early that this is a real plan rather than a wish, which is what
+makes Ch. 25 (telling Mari) an act of enormous trust and F8 (her not offering to fund
+it) legible as love rather than indifference. Version 9 also dates it: Sana saw v3 in
+2016, which delivers the marriage, the loss, and the reason he stopped showing people
+things, in one clause.
+
+### H8 — Ending on the leaf blower [2026-07-25] [settled]
+**Decision:** He sits eleven minutes in a hot car insisting to himself he is not upset,
+which is true, and the chapter ends when a neighbour's leaf blower stops.
+**Why:** the cost has to be visible without him breaking down, because the sheet's man
+does not break down over a lunch that went well. The mechanism is G8: their warmth came
+through the same door as everything else, all at once, with no sorting mechanism. That
+makes the family material and the Mari material one system rather than two subplots.
+**No rhetorical question, no one-line paragraph, no summary sentence** — the leaf blower
+stopping is the whole cadence.
+
+### H9 — Word count running light [2026-07-25] [flagged, not fixed]
+Ch. 1–3 came in at 1,477 / 1,299 / 1,443 against an 1,850 average. Sustained across 52
+chapters that is roughly 73,000 words, well short of the 95–101k target for 300–350
+pages.
+**Not padding retroactively.** These three are deliberately spare — first-week
+chapters, establishing rhythm. The chapters carrying real scene work (the doubled
+winter break, the district meeting, Ch. 22 and 40) already run 1,800–2,400 naturally.
+**Decision:** carry on and re-measure at the end of Part I (Ch. 13). If the running
+average is still under 1,600 there, the fix is more scenes rather than longer ones —
+A3's reversal trigger runs the wrong way, and the honest correction is that Part I is
+under-dramatised, not that the sentences are too short.
