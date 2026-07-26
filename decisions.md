@@ -724,3 +724,74 @@ does character work no other phrasing does. Rewrote Derek's into plain statement
 switch and he had been running it since 7:20."*
 **Recording that the tic returned within an hour of being named.** Self-imposed style
 rules do not hold on their own. Grep every batch before commit; do not trust the rule.
+
+### H11 — Ch. 1–3 rewritten: the panels came out [2026-07-26] [settled — supersedes H1/H3/H6/H8 in method, not intent]
+**Author's note:** the self-aware-narrator card gets played more often than it can carry
+in Ch. 3, and Ch. 1–3 are weaker than the Ch. 4 / Ch. 22 samples.
+
+**Both complaints are one defect, and the second is caused by the first.**
+
+Each of the three chapters had an essay panel where the narration stepped out of the
+scene to explain Derek: *"Here is what Derek was actually doing while he taught"*,
+*"Here is what Derek did, which he would replay in the car"*, the post-stream inventory
+of what his audience knew about him. Ch. 4 and Ch. 22 have no such panel. Ch. 22's long
+interior stretch reads differently because Derek is thinking *during* an event, with a
+counterparty in the room and something being decided; the narrator never takes over.
+
+The tic the author flagged is the panel in miniature — *"which he could see clearly,
+which was the worst part, because seeing it had never once helped"*, *"He did not think
+of it as an intervention. He never did."*, *"the notes were a comfort object and he knew
+it"*, *"there was no sorting mechanism, there had never been a sorting mechanism."* Ten
+of these across three chapters. I had taken the sheet's *strong sense of self / self
+aware* and handed it to the narrator, where self-awareness costs nothing and pre-empts
+the reader. It belongs in his dialogue and his choices, where it costs him.
+
+**Second defect, downstream of the first:** nothing in the original three chapters cost
+him anything. Rosalind was warm, the class adored him, Anand was deflected in one line.
+With no counterparty applying pressure, exposition is the only thing left for a chapter
+to do.
+
+**Fixes, one per chapter:**
+- **Ch. 1 — Priya asks him to take a sixth prep.** *"I want you to take his fourth
+  period... because you'll say yes."* He says yes, and it costs him the only four hours
+  a week that are his. The compulsion to be useful is now dramatised in ninety seconds
+  of dialogue instead of explained in a paragraph, and Priya's exit line — *"You never
+  ask me for anything. That's the problem with you"* — states the wound from outside
+  him, which is the only place it can be stated without deflating it. Also sets up
+  Ch. 34: she is owed nothing by him and will still have to act against him.
+- **Ch. 2 — PERSIMMON_77 asks the question.** *"you've done this 11 years and i've never
+  heard you mention a single person in your life."* He cannot construct the dishonest
+  answer, so he tells ninety people the truth on a live microphone, and the chat's
+  affection in response is worse than the question. This gives the chapter an event,
+  puts the honesty compulsion under load in Part I rather than describing it, and plants
+  Part II's moral injury: the man who could not deflect *this* is going to spend four
+  months omitting a whole relationship. Persimmon asking is deliberate — the handle that
+  has never said anything about itself for six years is the one that notices.
+- **Ch. 3 — he loses his temper.** The theatre plan comes out of him unplanned, Anand
+  starts costing it, stops halfway through *"with no—"*, and Derek goes off. Then his
+  mother says one word and he apologises instantly and completely, and Anand forgives
+  him with total generosity, which reseals the table over the subject permanently.
+  Nobody asks about the theatre again for ninety minutes. This deploys the sheet's
+  signature turn (aggressive → click → immediate full apology) in Chapter 3 rather than
+  saving it, because the reader needs to like him for it before Part III makes him fail.
+  The driveway essay is gone: twenty lines of analysis replaced by eleven minutes, a
+  leaf blower, and one thing he cannot stop thinking about.
+
+**New:** the father comes out onto the step and asks about projectors. *"They used the
+cheap bearings. Forty years, now they're paying for it. Get the good one."* Then goes
+back inside. This is the only thing in the chapter Derek cannot handle, and it replaces
+the entire cut passage about warmth arriving through the same door as everything else —
+which was G8 explained rather than G8 happening. It also sets Ch. 50's payoff: the
+father relationship is never repaired, but it is not empty, and the novel has to have
+shown that or Ch. 50 is a man talking to a wall.
+
+**Cost:** all three chapters got shorter (1,336 / 1,279 / 1,101 against 1,477 / 1,299 /
+1,443), which makes H9's shortfall worse on paper. Ignoring that. Cutting exposition and
+then measuring the hole it left is how books get padded back to length with the exact
+material that was wrong in the first place. The answer to H9 stays what H9 said: more
+scenes, not longer ones.
+
+**Standing rule going forward — the panel test.** Before committing any chapter: find
+every passage where the narrator stops the scene to explain Derek. If the explanation is
+true and the scene doesn't demonstrate it, the scene is underbuilt and the fix is a
+counterparty who wants something, not a better paragraph.
