@@ -795,3 +795,53 @@ scenes, not longer ones.
 every passage where the narrator stops the scene to explain Derek. If the explanation is
 true and the scene doesn't demonstrate it, the scene is underbuilt and the fix is a
 counterparty who wants something, not a better paragraph.
+
+### H12 — Dynamic range: the actual diagnosis [2026-07-26] [settled]
+H11 fixed a real defect and did not fix the one the author was pointing at. Measured the
+five drafted chapters instead of guessing again:
+
+| | dialogue | avg prose ¶ | longest ¶ | prose ¶ ≥60w |
+|---|---|---|---|---|
+| ch1 (H11 version) | 55% | 27w | 83w | 2 |
+| ch2 (H11) | 48% | 31w | 95w | 3 |
+| ch3 (H11) | 60% | 23w | 79w | **1** |
+| ch4 | 46% | 37w | 115w | 7 |
+| ch22 | 31% | 45w | 121w | **11** |
+
+Ch. 22 has eleven prose paragraphs of sixty words or more. Ch. 3 had one. That is the
+gap, and it has nothing to do with the panels.
+
+**What makes Ch. 4 and 22 work is range** — a 121-word paragraph sinking into an ugly
+room with three plants, one of them dead, next to a two-word line. The heavy passages
+earn the sharp ones and the sharp ones earn the heavy. Cutting the explanatory panels in
+H11 removed the only long paragraphs those chapters had and replaced them with nothing,
+so all three collapsed onto one setting: efficient, fast, and with nowhere for a reader
+to land.
+
+**The distinction H11 missed, now the operative rule:**
+- A long paragraph that **explains Derek** is a panel. Cut it. (H11 stands.)
+- A long paragraph that **renders a room, a body, an object, a process** is weight, and
+  it is what prose is actually for. The granola-bar wrapper, the plant that is three
+  plants, the disc player carried out wrapped in a bath towel.
+
+Both are long. Only one is telling. I had been treating length itself as the fault.
+
+**Restored across Ch. 1–3, as rendering only:** the empty school at 7:20 with the
+lockers' vents like shut mouths; the classroom at eighty-four degrees with the faded
+butcher paper reading WHAT IS IT DOING TO YOU; Tomás's two pens set parallel an inch
+apart; the podcast room's moving blanket nailed over the closet door; the man in Fontana
+standing in his own driveway with his hands on his hips; the whole table of food in
+Ch. 3 down to the bowl of curd sweating at the edge; the fight held for four sentences
+on a serving spoon that doesn't move, a silent television, a sprinkler starting its arc.
+
+**Result:** avg prose paragraph 36/42/41w against 37 (ch4) and 45 (ch22); heavy
+paragraphs 7/5/5 against 7 and 11. Word counts 1,713 / 1,548 / 1,629 — up from 1,477 /
+1,299 / 1,443 in the original and 1,336 / 1,279 / 1,101 after H11.
+
+**Note on H9:** the count went up as a by-product of fixing a craft problem, which is the
+only legitimate way for it to go up. Length was never the disease. Range was.
+
+**Standing check, alongside the panel test:** any chapter under ~4 prose paragraphs of
+60+ words is running at one setting and should be looked at before commit. Ch. 3 will sit
+higher on dialogue than the others by nature — it is an argument at a dinner table — but
+it still needs its heavy pole.
