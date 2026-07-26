@@ -845,3 +845,53 @@ only legitimate way for it to go up. Length was never the disease. Range was.
 60+ words is running at one setting and should be looked at before commit. Ch. 3 will sit
 higher on dialogue than the others by nature — it is an argument at a dinner table — but
 it still needs its heavy pole.
+
+### H13 — "Particular" / "specific", and hollow aphorism [2026-07-26] [settled]
+Two more recurring constructions, both flagged by the author, both the same reflex:
+reaching for a knowing generalisation instead of the thing itself.
+
+**1. "Particular" / "specific" as an intensifier.** Five uses across five chapters —
+*the particular deadness of a school*, *that particular slamming clatter*, *the
+particular ease of a man who*, *the particular way houses do*, *the specific shame of*.
+The word announces precision and then supplies none. It is a promissory note the sentence
+never pays. In every case the fix was to write what was actually there:
+- *the particular deadness of a school in the last hour before it fills* → *the hallway
+  was empty in a way it would not be again until June*
+- *that particular slamming clatter* → *locker doors going off down the hall like a row
+  of shots*
+- *the particular ease of a man who has never once wondered whether he was welcome* →
+  *had never once in his life wondered whether he was welcome in a room*
+**Standing rule: zero uses as an intensifier.** The word is allowed only where it means
+*this one and not the others* (*nothing in particular*).
+
+**2. Hollow aphorism.** The closing flourish that generalises instead of observing.
+Cut: *which is the sound of nobody being burgled*; *which is not a smell so much as a
+small controlled violence*; *the table arranged itself around him the way water finds a
+slope*; *which looked exactly as bad as it sounds*; *He stopped himself, which was worse
+than not stopping*; *which on the first day was theft*; *opening the door was like
+opening an oven*; *and this was the part that did the damage*; *like weather in another
+county*.
+
+**The test that separates the good ones from the hollow ones:** a figure that makes the
+reader *see the thing* stays; a figure that makes the reader *admire the narrator* goes.
+*The whole table waited the way a room waits out a passing siren* survives — it puts you
+in the silence. *Which is the sound of nobody being burgled* does not — it steps out of
+the scene to be clever about car alarms in general, and the scene is Derek alone at 12:30
+in the morning, which is not improved by a joke about suburbia.
+
+Kept on the same test: *the way a country describes its army as a defence force*
+(Ch. 22 — a joke in Derek's own register, not a truth-claim), *the way a man who runs a
+diner knows the numbers of the chain across the street* (Ch. 4 — exact to his position),
+*the way a man can carry a table across a room* (Ch. 22 — the novel's thesis, and the
+whole passage is arithmetic about himself).
+
+**Also removed:** a duplicated coat image. The honest answer sat *by the door like a
+coat* in Ch. 2 and the thirty degrees came off her face *like a coat* in Ch. 22. Ch. 22
+keeps it.
+
+**Note on the pattern across G7, H10, H11, H12 and now H13.** Every tic caught so far has
+been a *construction* rather than a word — a shape I found once, liked, and stopped
+hearing. Word-level audits will not find these. The check that works is mechanical:
+grep the batch for the shape before commit, count it, and cap it. Added *particular*,
+*specific*, and *the way [X] does* to the pre-commit grep list alongside the negation
+flip and *of a man who*.
