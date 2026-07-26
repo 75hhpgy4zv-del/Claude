@@ -895,3 +895,54 @@ hearing. Word-level audits will not find these. The check that works is mechanic
 grep the batch for the shape before commit, count it, and cap it. Added *particular*,
 *specific*, and *the way [X] does* to the pre-commit grep list alongside the negation
 flip and *of a man who*.
+
+### H14 — Chapter endings: terminal vs. continuing [2026-07-26] [settled]
+**Author's note:** the endings feel abrupt and unnatural; Ch. 4 doesn't have the problem
+and Ch. 22's suddenness works because it's the end of something and lands as a punchline.
+
+Laid the five endings side by side and the fault is immediate. Ch. 1–3 all had the same
+shape: **Derek alone, one small physical gesture, curtain.**
+- *Six preps. He said it out loud, once... Then he got up to find something to eat that
+  wasn't cereal.*
+- *...read them in the dark kitchen with his thumb, and the day did not end so much as
+  stop.*
+- *The leaf blower stopped. In the quiet, Derek started the car.*
+
+Ch. 4 ends on *"that's the entire pitch. that's why i subbed."* Ch. 22 on *"I'll cook."*
+Both have a second person in the room and something still in motion.
+
+**The distinction: terminal vs. continuing.** Mine were buttons — a tidy final image
+announcing that the chapter is over. They close the reader out instead of handing them
+forward. Individually each one works; three consecutive with identical cadence reads as
+a mannerism, which is why the author felt it as *unnatural* rather than as a bad line.
+It is the same defect as every other tic caught this week: a shape I found, liked, and
+stopped hearing.
+
+Secondary cause of the abruptness: no air. Each ending arrived one beat after the last
+event, so the chapter stopped at the exact moment it finished its business.
+
+**Rewritten, each to a different shape:**
+- **Ch. 1 — ends on dialogue, and on a second yes.** The brother's call comes back at
+  8:22 and this time he answers, and agrees to Sunday before he's been told what time.
+  Two capitulations in one chapter, to two different people, on the same reflex. Hands
+  directly into Ch. 3 and gives Anand a voice before he has a scene.
+- **Ch. 2 — ends on the exchange with PERSIMMON_77.** He writes *I'd rather have answered
+  it than not*, deletes it because it's a bid — the same self-edit as Ch. 4's ending, now
+  planted earlier so Ch. 4 reads as a pattern rather than a one-off — and settles on *Ask
+  me anything you want, but maybe not on a Wednesday.* Reply lands before he gets the
+  light off. Ends on someone else's words and a standing arrangement.
+- **Ch. 3 — the father's line causes something.** He drives home the long way past a
+  shuttered second-run house whose marquee still reads CLOSED THANK YOU FOR 41 YEARS,
+  opens `THEATRE_v9.xlsx` for the first time since June, and swaps the lamp projector for
+  the laser one. *It broke the model by two hundred and ten thousand dollars.* Saves it as
+  v10. The one thing in the chapter he couldn't handle now has a consequence, and the
+  spreadsheet's version number — which F3/H7 uses to date the marriage — starts moving.
+
+**Standing rule:** no two consecutive chapters may end on the same shape, and no more
+than one in four ends with Derek alone performing a closing gesture. Preferred defaults
+are dialogue, an unfinished action, or someone else's words. Added to the pre-commit
+check alongside the panel test, the range check, and the five-shape grep list.
+
+**Also cut:** *the day did not end so much as stop* — a hollow aphorism that survived
+H13 because I was grepping for the shapes I already knew about, which is the limitation
+of a grep list and the reason the endings still need reading aloud.
