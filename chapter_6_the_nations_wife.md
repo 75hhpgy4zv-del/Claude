@@ -62,7 +62,7 @@ After ten minutes, Yuna spoke.
 
 "Should I?"
 
-Something shifted in Yuna's face. A fracture — tiny, barely visible, but there. The fracture of a woman who'd spent a decade being recognized by everyone and known by no one, hearing the most liberating sentence in the Korean language: *I don't know you.*
+Yuna's face did something small. A crack. The look of a woman who'd been recognized by everyone for ten years and known by nobody, hearing the most dangerous sentence available: *I don't know you.*
 
 "No," Yuna said. "You shouldn't."
 
@@ -144,7 +144,7 @@ Yuna looked at her. The actress's eyes — famous eyes, eyes that had launched a
 
 "I haven't been touched in three years," she said. "Not really. Not by anyone who meant it."
 
-Camille crossed the room. Slowly. Giving Yuna time to retreat, to reconsider, to rebuild the wall. The actress didn't move. She stood perfectly still, her hands at her sides, her chin raised, her body arranged in the posture of a woman who'd spent her career being photographed and had never quite learned how to stand when nobody was watching.
+Camille crossed the room. Slow. Yuna didn't move. She stood with her hands at her sides, chin raised — the posture of a woman who'd spent her career being photographed and had never quite figured out what to do with her body when nobody was watching.
 
 Camille took off the bucket hat. Yuna's hair fell — long, black, shining, the kind of hair that had its own brand partnership. Camille set the hat aside. Then the trench coat — sliding it off Yuna's shoulders, folding it, placing it on the stool. Underneath: a simple white t-shirt, jeans, sneakers. No jewelry. No makeup. She'd come to the bar as close to invisible as a woman that famous could get.
 
@@ -158,7 +158,7 @@ Just that. Just *oh*. The sound of a nerve ending firing for the first time in t
 
 Camille kissed her.
 
-Not like the men on Yuna's drama sets who kissed on cue, whose mouths were stage props activated by a director's *action*. Not like Dohan, who'd kissed her at their wedding with the technical precision of an actor hitting a mark and hadn't kissed her since. Camille kissed her the way fire moved through a building — consuming, spreading, finding every room.
+Not like the men on Yuna's drama sets who kissed on cue, whose mouths were stage props activated by a director's *action*. Not like Dohan, who'd kissed her at their wedding with the technical precision of an actor hitting a mark and hadn't kissed her since. Camille kissed her like she meant it. That was the whole trick. That was everything.
 
 Yuna made a sound against her mouth that was so raw, so unscripted, so far from anything she'd ever produced on set, that it scared her. She tried to pull back — the reflex, the actress's instinct to reset, to reshoot, to find a take that was more controlled—
 
@@ -174,11 +174,11 @@ Camille held her. Not forcefully. Firmly. The way you hold someone who's falling
 
 "That's the point."
 
-Yuna kissed her back. And the dam broke — not all at once, not like Jihye's dramatic flood or Minji's tectonic collapse. It broke in stages, in waves, in the slow progressive failure of a structure that had been under pressure for a decade. Each kiss dissolved another layer of the performance until what was left was just a woman, thirty-one years old, who hadn't been held in three years and was drowning in the relief of it.
+Yuna kissed her back. Badly at first — the muscle memory was gone, three years of nothing had rusted the mechanics — and then less badly, and then well, and then hungrily, and then she was grabbing at Camille's tank top and pulling and making a sound in her throat that was so far from any script she'd ever read that it scared her and she did it again anyway.
 
 Camille undressed her. The t-shirt — over the head, casual, the opposite of the stylists who dressed her for events with pins and tape and six hands. The jeans — unbuttoned, unzipped, stepped out of. The underwear was expensive — La Perla, force of habit — but plain. Black. The underwear of a woman who bought beautiful things because she could and wore them for nobody.
 
-Naked. Yuna was stunning — the body of a woman who'd been professionally maintained for a decade. Slim, toned, proportioned with the cruel precision of a genetics lottery that she'd won. Full breasts, narrow waist, legs that looked engineered for magazine spreads. She was flawless in the way that artifacts in a museum were flawless — preserved, protected, untouched.
+Naked. Yuna looked like money. The Pilates body, the yoga arms, the skin that cost more per square inch in serums and treatments than most people's rent. Full breasts, narrow waist, the kind of legs that got their own behind-the-scenes Instagram reels. She looked expensive and maintained and absolutely untouched, like a showroom car with six miles on it.
 
 "When's the last time someone looked at you?" Camille asked.
 
@@ -188,7 +188,7 @@ Naked. Yuna was stunning — the body of a woman who'd been professionally maint
 
 Yuna's lower lip trembled. "I don't know."
 
-Camille pressed her back onto the futon. Kissed her neck — the spot beneath her ear where the skin was thin and the pulse hammered. Yuna arched into it, gasping, her body remembering sensations her mind had filed under *discontinued*.
+Camille pressed her back onto the futon. Kissed her neck — below the ear, where the skin was thin — and Yuna arched so hard her spine cracked.
 
 "You're — ♡ — oh god — you're so—"
 
@@ -200,7 +200,7 @@ Camille pressed her back onto the futon. Kissed her neck — the spot beneath he
 
 "But the best thing — ♡♡♡ — the best thing I've felt in — oh god — ♡♡♡♡♡ — in *years* — ♡♡♡♡♡♡♡!!!"
 
-Camille moved down her body. Kissing. Mapping. The collarbones, the breasts — both nipples, one at a time, tongue circling, sucking gently — the flat plane of her stomach, the hipbones that jutted out from years of camera-ready weight management. Every kiss landed on skin that hadn't been kissed in three years, and every kiss made Yuna's body jolt like she was being resuscitated.
+Camille moved down. Collarbones. Breasts — tongue circling one nipple, then the other, sucking until Yuna whimpered. The flat stomach. The hipbones. Each spot she touched jumped like she'd hit it with a defibrillator.
 
 Between her legs. Camille settled there with the patience that had become her signature, and she pressed her mouth to Yuna's pussy, and Kang Yuna — actress, model, brand ambassador, nation's wife — screamed.
 
@@ -212,11 +212,11 @@ SCHLCK! SCHLCK! SCHLCK!
 
 "Oh — oh my GOD — ♡♡♡♡♡ — I forgot — I FORGOT what this — ♡♡♡♡♡♡♡!!!"
 
-Camille's tongue worked her with devastating precision. Clit — direct, firm pressure, circling. Entrance — tongue pushing inside, tasting her, finding the slickness that had been building since the first kiss. Back to the clit. Sucking it between her lips. Flicking the tip.
+Camille's tongue found the clit and pressed — firm, direct, circling. Entrance — tongue pushing inside, tasting her. Back to the clit. Sucking it between her lips. Flicking.
 
 Yuna came in under two minutes.
 
-The orgasm hit her like a truck. Her back arched off the futon, her hands clawing the sheets, her legs clamping around Camille's head, her voice cracking on a note so high it was almost ultrasonic. She squirted — a clear gush that surprised her so badly she yelped — and her whole body convulsed in waves that lasted thirty seconds.
+It hit her sideways. Her back arched off the futon, her legs clamped around Camille's head, and she squirted — surprised herself so badly she yelped — and then she was convulsing and laughing and crying all at once, thirty seconds of her body running a program it had forgotten it had.
 
 "I — ♡♡♡ — oh my god — that was — I haven't — oh my GOD — ♡♡♡♡♡♡♡!!!"
 
@@ -240,7 +240,7 @@ Then the professional assessment collapsed and the woman underneath said:
 
 "I know because his wife is in my apartment at midnight and she hasn't been fucked in three years. A man who's five inches and good with it doesn't lose a woman like you. A man who's five inches and *doesn't try* does."
 
-Yuna's eyes filled. Not because of the cock — because of *a woman like you*. Four words that nobody in her scripted, managed, choreographed life had ever said to her without a camera running.
+Yuna's eyes filled. Not at the cock. At *a woman like you*. Nobody had said that to her without a camera running.
 
 "Fuck me," she said. Her voice was quiet and clear and nothing like any line she'd ever delivered. "Please. I need you to fuck me."
 
@@ -252,11 +252,7 @@ Camille knelt between her legs. Pressed the head against her entrance. Yuna was 
 
 "I'm — ♡♡♡ — it's so MUCH — ♡♡♡♡♡ — Dohan was never — he never felt like — ♡♡♡♡♡♡♡!!!"
 
-Inch by inch. Camille watched Yuna's face — the actress training fighting the woman underneath for control of the expression. The actress wanted to compose the face, to make it beautiful in its pleasure, to perform the ecstasy the way she'd performed everything else. The woman underneath just wanted to feel.
-
-The woman won.
-
-Yuna's face crumpled. Not into ugliness — into honesty. Her mouth fell open, slack and graceless. Her eyes squeezed shut and tears leaked from the corners. Her brow furrowed and her chin trembled and she looked nothing like the magazine covers and everything like a person.
+Inch by inch. Camille watched Yuna's face fight itself — the actress trying to make the pleasure look good, compose the shot, find the angle. And then the actress lost. Yuna's mouth went slack. Her eyes squeezed shut and tears leaked out. Her chin trembled. She looked terrible. She looked real.
 
 Camille bottomed out.
 
@@ -294,7 +290,7 @@ PLAP! PLAP! PLAP! PLAP!
 
 "He DOES — ♡♡♡ — he carries me to events and puts me DOWN — ♡♡♡♡♡ — and nobody KNOWS — they all think he LOVES me — ♡♡♡♡♡♡♡!!!"
 
-The loop. Camille felt it — different from the others, powered not by cultural submission or intellectual demolition but by *rage*. Pure, compressed, three-year-old rage that had been smiling for cameras while it rotted.
+The loop caught. Camille felt it click — different fuel than the others. Yuna's engine ran on *rage*. Three years of it, smiling for cameras while it composted.
 
 "What would they say?" Camille asked. "All those fans. All those reporters. If they could see their Nation's Wife right now?"
 
@@ -306,7 +302,7 @@ The loop. Camille felt it — different from the others, powered not by cultural
 
 PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
 
-Camille came. The rage — Yuna's rage, bottled for three years, finally finding its outlet — was intoxicating, and she couldn't hold it. She buried herself to the hilt and unloaded, thick ropes flooding Yuna's starved cunt, filling her until it overflowed, and Yuna came with her — a full-body convulsion, squirting around the shaft, screaming something in Korean that Camille didn't understand but felt in her spine.
+Camille couldn't hold it. The rage coming off Yuna in waves — she buried herself to the hilt and unloaded, flooding her, and Yuna came with her, squirting around the shaft, screaming something in Korean that Camille didn't catch and didn't need to.
 
 SPURT! SPURT! SPURT! SPURT!
 
@@ -334,34 +330,6 @@ Not a pretty laugh. Not the tinkling, camera-ready laugh she deployed at press j
 
 Camille watched her. Watched the performance dissolve, layer by layer, until what was left was a woman who hadn't laughed for real in longer than she could remember.
 
-"Camille?"
-
-"Mm."
-
-"Where's my phone?"
-
-"Your coat pocket. Why?"
-
-Yuna sat up. Cum dripped down her inner thighs. She reached for the trench coat on the stool, fished out her phone, and opened the camera.
-
-"What are you doing?" Camille asked.
-
-"Something I should have done three years ago."
-
-Yuna held the phone up. Reversed the camera. Framed herself — naked from the waist up, hair destroyed, lips swollen, hickeys blooming on her neck and collarbones. Behind her, visible in the frame: Camille, lying back on the futon, her cock resting against her thigh, slick and spent, unmistakably enormous, unmistakably *not Dohan's*.
-
-She took the photo.
-
-"Yuna—"
-
-"He's at a press conference right now." Yuna's voice was steady, her eyes bright and clear and absolutely certain. "For his new drama. *'The Good Doctor.'* He plays a surgeon who saves orphans." She typed. "His manager is sitting next to him making sure he mentions me in every answer. *'My wife is so supportive. My wife keeps me grounded. My wife is my inspiration.'*"
-
-She attached the photo.
-
-"This is what his inspiration looks like."
-
-"Are you sure?"
-
 Yuna lay back on the futon, her head in Camille's lap, looking up at the French woman's face. Cum was leaking from her, cooling on her thighs, and she didn't care. She didn't care about anything except the warmth of Camille's skin and the weight of the cock resting against her temple and the extraordinary sensation of being a person instead of a product.
 
 "You know what Dohan's fans call me?" she said. "Yuna-goddess. Yuna-unnie. The Woman Who Has Everything." She traced a finger along Camille's thigh. "I had nothing. I had a contract and a costume and a script and I performed it perfectly for ten years and I had *nothing*."
@@ -369,6 +337,38 @@ Yuna lay back on the futon, her head in Camille's lap, looking up at the French 
 "And now?"
 
 "Now I have cum dripping out of me in a studio apartment and I've never felt richer."
+
+Yuna reached for her trench coat on the stool. Fished out her phone.
+
+"What are you doing?" Camille asked.
+
+Yuna didn't answer. She opened the camera, reversed it, and took a selfie — just her face. Flushed. Eyes bright. Hair stuck to her forehead. The biggest, dumbest smile she'd worn in years. Behind her: nothing identifiable. Just a wall. Just a woman who looked happy.
+
+She opened her messages. **DOHAN ♡.**
+
+Typed: *"Made a new friend tonight! Her apartment is tiny and there's no AC but I'm having the BEST time 😊"*
+
+Sent.
+
+Camille watched her with amusement. "You're texting your husband."
+
+"I'm testing him."
+
+Three dots. Dohan typing.
+
+*"That's great babe. Don't forget Manager Kim needs the blazer answer by morning."*
+
+He hadn't looked at the photo. Or he'd looked and seen what he always saw — his wife, smiling, fine, handled — and moved immediately to the blazer. The photo was sweaty, glowing, post-orgasmic in a way that anyone who'd ever had sex would recognize instantly. And Kang Dohan had looked at it and seen a scheduling opportunity.
+
+Something shifted in Yuna's face. Not anger. Something hotter.
+
+"He didn't even ask where I was," she said quietly. "He didn't ask who the friend was. He didn't notice I look like I just—" She gestured at herself — naked, destroyed, cum on her thighs. "He saw this face and thought about the BLAZER."
+
+"Does that bother you?"
+
+"It makes me want to choke on your cock."
+
+She rolled toward Camille and took the half-hard shaft in her hand and kissed the head — tender, furious, grateful — and Camille's hand settled in her hair, and Yuna sucked it between her lips, and the apartment was quiet except for the wet sounds of a woman who'd just discovered that her husband's blindness was the most potent aphrodisiac she'd ever encountered.
 
 Her phone rang.
 
@@ -490,7 +490,7 @@ Camille curled her fingers. Found the spot. Yuna's hips bucked off the futon and
 
 "On the table — *ah ♡* — it really — *ah ♡♡♡* — it really hurt, Dohan—"
 
-Camille leaned into the phone's range again. This time she didn't whisper. She spoke in a low, clear voice — conversational, unhurried, like she was commenting on the weather.
+Camille leaned into the phone's range. She spoke in a low, clear voice — conversational, unhurried, like she was commenting on the weather.
 
 "Spread wider for me. I want to see how wet the Nation's Wife gets."
 
@@ -498,85 +498,173 @@ Dead silence on the line.
 
 *"...what did that voice say?"*
 
-"It's the DRAMA, Dohan — the French drama — the subtitles are—"
+"It's the drama, Dohan — the French drama — the subtitles are—"
 
-*"Yuna, that voice said 'Nation's Wife.' That's what the tabloids call you. Why would a French drama say—"*
+*"That voice said 'Nation's Wife.' That's what the tabloids call you. Why would a French—"*
 
-"It's a COINCIDENCE — *ah ♡♡♡ ♡♡♡* — Dohan, I have to go—"
+"It's a COINCIDENCE. French dramas are very — *ah ♡* — culturally aware. They watch a lot of Korean content in France. Hallyu is huge there."
 
-"She's so tight," Camille said, clearly, into the phone's range. "Three years without being fucked. It's criminal. You should feel how she grips me."
+*"...really?"*
 
-Total silence.
+"HUGE. They love it. My friend was just telling me — *ngh ♡* — about how popular Korean dramas are in Paris—"
 
-*"...who is that?"*
+Camille slid her fingers out. Repositioned behind Yuna. The actress felt the head of the cock press against her entrance and her eyes went ENORMOUS — a look of absolute, thrilled terror — and she clamped the phone tighter against her ear.
 
-"Nobody — it's—"
+*"What friend? You keep mentioning this friend—"*
 
-*"Yuna. WHO IS THAT. What is happening right now?"*
+"The philosophy professor — *ah* — Camille — she's very — VERY — *ah ♡♡♡!!!*"
 
-Camille pulled her fingers out and pressed them to Yuna's lips. The actress opened her mouth — reflex, instinct, the new programming overriding the old — and sucked her own cum off Camille's fingers, and the SCHLURP was loud and wet and absolutely, catastrophically audible.
+Camille pushed inside her. Slow and merciless. Inch by inch, filling Yuna while her husband talked about blazer options, and Yuna's mouth opened in a silent scream, her free hand slapping over her lips, her eyes rolling back.
 
-*"ARE YOU — IS SOMEONE — YUNA, WHAT ARE YOU—"*
+*"Yuna? Are you there?"*
 
-Camille took the phone. She held it casually, the way you'd hold a phone while ordering coffee, and she spoke with the same easy warmth that had unraveled five Korean women in the span of a month.
+"Mm-hmm!" The sound was nasal, strangled, pushed through the tight cage of her fingers. "I'm here — just — *mmf* — the mochi went down wrong—"
 
-"Hi, Dohan."
+*"You're still eating the mochi?"*
 
-*"WHO THE FUCK IS THIS?!"*
+"It's a lot — *mmf ♡* — of mochi — she made a LOT—"
 
-"I'm the French drama. The very explicit one." Camille's free hand was on Yuna's thigh, stroking idly, and the actress was trembling — not with fear. With the suppressed, hysterical, catastrophic laughter of a woman watching her prison burn from a safe distance. "Your wife is here. She's safe. She's also extremely naked and covered in my cum, but she's safe."
+PLAP.
 
-*"I'M CALLING THE POLICE—"*
+The first thrust. Yuna bit down on her own hand so hard she tasted copper.
 
-"She came here on her own. Drank four whiskeys. Told me you haven't touched her in three years. And then she asked me to make her feel something, which I did, several times, in ways you apparently never bothered with."
+PLAP. PLAP.
 
-Yuna was shaking with silent laughter, tears streaming down her face, her hand clamped over her mouth.
+*"What is that sound? That... thumping?"*
 
-*"Put my wife on the phone. RIGHT NOW."*
+"My friend is — *ah ♡* — rearranging furniture."
 
-"She's a little busy. My cock is resting on her face. She seems comfortable. Would you like me to move it?"
+*"At midnight?"*
 
-*"YOUR — WHAT — I'M—"*
+"She's FRENCH, Dohan. Europeans keep — *ah ♡♡♡* — different hours. Everyone knows that."
 
-"Dohan." Camille's voice dropped — not threatening, almost gentle. The knife wrapped in silk. "Your wife is beautiful. She's brilliant. She's been loyal to a brand for ten years and the brand never once asked if she was happy. I asked. The answer was no."
+PLAP! PLAP! PLAP!
 
-Silence.
+The rhythm was unmistakable — a wet, meaty percussion that the phone's microphone picked up with devastating clarity. Camille's hips driving into Yuna, the actress's body jolting forward with each impact, her breath punching out in staccato bursts she was desperately trying to muffle.
 
-"I made it yes."
+*"That doesn't sound like furniture, Yuna."*
 
-More silence.
+"It's — *ah* — it's a very heavy — *ah ♡♡♡* — dresser — she's pushing it — *ngh* — across the hardwood—"
 
-"Now here's what's going to happen. I'm going to hang up this phone. And then I'm going to fuck your wife again — in a position you've never tried, in a hole you've never visited, until she screams a name that isn't yours. And tomorrow, she's going to your Cartier brunch in the beige blazer Manager Kim picked out, and she's going to sit across from you with my cum still inside her, and she's going to smile for the cameras, and you are going to smile back, and the Nation's Couple will look perfect. As always."
+"Deeper?" Camille murmured, just inside the microphone's range. Just ambiguous enough.
 
-*"You're... you're insane—"*
+*"...what?"*
 
-"I'm French. Same thing."
+"THE DRAMA — ♡ — the French drama — they said — *ah ♡♡♡* — a line about — deeper meaning — very philosophical—"
 
-She hung up. Tossed the phone onto the futon. Yuna finally released the laughter she'd been holding — a howl, a shriek, a cackle so wild and free and unscripted that it rattled the apartment walls. She laughed until she couldn't breathe, then breathed and laughed more, rolling on the futon, cum smearing everywhere, the performance of the last decade dissolving in real time.
+PLAP! PLAP! PLAP! PLAP!
 
-"His VOICE — ♡♡♡ — when you said your cock was on my face — ♡♡♡♡♡ — he sounded like someone cancelled his drama — ♡♡♡♡♡♡♡!!!"
+*"Yuna, those sounds are very—"*
 
-"Mochi," Camille said.
+"RHYTHMIC — yes — French furniture is heavy — she has to ROCK it back and forth to — *ah ♡♡♡♡♡* — to get it into position—"
 
-"I PANICKED — ♡♡♡♡♡♡♡!!!"
+Camille shifted the angle. Hit the spot. Yuna's entire body jackknifed and a moan ripped through her clenched teeth — musical, desperate, absolutely beyond disguise.
 
-"You told the nation's husband you were eating mochi while deep-throating a twelve-inch cock."
+"AHHH — Da— AIGO!" She caught it. Barely. The *Da* hanging in the air for one catastrophic millisecond before she wrenched it sideways into the Korean exclamation. "Aigoo — my foot — the dresser rolled onto my FOOT—"
+
+*"The same foot you stubbed on the table?"*
+
+"I'm very — *ngh ♡* — CLUMSY tonight — Dohan-ah—"
+
+*"Are you with someone?"*
+
+The question landed like a slap. Flat. Direct. The first real thing Dohan had said in three years.
+
+Camille didn't stop. Slow, deep strokes that made Yuna's vision blur, her pussy clenching, her thighs shaking. The phone trembled against her ear.
+
+"I told you." Yuna's voice was a masterwork — a decade of acting compressed into a single line read. Steady enough to be sincere, breathy enough to sound tired. The perfect performance of a woman who was merely exhausted from a long day and definitely, absolutely, certainly not getting fucked. "I'm at my friend's apartment. The French professor. We had mochi and we're watching a drama and she's rearranging furniture and I stubbed my toe TWICE because her apartment is small."
+
+Beat.
+
+PLAP.
+
+Another beat.
+
+*"...that's a lot of things happening at once."*
+
+"It's a small apartment, Dohan-ah. Everything is at once."
+
+PLAP! PLAP!
+
+Long silence on the line. Camille could hear Dohan breathing — the slow, measured breath of a man running calculations he didn't want to finish. Because finishing them meant a conclusion that was impossible. Kang Yuna — his wife, the nation's wife, the woman whose morality clause had a morality clause — being fucked by a stranger while talking to him about the Cartier brunch?
+
+Impossible.
+
+Things like that didn't happen to Kang Dohan.
+
+*"...you sound strange tonight,"* he said finally.
+
+"I'm tired. It's been a long day."
+
+Camille thrust deep and ground against her cervix. Yuna's jaw locked. Her eyes rolled. She pressed the phone harder against her ear and the sound that escaped was something between a whimper and a hiccup.
+
+"Mmhk — ♡ —"
+
+*"...are you sure you're okay?"*
+
+"I'm FINE — I just — *mmf* — yawning. Very tired. Long day."
+
+*"Okay."* A pause. *"Wear the beige blazer tomorrow. Manager Kim is sending options."*
+
+"I will ♡."
+
+*"And Yuna?"*
+
+"Mm?"
+
+Another pause. She could feel him standing at the edge of something — a question, an accusation, a hairline crack in the choreography that would bring the whole stage down if he pressed on it. He was right there. One sentence away from the truth.
+
+*"...never mind. Get some rest. Goodnight."*
+
+"Goodnight — *mmf* — yeobo."
+
+He hung up.
+
+Yuna set the phone face-down on the futon. For three full seconds she lay there perfectly still, Camille buried inside her to the hilt, the most successful performance of her career settling into the silence.
+
+Then she screamed into the pillow and started laughing.
+
+"MOCHI — ♡♡♡♡♡♡♡!!!"
+
+"Rearranging furniture," Camille said, still inside her, grinning.
+
+"EUROPEANS KEEP DIFFERENT HOURS — ♡♡♡♡♡♡♡!!!"
+
+"The dresser rolled on your foot."
+
+"THE SAME FOOT I STUBBED ON THE TABLE — ♡♡♡♡♡ — HE EVEN CAUGHT THAT — ♡♡♡♡♡♡♡!!!"
+
+"You almost said Daddy."
+
+"I ALMOST — ♡♡♡ — SAID DADDY — ♡♡♡♡♡ — TO MY HUSBAND — and I turned it into AIGO — ♡♡♡♡♡♡♡!!!"
+
+"Aigoo. The actress saves it."
 
 "I'M AN ACTRESS — ♡♡♡ — improv is part of the TRAINING — ♡♡♡♡♡♡♡!!!"
 
-They were both laughing now — Camille's rare, genuine laugh and Yuna's new unscripted one — and the phone was buzzing on the futon and they ignored it. Dohan calling. Manager Kim calling. The brand machine activating its emergency protocols.
+They were both laughing — Camille's rare, genuine laugh and Yuna's new unscripted one — tangled on the futon, still connected. The phone was dark. Silent. Because Dohan had accepted the mochi and the furniture and the French drama and the stubbed toe and the dresser on the foot, because accepting them was the only move available to a man whose entire existence was a controlled performance.
 
-All of it very far away.
+The alternative was unthinkable.
 
-"Now," Camille said, and the laughter drained from her voice, replaced by something low and hungry and final. "I told your husband I was going to fuck you in a position he's never tried, in a hole he's never visited."
+Which made it perfect.
 
-"You did."
+"He'll replay that call," Yuna said, catching her breath. "Tonight. In the penthouse. He'll lie in the second bedroom and run through it piece by piece and he'll KNOW something was wrong. He'll hear the sounds. He'll remember the thumping. He'll think about the voice that said *Nation's Wife*. And he'll tell himself it was furniture. Because he HAS to."
 
-"I don't make promises I don't keep."
+"Because the Nation's Husband can't admit—"
 
-Yuna's laughter died. Her pupils dilated. Her legs fell open.
+"He CAN'T — ♡♡♡ — it's IMPOSSIBLE — things like that don't HAPPEN to Kang Dohan — ♡♡♡♡♡♡♡!!!" She wiped her eyes. "And the beautiful thing — the really BEAUTIFUL thing — is that tomorrow I sit across from him at the Cartier brunch in the beige blazer with your cum still inside me, and he looks at me, and he ALMOST asks. And he doesn't. Because asking means knowing. And knowing means the brand is a lie."
 
-"Don't keep him waiting," she whispered.
+She grinned. The feral one. The real one.
+
+"And the brand is NEVER a lie."
+
+Camille pulled out. Slowly. Yuna shivered at the loss.
+
+"Now," Camille said, and the laughter drained from her voice, replaced by something low and hungry. "I believe there are things your husband has never tried."
+
+Yuna's laughter died. Her pupils dilated. She rolled onto her stomach, presenting herself.
+
+"There are things my husband has never even *imagined*."
 
 ***
 
@@ -602,7 +690,7 @@ Camille pushed in. Slow. The head breached the tight ring of muscle and Yuna's f
 
 "I AM breathing — ♡♡♡ — it's so — I've NEVER — ♡♡♡♡♡ — oh my GOD Daddy — ♡♡♡♡♡♡♡!!!"
 
-Deeper. Inch by devastating inch. Yuna's body opened with the slow, agonizing resistance of a woman experiencing a completely new sensation at thirty-one — something that should have been offered to her years ago, something her husband had never even considered, because considering it would have required considering *her*, and Dohan had stopped doing that the moment the wedding photos were published.
+Deeper. Yuna's body resisted and then didn't — the muscle figuring out what the brain already wanted. She was thirty-one and this was new and it shouldn't have been. Dohan had never considered it. Considering it would have meant considering *her*.
 
 "ALL of it — ♡♡♡ — give me ALL of it — I want EVERY INCH that stupid, useless, five-inch, brand-obsessed — ♡♡♡♡♡♡♡!!!"
 
@@ -620,23 +708,47 @@ PLAP! PLAP! PLAP! PLAP! PLAP!
 
 PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
 
-The loop spun up — rage and pleasure and vengeance and liberation spiraling together, and Yuna's voice filled the apartment with the most honest performance of her career.
+The loop caught and held — rage into pleasure into vengeance into something that felt like freedom if freedom fucked back.
 
 "I'M DADDY'S KOREAN TROPHY — ♡♡♡♡♡♡♡! DADDY'S BLEACHED KOREAN ACTRESS — ♡♡♡♡♡♡♡♡♡! THREE MILLION WOMEN WANT MY HUSBAND AND DADDY HAS HIS COCK IN MY ASS — ♡♡♡♡♡♡♡♡♡♡♡♡!!!"
 
 SPURT! SPURT! SPURT! SPURT!
 
-Camille came in Yuna's ass. The actress came with her — untouched, her pussy gushing onto the futon, her body convulsing, her voice cracking on a note that belonged in no script and no drama and no carefully managed public appearance. A note that belonged entirely to her.
+Camille came in Yuna's ass. Yuna came with her — untouched, pussy gushing onto the futon, her voice cracking on a note she'd never hit in any drama, any press event, any approved public appearance. A sound that was entirely hers.
 
 "♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡!!!"
 
-They collapsed. Cum dripped from Yuna. The phone was still buzzing — Dohan, Manager Kim, maybe the Cartier rep, the machinery of her cage clanking along without her.
+They collapsed. Cum dripped from Yuna's ass, pooling on the futon beneath her. The phone screen glowed on the floor — Manager Kim sending blazer options, her stylist confirming the 11 AM call time, the machinery of her cage clanking along without noticing she'd left it.
 
-"I just cucked the nation's husband," Yuna said to the ceiling.
+"I just cucked the nation's husband," Yuna said to the ceiling. "In the ass."
 
 "How does it feel?"
 
-"Like the best scene I've ever been in. And I wasn't even acting."
+"Like the best scene I've ever been in. And I wasn't acting."
+
+Yuna reached for the phone. Opened the camera again. This time she angled it at her neck and shoulder — the hickey was livid now, purple-black against her collarbone, the size of a thumbprint, absolutely unmistakable to anyone who'd ever been kissed hard. She cropped carefully. Just the mark, just the skin, just enough shoulder to identify her.
+
+Sent it to Dohan.
+
+*"I think I'm allergic to something in the mochi 😅 Look at this! So itchy"*
+
+She lay back on the futon, cum leaking from both holes, and waited.
+
+Three dots.
+
+*"Take a Benadryl. I'll have Manager Kim send allergy cream. We can't have a rash at the brunch. The photographer is doing close-ups."*
+
+Yuna stared at the ceiling. A hickey. A sex bruise so obvious it was almost self-captioning. And Kang Dohan — the Nation's Husband, Korea's most desired man, three million votes — had looked at it and seen a *scheduling conflict*.
+
+"He told me to take Benadryl," she said.
+
+"For the hickey."
+
+"For the *rash*. From the *mochi*." She put the phone face-down on the futon. "Three million women voted for this man."
+
+The arousal was different now. Darker, slower, buzzing in her pelvis like a second heartbeat. Not rage — something beyond rage. The obscene comedy of a man choosing blindness so completely that his blindness became permission. Every time Dohan chose not to see, the leash got longer. Every bland text was another inch of rope.
+
+She looked at Camille. "I'm going to send him a photo from this futon every single time I'm here. And he's going to tell me to put ice on it. And I'm going to come SO hard."
 
 A knock on the door. Soft. Soyeon's voice:
 
@@ -644,7 +756,7 @@ A knock on the door. Soft. Soyeon's voice:
 
 "Come in," Camille called.
 
-Soyeon opened the door. She took in the scene — Yuna on the futon, naked, cum leaking from her ass, mascara destroyed, the phone face-down on the floor vibrating with increasingly desperate messages from Korea's most beloved actor. Soyeon's expression moved through surprise, recognition, and something that looked very much like satisfaction.
+Soyeon opened the door. She took in the scene — Yuna on the futon, naked, cum leaking from her ass, mascara destroyed, phone face-down on the floor with a notification about allergy cream. Soyeon's expression moved through surprise, recognition, and something that looked very much like satisfaction.
 
 "Kang Yuna," Soyeon said.
 
@@ -676,7 +788,7 @@ Yuna looked at her. Then at Camille. The cock was hardening again — the French
 
 "It was everything."
 
-Soyeon kissed her. Gently — a question, not a demand. Yuna went rigid for one second — the last reflex of the performance, the final flicker of *what would the tabloids say* — and then she kissed back, and her hand came up to Soyeon's jaw, and the kiss deepened, and Camille watched from the wall as two women who'd been trained to apologize for existing discovered that they tasted like permission.
+Soyeon kissed her. Soft. Yuna went rigid for one second — one last *what would the tabloids say* — and then kissed back, and her hand came up to Soyeon's jaw, and it deepened into something neither of them had vocabulary for.
 
 "Mmm ♡..." Yuna breathed against Soyeon's mouth. "You taste like soju."
 
@@ -772,7 +884,7 @@ Camille came inside her — the image of Dohan at his press conference, talking 
 
 "♡♡♡♡♡♡♡♡♡♡♡♡!!!"
 
-Yuna collapsed against Soyeon. The bartender held her — arms wrapped around the actress's trembling body, chin resting on her shoulder, the intimate geometry of two women who'd been broken by the same person and were holding each other up.
+Yuna collapsed against Soyeon. The bartender caught her — arms around her, chin on her shoulder, holding her the way you hold someone who just ran through a wall and hasn't looked back yet.
 
 "Welcome to Thursday," Soyeon said quietly.
 
@@ -788,7 +900,7 @@ Yuna laughed. Weak, exhausted, radiant.
 
 They laughed together. Camille watched them — the nation's wife and the bartender, tangled on a futon, cum-soaked, conspiring — and felt the system click into a new gear. Five women now. Five different cages, five different keys, five different sounds when the lock turned.
 
-And somewhere in Gangnam, Korea's most desired man was staring at his phone in an empty penthouse apartment, watching a video of his wife calling someone else *Daddy*, and the press conference wasn't going well at all.
+And somewhere in Gangnam, Korea's most desired man was lying in the second bedroom of a penthouse apartment, replaying a phone call in his head — the mochi, the furniture, the French drama, the stubbed toe, the dresser on the foot — and telling himself it all made sense. Almost believing it. Almost.
 
 Yuna turned her head to look at Camille. "Can I come back?"
 
