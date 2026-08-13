@@ -384,7 +384,7 @@ But something shifted in Yuna's face. Not panic — something else. The actress 
 
 "Why?"
 
-"Because he'll ask me how I am. And I'll say *fine*. And I want to say *fine* while your cock is touching my face. I want to hear him talk about the brand meeting while I'm lying in a stranger's cum. I want to perform for him one last time."
+"Because he'll ask me how I am. And I'll say *fine*. And I want to say *fine* while your cock is touching my face. I want to hear him talk about the brand meeting while I'm covered in white cum. I want to perform for him one last time."
 
 She swiped to answer before Camille could respond.
 
@@ -704,7 +704,7 @@ PLAP! PLAP! PLAP! PLAP! PLAP!
 
 "What would your fans say?" Camille growled, gripping Yuna's hips. "Yuna-goddess? Getting her ass destroyed in Mapo-gu?"
 
-"THEY'D — ♡♡♡ — THEY'D SAY I FINALLY — ♡♡♡♡♡ — FOUND A COCK WORTH LEAVING THE — ♡♡♡♡♡♡♡ — NATION'S HUSBAND FOR — ♡♡♡♡♡♡♡♡♡!!!"
+"THEY'D — ♡♡♡ — THEY'D SAY I FINALLY — ♡♡♡♡♡ — FOUND A BIG WHITE COCK WORTH LEAVING THE — ♡♡♡♡♡♡♡ — NATION'S HUSBAND FOR — ♡♡♡♡♡♡♡♡♡!!!"
 
 PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
 
