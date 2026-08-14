@@ -2,43 +2,35 @@
 
 ---
 
-The limo was Dohan's idea.
+The limo was Dohan's idea, and the idea was optics. Korea's golden couple stepping out of one car into one frame, with forty-five minutes from Gangnam to COEX so the photographers had time to set up.
 
-Not because he wanted to share the ride — because the optics were better. Korea's golden couple arriving at the 63rd Baeksang Arts Awards together, stepping out of the same car, the same frame, the photo that would run in every entertainment outlet by morning. So Manager Kim booked the car, the driver, the forty-five-minute route from Gangnam to COEX that gave the paparazzi time to set up.
+Manager Kim booked it. At four in the afternoon Yuna texted to say there'd be a third passenger, and Manager Kim replied *Understood* and asked nothing, because the day she started asking was the day she'd have to know.
 
-What Manager Kim had not planned for was the third passenger.
+They collected Dohan first. He got in smelling of Sauvage, said "Hey," and went back to his phone.
 
-Yuna had texted at 4 PM: *I'm bringing a guest. Professor Camille Beaumont, Haneul College. She's interested in Korean cultural events. Add her to my table.* Manager Kim had added the name to the seating chart without comment because Manager Kim's job was logistics, not questions, and Kang Yuna's guest list was Kang Yuna's business.
+Then the car stopped outside a bar in Mapo-gu and Yuna got in, and Camille got in behind her and had to duck to do it.
 
-The limo picked up Dohan first, at the Gangnam penthouse. He was in a charcoal Tom Ford suit, hair styled, cologne applied — *Sauvage*, because it tested well. He sat in the back seat scrolling his phone, liking fan posts.
-
-Then the car pulled up to a bar in Mapo-gu, and Yuna got in.
-
-She was in midnight-blue Dior. Floor-length, backless to the waist. The Cartier diamonds. Hair swept up. She looked like the most beautiful woman in Korean entertainment on the biggest night of her career.
-
-She was not alone.
-
-Camille Beaumont folded herself into the limo after Yuna, ducking the door frame, and the car's interior shrank. Black suit — tailored, narrow-lapeled. White shirt, open collar, no tie. Her hair was down, hanging past her jaw. The suit was cheap. The body wearing it was not.
-
-Dohan looked up from his phone.
+Dohan looked up.
 
 "Ah," he said. "The professor."
 
-"Dohan-ssi." Camille extended her hand. The grip was firm. Dohan's was practiced. Their hands met and parted and that was the entirety of their physical interaction for the evening.
+"Dohan-ssi."
 
-"Yuna tells me you teach philosophy."
+They shook hands.
+
+"Yuna says you teach philosophy."
 
 "Western philosophy. At Haneul."
 
-"Interesting. I nearly studied philosophy before acting. Yonsei offered me a spot."
+"I nearly did philosophy. Yonsei offered me a place."
 
-"What made you choose acting?"
+"What happened?"
 
-"The money." He laughed — the charming laugh, the one that had won three magazine covers and a cologne endorsement. "And the lifestyle. Philosophy seemed—"
+"Money." He laughed. "And the lifestyle. Philosophy seemed—"
 
 "Lonely?"
 
-"Quiet." He put his phone away. Tried to engage. "How are you finding Korea?"
+"Quiet." He put the phone away and made an effort. "How are you finding Korea?"
 
 "I love it."
 
@@ -46,21 +38,23 @@ Dohan looked up from his phone.
 
 "The people."
 
-"Ah, yes. Korean people are very warm."
+"Ah. Yes. Koreans are very warm."
 
-Camille turned to Yuna. Her whole body angled — knee touching Yuna's knee, hand finding the seat between them where Yuna's hand was already waiting, their fingers interlacing under the folds of the Dior gown.
+Camille turned to Yuna and stopped attending to him entirely.
 
-"You look incredible," Camille said, at a volume meant for one person.
+"You look incredible."
 
-It arrived somewhere under Yuna's sternum and spread out from there. This was the thing every camera on the carpet was going to spend the night failing to explain.
+Yuna looked out of the window for a moment before she trusted herself to answer.
 
-"You look—" Yuna bit her lip. Glanced at Dohan. "You look like you're going to get me in trouble tonight."
+"You look like you're going to get me in trouble tonight."
 
 "That's the plan."
 
-Yuna laughed — the ugly one. Nose crinkled, head tipped back, mouth too wide. Camille laughed with her, and their laughter filled the limo, and Dohan sat across from them and didn't know what to do with his face.
+Yuna laughed. Not the one she used on camera — this one was loud and it crinkled her nose and opened her mouth too wide. Camille laughed at her laughing. Between them they filled the car with it.
 
-He picked up his phone.
+Dohan sat opposite and worked on his face.
+
+Then he got his phone out again.
 
 The thing about the dress was that it wasn't the dress she wanted.
 
@@ -114,13 +108,13 @@ In the reflection of his phone screen, Dohan watched his wife laugh at something
 
 Somewhere near the river they ran out of things to say, and it turned out not to matter.
 
-Yuna put her head on Camille's shoulder. Camille kissed the top of it, which took half a second and was the least sexual thing that happened in that car all evening, and Yuna felt it go down her spine and out through the backs of her knees.
+Yuna put her head on Camille's shoulder and Camille kissed the top of it, which took half a second.
 
-Then Camille took her hand, turned it palm up, and started drawing slow circles on the inside of her wrist with her thumb.
+Then she took Yuna's hand, turned it palm up, and started drawing slow circles on the inside of her wrist with her thumb.
 
-That was all. That was the entire thing. She did it for eleven minutes.
+That was all. She did it for eleven minutes.
 
-Ten days ago this woman had fucked her against a wall until she briefly lost the use of her legs, and this was worse. There was no part of it she could point at. If you filmed it and showed it to a court you would have a woman holding another woman's hand. And still, by the time they came off the bridge, Yuna had stopped being able to follow the conversation. She was looking out the window at a stack of apartment buildings and thinking about nothing at all and sitting very, very still, because sitting still was the only thing holding her together.
+If you filmed it you would have a woman holding another woman's hand. By the time they came off the bridge Yuna had lost the thread of her own conversation twice and stopped trying to find it, and was sitting very straight, looking out at a stack of apartment blocks, not moving at all.
 
 "Traffic's light," Dohan said.
 
