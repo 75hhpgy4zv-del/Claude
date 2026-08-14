@@ -30,7 +30,7 @@ They shook hands.
 
 "Lonely?"
 
-"Quiet." He put the phone away and made an effort. "How are you finding Korea?"
+"Quiet." He put the phone face down on his knee. "How are you finding Korea?"
 
 "I love it."
 
@@ -52,7 +52,7 @@ Yuna looked out of the window for a moment before she trusted herself to answer.
 
 Yuna laughed. Not the one she used on camera — this one was loud and it crinkled her nose and opened her mouth too wide. Camille laughed at her laughing. Between them they filled the car with it.
 
-Dohan sat opposite and worked on his face.
+Dohan sat opposite and rearranged his mouth twice.
 
 Then he got his phone out again.
 
@@ -176,11 +176,11 @@ The rest was standing on a strip of tape while men shouted instructions.
 
 "Yuna-ssi! Hands! HANDS!"
 
-She did the hands.
+She put one hand on her hip and turned the wrist out, which pulled the waist in and made the skirt hang the way the loan agreement wanted it to hang.
 
 "Turn! This way — THIS way!"
 
-She turned this way.
+She rotated forty-five degrees, held it while the shutters caught up, came back, and did it again for the ones who had been changing lenses.
 
 Twenty minutes of it, minimum, under lights hot enough to bring the sweat up on her scalp, smiling without stopping. She'd worked out in her twenties that you could smile with the lower half of your face and let the eyes rest, and that this bought you about six extra minutes before the ache set into the hinge of the jaw.
 
@@ -206,7 +206,7 @@ Manager Kim stopped talking into her collar.
 
 "Coming."
 
-She let go and went and stood beside her husband and put her body where it went — turned slightly in, one hand at his waist, the pose they'd been doing since 2021. He smelled like Sauvage. He always smelled like Sauvage.
+She let go and went and stood next to her husband, and her body arranged itself without being asked: quarter-turn in toward him, weight back onto the rear foot so the hip came forward, one hand flat on his waist, chin down and then out again. They had been photographed in that exact configuration since 2021. He smelled like Sauvage. He always smelled like Sauvage.
 
 Flash. Flash. Flash.
 
@@ -990,9 +990,9 @@ She pressed her thighs together. Hard. The pressure on her clit sent a bolt thro
 
 "Thank you, Dohan."
 
-He looked at her. For a second — one second — something real moved behind the algorithm. Something that might have been recognition, or loss, or the first faint understanding that the woman in his arms was not the same woman who had gotten into the limo six hours ago.
+He looked at her, and for a moment his face came loose. He was working out that he did not know where his wife had been for most of the evening, and that it had not occurred to him to wonder until just now.
 
-Then someone called his name and the second passed.
+Then a producer said his name and he turned toward it, and it was gone.
 
 Camille was across the room. At the bar. Talking to Heejin, who was drunk and delighted. Yuna watched Camille's hands — the fingers wrapped around a whiskey glass. The same fingers that had been inside her three times tonight.
 
