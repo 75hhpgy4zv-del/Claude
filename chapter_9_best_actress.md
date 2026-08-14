@@ -910,23 +910,47 @@ The lights hit her and the roar rolled over her and her legs took her to the pod
 
 ***
 
-Two thousand people. Twelve cameras. The crystal trophy — heavy, real. The podium. The lights.
+Two thousand people. Twelve cameras. A crystal trophy heavier than it looked.
 
-Yuna stood at the podium with cum settling inside her.
+Yuna got to the podium and took the card out of her clutch and looked at it.
 
-"Thank you," she said. The tremble in her voice was real. "This role — *Grace* — is about a woman who discovers that the version of herself she's been performing isn't her. It's the version everyone else needed her to be. And the moment she stops performing — the moment she chooses to be herself, even if it's messier, even if it's harder, even if it costs her everything — that's the moment she becomes real."
+"I had a speech," she said. "It's very professional. I'm not going to read it."
 
-She paused. The auditorium was silent.
+She put it face down on the lectern, which got a laugh, and she waited the laugh out because her legs needed the time.
 
-"I want to thank Director Lee. Heejin-unnie's extraordinary script. My cast, who became my family." She looked at the front row. Dohan was there — different table, different section, but visible. Smiling. The algorithm. "And I want to thank my husband, Dohan, for always being exactly who he is."
+"Two months ago somebody asked me what I wanted."
 
-Camille watched from the wings. Cum drying on her suit trousers. Smiling.
+The hall settled.
 
-"This award is for every woman who performed someone else's version of her life. You deserve your own story."
+"Not what I was going to do next. Not what I was going to take. What I *wanted*." She stopped. Started again. "I'm thirty-four years old and I didn't have an answer. I stood in a bar in Mapo-gu and I could not answer the question."
 
-The ovation was enormous. Yuna lifted the trophy. The cameras captured her — radiant, glowing, the Best Actress in Korea, lit from the inside in a way that no lighting designer could replicate.
+Somewhere in the third row, Heejin put her glass down.
 
-The glow.
+"I've been doing this eleven years and I'm very good at being whatever the room needs. Some of you have paid me to be that. A few of you are going to pay me to be it again in the spring." The laugh came, warm, and she rode it. "It's a real skill. It's most of what I have. And it works right up until somebody sits down across from you and doesn't need anything from you at all, and then you find out you don't know what to do with your hands."
+
+She had to stop again there.
+
+Two thousand people watched the Nation's Wife stand at a podium and get hold of herself, and thought they were watching modesty.
+
+"So thank you. For being the only person in my life who has ever been there for *me* — not for the brand, not for the schedule, not for what I'm useful for. Just me. I know exactly what that costs you." Her voice went, and she let it. "I hope you know I'd do it back. I'd do it back for the rest of my life."
+
+The camera on rig four found Dohan in the second section.
+
+It found him beautifully. He had the expression already assembled — the modest downward look, the small proud shake of the head, the hand coming up to touch his own chest. Two thousand people made the sound a room makes when it decides it has seen love, and the fan section screamed, and somewhere a woman in row eleven was actually crying.
+
+The shot ran nine seconds. It would be the most-shared clip of the night.
+
+"And thank you to my husband, Dohan," Yuna said, "for always being exactly who he is."
+
+The ovation started before she finished the sentence.
+
+She lifted the trophy because that was the next thing, and the light came off it into her eyes, and she found the dark gap in the wings on the left where a tall shape stood against the equipment rack with her arms crossed.
+
+Camille was not applauding. She was just watching her, with her head tilted slightly, the way she'd watched her across a table in Mapo-gu two months ago while Yuna failed to answer the question.
+
+Yuna held the trophy up a little higher.
+
+It was, in fairness, for her.
 
 ***
 
