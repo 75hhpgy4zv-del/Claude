@@ -190,7 +190,7 @@ Camille put a hand on the small of her bare back.
 
 "Daddy ♡," Yuna said.
 
-She had not decided to say it. It arrived on its own, at conversational volume, on a red carpet, six feet from her husband.
+She had not decided to say it.
 
 Dohan paused. Half-turned. His brow creased, and then it didn't.
 
@@ -590,7 +590,9 @@ She leaned in. Her lips almost touched Camille's ear.
 
 Camille glanced down at her. Just once, briefly, the way you check on a dog doing something ridiculous.
 
-That was the thing about her, and Yuna had understood it for about two months now. Camille wasn't moved by this. Camille was *entertained*. She thought it was funny — she thought Yuna's whole disintegrating dignity was the best joke she'd been told all year — and being amused by it was making her harder, and being harder was making Yuna worse, and there was no bottom to that particular stairwell.
+She wasn't moved. She was entertained.
+
+And she was getting harder.
 
 Yuna stroked her under the tablecloth and whispered a stream of things into her ear that she would not have been able to repeat afterwards.
 
