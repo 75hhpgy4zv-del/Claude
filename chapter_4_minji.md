@@ -72,7 +72,7 @@ Camille looked.
 
 Minji was beautiful the way a department store mannequin was beautiful — technically flawless, composed, every element in its designated place. Straight black hair cut to her shoulders in the exact style that was trending this season. Flawless skin, the product of a ten-step routine performed religiously every morning and night. Subtle makeup — not too much, not too little, the precise amount that said *I care about my appearance* without saying *I'm trying too hard*. She wore a cream cardigan over a fitted blouse in the photo, pearl studs in her ears, a thin gold chain at her throat. A smile that didn't reach her eyes.
 
-She was gorgeous. She was also completely invisible. The kind of beauty that was so carefully calibrated to be acceptable that it disappeared into the crowd — indistinguishable from every other well-groomed, well-dressed, well-behaved Korean woman on the Gangnam subway line.
+She was gorgeous. She was also completely invisible. She had calibrated herself so carefully toward acceptable that she had disappeared into the crowd — indistinguishable from every other well-groomed, well-dressed, well-behaved Korean woman on the Gangnam subway line.
 
 "She's hiding," Camille said.
 
@@ -90,7 +90,7 @@ Minji arrived at 7:04, four minutes late, and apologized for it immediately.
 
 "Minji-ya, it's fine. Sit down."
 
-She was wearing exactly what the photo had promised — a cream cardigan, a fitted navy blouse with a Peter Pan collar, dark slacks, low heels. Her hair was blow-dried smooth. Her makeup was invisible, natural, the kind that took forty-five minutes to look like zero. She smelled like clean laundry and a perfume that was popular enough to be acceptable and boring enough to be safe. Jo Malone. Lime Basil & Mandarin. The official scent of Korean women who'd given up on choosing something for themselves.
+She was wearing exactly what the photo had promised — a cream cardigan, a fitted navy blouse with a Peter Pan collar, dark slacks, low heels. Her hair was blow-dried smooth. Her makeup was invisible and natural and had taken forty-five minutes to look like nothing at all. She smelled like clean laundry and a perfume that was popular enough to be acceptable and boring enough to be safe. Jo Malone. Lime Basil & Mandarin. The official scent of Korean women who'd given up on choosing something for themselves.
 
 She sat at the bar and ordered soju. Neat. Soyeon poured.
 
@@ -596,7 +596,7 @@ She lay there panting. Cum leaked from her. Her blow-dried hair was plastered to
 
 "The dentist was comparing you to his previous patients. I'm comparing you to no one."
 
-Minji laughed — a real, bright, surprised laugh that made her face transform. Without the polite mask, without the manufactured smile, her face was luminous. The kind of beauty that wasn't assembled from a ten-step routine but erupted from underneath, uncontainable, the beauty of a person who'd just discovered they were still alive.
+Minji laughed — a real, bright, surprised laugh that made her face transform. Without the polite mask, without the manufactured smile, her face was luminous. It was not assembled from a ten-step routine. It came up from underneath, uncontainable, the beauty of a person who'd just discovered they were still alive.
 
 She slid down the futon. Camille sat back against the wall — the same position she'd used with Jihye, letting the woman set the pace, ceding control even as she maintained authority.
 
@@ -636,7 +636,7 @@ SCHLURP ♡!
 
 "Mmmm ♡♡♡..."
 
-The vibration made Camille's hands clench. Minji sucked deeper, her cheeks hollowing, her tongue working the underside with the kind of focused, methodical attention that made Camille suspect this woman's competence had never been the problem. The problem had always been the men.
+The vibration made Camille's hands clench. Minji sucked deeper, her cheeks hollowing, her tongue working the underside with a focused, methodical attention that made Camille suspect this woman's competence had never been the problem. The problem had always been the men.
 
 "Deeper," Camille said.
 

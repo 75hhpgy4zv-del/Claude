@@ -280,7 +280,7 @@ Hana came back at 12:07. She'd changed — traded the staff polo for a black cro
 
 "What do you want to sing?" Jihye asked, handing her the remote.
 
-Hana scrolled through the song list. Her fingers trembled slightly — soju? Nerves? Both? She stopped on a song and Camille saw the choice flash on the TV screen: **Kim Yuna — "Spring Day Comes."** A ballad. Not K-pop, not trendy, not the kind of song a woman with cherry-red hair and a crescent moon tattoo was supposed to choose. A song your grandmother hummed while she did laundry.
+Hana scrolled through the song list. Her fingers trembled slightly — soju? Nerves? Both? She stopped on a song and Camille saw the choice flash on the TV screen: **Kim Yuna — "Spring Day Comes."** A ballad. Not K-pop, not trendy, not a song a woman with cherry-red hair and a crescent moon tattoo was supposed to choose. A song your grandmother hummed while she did laundry.
 
 Hana stood in the center of the small room, microphone in both hands, the disco lights painting her red and blue and gold. She took a breath.
 
@@ -328,7 +328,7 @@ Hana set the glass down. Hard.
 
 "Shut up," Jihye whispered back.
 
-The colored lights rotated across Hana's face. Her eyes were bright — not with tears, with fury. The kind of anger that was actually grief wearing a leather jacket.
+The colored lights rotated across Hana's face. Her eyes were bright, and not with tears. She had been angry about this for a very long time and had never once been allowed to say so.
 
 "One evaluator," Hana said, her voice tight. "One man, one sentence, and I gave up everything. Do you know how pathetic that sounds?"
 
@@ -396,7 +396,7 @@ Hana stared at her. The cherry-red hair and the crescent moon tattoo and the pie
 
 Hana punched in the number without looking. The screen lit up: **Lee Moon-sae — "When Love Passes By."** A classic. A duet. A song about meeting someone at the wrong time and choosing them anyway.
 
-They stood in the center of the room. Hana with one microphone, Camille with the other. The instrumental started — piano, soft, the kind of opening that gives you nowhere to hide.
+They stood in the center of the room. Hana with one microphone, Camille with the other. The instrumental started. Piano, soft, an opening that gave a singer nowhere at all to hide.
 
 Hana sang the first verse. Her voice — god, her voice. It filled the tiny room and made it infinite.
 

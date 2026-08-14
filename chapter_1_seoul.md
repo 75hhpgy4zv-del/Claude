@@ -18,7 +18,7 @@ She'd been warned. Her thesis advisor in Lyon, a woman who'd spent fifteen years
 
 Her advisor hadn't laughed.
 
-The university was fine. Haneul Liberal Arts College, tucked into the hills south of Seoul with views of apartment blocks and church steeples. Small, progressive on paper, conservative in practice. The kind of place that hired a French woman to teach Western Philosophy as a signal to ranking committees while privately hoping she'd be quiet and photogenic.
+The university was fine. Haneul Liberal Arts College, tucked into the hills south of Seoul with views of apartment blocks and church steeples. Small, progressive on paper, conservative in practice. They had hired a French woman to teach Western Philosophy because it looked good to the ranking committees, and they were hoping she would be quiet and photogenic about it.
 
 She was neither.
 
@@ -320,7 +320,7 @@ Soyeon wrapped both hands around the shaft.
 
 Soyeon leaned forward and licked the bead off the tip.
 
-The taste hit her and she moaned — a real, unguarded moan, the kind she'd never made in her life. Salt and musk and something heavy that coated her tongue and made her mouth water. She licked again, longer this time, dragging the flat of her tongue from the ridge of the head down toward the shaft.
+The taste hit her and she moaned — a real one, unguarded, a noise she had never made in her life. Salt and musk and something heavy that coated her tongue and made her mouth water. She licked again, longer this time, dragging the flat of her tongue from the ridge of the head down toward the shaft.
 
 "*Fuck*," Camille breathed.
 
@@ -396,7 +396,7 @@ Camille's cock pressed against the soaked crotch of Soyeon's work slacks. Even t
 
 "Then take these off," Camille said, tugging at the slacks.
 
-Soyeon practically ripped them. She fumbled with the button, yanked the zipper, and shoved them down her thighs along with her underwear — plain cotton, sensible, the kind of underwear a woman wears when she has no expectation of being seen. Camille tossed them somewhere behind the bar.
+Soyeon practically ripped them. She fumbled with the button, yanked the zipper, and shoved them down her thighs along with her underwear — plain cotton, sensible, chosen that morning by a woman who did not expect anyone to see them. Camille tossed them somewhere behind the bar.
 
 Soyeon was bare from the waist down, sitting on the bar of her own workplace, her pussy exposed and glistening under the amber light. Her thighs were slick. Her clit was swollen and visible, flushed dark pink, twitching.
 

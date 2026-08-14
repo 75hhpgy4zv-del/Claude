@@ -270,7 +270,7 @@ Silence.
 
 "…Oh." A pause. "Then I used it correctly ♡."
 
-Camille laughed. Actually threw her head back and laughed, the kind that shakes the whole body, and Soyeon bounced on the cock still inside her and squeaked, and that made Camille laugh harder, and then Soyeon was laughing too, and they were two sweaty, cum-drenched idiots giggling on a futon while connected at the most intimate possible point.
+Camille laughed. Actually threw her head back and laughed until it shook her, and Soyeon bounced on the cock still inside her and squeaked, and that made Camille laugh harder, and then Soyeon was laughing too, and they were two sweaty, cum-drenched idiots giggling on a futon while connected at the most intimate possible point.
 
 When the laughter died, Soyeon lifted her head.
 

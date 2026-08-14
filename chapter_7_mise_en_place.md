@@ -506,7 +506,7 @@ She rolled onto her stomach. Looked over her shoulder. The cum on her face had d
 
 ***
 
-Camille pressed the head against her ass. Soojin exhaled — a deliberate breath, the kind she taught her sous-chefs for knife work. *Steady. Let the blade do the work.* She almost laughed. Even here—
+Camille pressed the head against her ass. Soojin exhaled, one deliberate breath, the same one she taught her sous-chefs for knife work. *Steady. Let the blade do the work.* She almost laughed. Even here—
 
 Then Camille pushed and the kitchen training died screaming.
 

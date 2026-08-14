@@ -8,7 +8,7 @@ Not a folder on her laptop — a FILE. Printed. Tabbed. Color-coded with Post-it
 
 The file was labeled **BEAUMONT, C.** in black marker across the tab. Inside:
 
-A photo of the faculty page at Haneul Liberal Arts College. Camille Beaumont, Visiting Professor of Western Philosophy. The photo was professional but the woman in it looked like she'd rather be anywhere else — slouched, gap-toothed, the kind of face that belonged on a rugby pitch, not an academic directory.
+A photo of the faculty page at Haneul Liberal Arts College. Camille Beaumont, Visiting Professor of Western Philosophy. The photo was professional but the woman in it looked like she'd rather be anywhere else — slouched, gap-toothed, a face that belonged on a rugby pitch and not in an academic directory.
 
 Printouts of Soyeon's text messages — screenshotted, timestamped, annotated. Eunji hadn't stolen these. Soyeon had shown her the phone, casually, the way you show someone a photo of a sunset, except the texts said things like *can't wait for Thursday Daddy ♡♡♡* and *I came four times last night and squirted on the ceiling fan* and *tell Jihye I said hi and that she left her glasses on the futon AGAIN*. Soyeon had shown her these like they were normal. Like she didn't hear herself.
 
@@ -62,7 +62,7 @@ The bar was warm and amber and louder than usual. Thursday crowd — the regular
 
 And at the far end of the bar, back against the wall, long legs stretched out, reading a book with the cover bent back: Camille Beaumont.
 
-She was bigger than the faculty photo suggested. Taller, broader, the kind of physical presence that rearranged a room's geometry. She was wearing a white t-shirt that fit the way evidence fits a verdict — damning, comprehensive, leaving nothing to the imagination. Her arms were crossed over the book and the muscles in her forearms looked like something from an anatomy textbook. Her hair was piled in a knot and she hadn't looked up from the page.
+She was bigger than the faculty photo suggested. Taller, broader, and she took up the room in a way the photo had not warned anyone about. She was wearing a white t-shirt that fit the way evidence fits a verdict — damning, comprehensive, leaving nothing to the imagination. Her arms were crossed over the book and the muscles in her forearms looked like something from an anatomy textbook. Her hair was piled in a knot and she hadn't looked up from the page.
 
 Eunji walked to the bar. Sat. Soyeon saw her and her face lit up and then immediately clouded with worry — the bartender could read a room, could read Eunji specifically, and whatever she read in Eunji's face tonight was not *I'm here for drinks*.
 

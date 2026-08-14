@@ -4,7 +4,7 @@
 
 Thursday came like a held breath.
 
-Camille spent the days between learning the geography of Soyeon's body the way she'd once learned Heidegger — systematically, obsessively, with the kind of focus that turned hours into minutes and minutes into nothing at all. She learned that Soyeon's neck was the master switch. That her nipples were sensitive enough to make her cum from stimulation alone if Camille was patient, which Camille sometimes was and sometimes wasn't. That the bartender's voice dropped a full octave when she was close, shifting from breathless Korean-accented English into something guttural and primal that wasn't any language at all.
+Camille spent the days between learning the geography of Soyeon's body the way she'd once learned Heidegger — systematically, obsessively, with a focus that turned hours into minutes and minutes into nothing at all. She learned that Soyeon's neck was the master switch. That her nipples were sensitive enough to make her cum from stimulation alone if Camille was patient, which Camille sometimes was and sometimes wasn't. That the bartender's voice dropped a full octave when she was close, shifting from breathless Korean-accented English into something guttural and primal that wasn't any language at all.
 
 She learned other things, too.
 
@@ -28,7 +28,7 @@ Now it was Thursday morning, and Soyeon was doing something Camille had never se
 
 "What if she's — what if it's too much? What if she thinks I'm — we're—"
 
-Camille was sprawled on the futon, naked from the waist up, wearing only a pair of boxers that did absolutely nothing to conceal the soft outline of her cock resting against her thigh. She'd been reading — *The Vegetarian*, for the hundredth time, the pages dog-eared and annotated in French — but she set it down now and looked at Soyeon with the kind of calm that was either reassuring or terrifying depending on which end of it you were on.
+Camille was sprawled on the futon, naked from the waist up, wearing only a pair of boxers that did absolutely nothing to conceal the soft outline of her cock resting against her thigh. She'd been reading — *The Vegetarian*, for the hundredth time, the pages dog-eared and annotated in French — but she set it down now and looked at Soyeon with a calm that was reassuring or terrifying depending on which end of it you were standing at.
 
 "Come here."
 
@@ -118,7 +118,7 @@ PLAP! PLAP! PLAP! PLAP!
 
 "Daddy— ♡! Harder— ♡♡♡!"
 
-Camille had Soyeon face-down on the futon, ass up, one hand fisting her hair, the other gripping her hip hard enough to leave finger-shaped bruises. She was fucking her from behind with the kind of relentless, metronomic intensity that turned thought into static and time into a meaningless concept.
+Camille had Soyeon face-down on the futon, ass up, one hand fisting her hair, the other gripping her hip hard enough to leave finger-shaped bruises. She was fucking her from behind, relentless and metronomic, until Soyeon's thoughts went to static and she lost track of how long it had been going on.
 
 "You're mine," Camille said, punctuating each word with a thrust that drove Soyeon's face into the pillow.
 
@@ -208,7 +208,7 @@ Camille knew this because she was watching from the corner booth, nursing a gin 
 
 The door opened. A gust of warm August air. And Jihye walked in.
 
-She was smaller than Camille expected — five-two, maybe five-three, with narrow shoulders and the kind of posture that suggested a lifetime of making herself compact. She wore an oversized gray cardigan over a plain white t-shirt, dark jeans, and white sneakers that had been cleaned too many times. Her black hair was in a low ponytail, not the bun Soyeon had described — maybe she'd put in effort tonight. She wore round wire-rimmed glasses that were slightly too big for her face, giving her the look of a studious owl.
+She was smaller than Camille expected — five-two, maybe five-three, with narrow shoulders and the posture of someone who had spent a lifetime making herself compact. She wore an oversized gray cardigan over a plain white t-shirt, dark jeans, and white sneakers that had been cleaned too many times. Her black hair was in a low ponytail, not the bun Soyeon had described — maybe she'd put in effort tonight. She wore round wire-rimmed glasses that were slightly too big for her face, giving her the look of a studious owl.
 
 She was beautiful. Not in the way Soyeon was beautiful — Soyeon's beauty was architecture, clean lines and sharp angles and structural elegance. Jihye's beauty was a thing hiding. It peered out from behind the oversized cardigan and the hunched shoulders and the glasses, flickering into view in flashes — the curve of her jaw, the fullness of her lower lip, the dark intelligent eyes that scanned the room and cataloged everything in it before she'd taken three steps.
 
@@ -224,7 +224,7 @@ The temperature at the bar dropped three degrees. Jihye's eyes darted sideways, 
 
 Then she saw Camille.
 
-The French woman was walking toward the bar with the kind of stride that rearranged the geometry of any room she entered. Six-two. Broad shoulders tapering to a narrow waist. Arms that belonged on a Greek statue. Face that was half angel, half devil, split by the gap between her front teeth. She wore a simple white linen shirt, untucked, sleeves rolled to her elbows, and dark slacks that sat low on her hips. Her auburn hair was down, framing her jaw in loose waves.
+The French woman was walking toward the bar and the room was rearranging itself around her as she came. Six-two. Broad shoulders tapering to a narrow waist. Arms that belonged on a Greek statue. Face that was half angel, half devil, split by the gap between her front teeth. She wore a simple white linen shirt, untucked, sleeves rolled to her elbows, and dark slacks that sat low on her hips. Her auburn hair was down, framing her jaw in loose waves.
 
 Jihye stared.
 
@@ -280,7 +280,7 @@ The bar went silent. Soyeon's hand froze mid-wipe. Camille felt something shift 
 
 They talked for two hours.
 
-Camille did what she did best — she listened. Not the performative listening that most people did, the kind where you wait for your turn to talk. Real listening. The kind that made people feel like they were the only interesting thing in the universe. She asked questions that nobody had ever asked Jihye. Not *how's your thesis* or *when do you graduate* but *what made you fall in love with literature* and *what does your advisor get wrong about your work* and *what would you write if nobody was going to read it*.
+Camille did what she did best — she listened. Not the performative listening most people did, where you wait for your turn to talk. Real listening, the sort that left people feeling like the only interesting thing in the universe. She asked questions that nobody had ever asked Jihye. Not *how's your thesis* or *when do you graduate* but *what made you fall in love with literature* and *what does your advisor get wrong about your work* and *what would you write if nobody was going to read it*.
 
 Jihye bloomed. There was no other word for it. She went from monosyllabic to animated in the space of twenty minutes, her hands moving as she talked, her eyes bright behind her glasses, her voice climbing in volume and confidence as she realized that Camille wasn't going to interrupt or dismiss or correct her.
 
@@ -378,7 +378,7 @@ Soyeon came around the bar. She put her hand on Jihye's back — gently, between
 
 "Stop apologizing."
 
-Jihye laughed through her tears. A wet, broken, beautiful sound. She took off her glasses and wiped her eyes with the heel of her hand, and without the glasses her face was naked and young and stunning — wide dark eyes, high cheekbones, the kind of face that fashion scouts would kill for if she hadn't hidden it behind wire frames and cardigan armor her entire life.
+Jihye laughed through her tears. A wet, broken, beautiful sound. She took off her glasses and wiped her eyes with the heel of her hand, and without the glasses her face was naked and young and stunning — wide dark eyes, high cheekbones, a face fashion scouts would have killed for if she hadn't spent her entire life hiding it behind wire frames and cardigan armor.
 
 She looked at Camille.
 
@@ -462,7 +462,7 @@ Off. And Jihye was naked on the futon, her arms crossed over her chest, her thig
 
 Jihye looked.
 
-Camille stood. Unbuttoned her shirt. Let it fall. No bra — her breasts were full, firm, the kind that didn't need support. Her abs were a topographic map of muscle, each ridge catching the lamplight. She unbuckled her belt. The slacks dropped.
+Camille stood. Unbuttoned her shirt. Let it fall. No bra — her breasts were full and firm and needed no support. Her abs were a topographic map of muscle, each ridge catching the lamplight. She unbuckled her belt. The slacks dropped.
 
 Jihye saw her cock.
 
@@ -840,7 +840,7 @@ Camille came across her face. Thick ropes of cum painted Jihye's cheeks, her ope
 
 "Life's full of surprises."
 
-Jihye started laughing. Genuine, wild, uncontrolled laughter — the kind she'd never allowed herself, the kind that shook her whole body and made the cum on her chest jiggle and slide. She laughed until she couldn't breathe, and then she was crying again, and then laughing again, and the two things tangled together into something that had no name but felt like freedom.
+Jihye started laughing. Genuine, wild, uncontrolled laughter — laughter she had never once allowed herself, shaking her whole body and making the cum on her chest jiggle and slide. She laughed until she couldn't breathe, and then she was crying again, and then laughing again, and the two things tangled together into something that had no name but felt like freedom.
 
 "I'm *disgusting*," she said happily.
 
