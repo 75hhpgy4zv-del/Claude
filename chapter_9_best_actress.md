@@ -100,7 +100,7 @@ Yuna gave it a respectful four seconds.
 
 "You did not want something nice." Camille was smiling out the window. "You said — and I'm quoting you — that you wanted something that would do damage."
 
-Yuna laughed. Not the one she used on camera. The other one, the one that crinkled her nose and opened her mouth too wide, which a magazine profile in 2019 had called *surprisingly unglamorous*. She had read that profile eleven times.
+Yuna laughed. Not the one she used on camera. The other one, the one that crinkled her nose and opened her mouth too wide, which a magazine profile in 2019 had called *surprisingly unglamorous*. She had read that profile more times than she would admit to.
 
 Camille laughed too.
 
@@ -156,7 +156,7 @@ Yuna watched her husband decide not to think about it. She could actually see it
 
 ***
 
-The carpet at COEX ran ninety meters and Yuna had walked it six times in eleven years. It had never once gotten shorter.
+The carpet at COEX ran ninety meters and Yuna had walked it six times since her debut. It had never once gotten shorter.
 
 Manager Kim was at the car door before it finished opening, talking into her own collar. "We're four minutes down. Dohan-ssi first, then you, then the press line, then—" She watched Camille unfold out of the limo and lost her place. "Then her."
 
@@ -232,7 +232,7 @@ Camille leaned in until her mouth was nearly touching Yuna's ear. Somebody got a
 
 Yuna's knees came together on their own.
 
-She had spent eleven years learning to stand still while people took pictures of her, and it turned out that was the only thing keeping her upright. There were maybe forty meters of carpet left. There was a step at the end of it, up onto the entrance platform, and she was going to have to climb it in front of everyone.
+She had spent her entire adult life learning to stand still while people took pictures of her, and it turned out that was the only thing keeping her upright. There were maybe forty meters of carpet left. There was a step at the end of it, up onto the entrance platform, and she was going to have to climb it in front of everyone.
 
 She thought about the step. She thought about it very hard.
 
@@ -422,7 +422,7 @@ Kyung-ah the producer looked up from her phone for the first time in ten minutes
 
 "None of them on the drama block." Heejin finished her glass. "Nobody points a camera at us until the envelope."
 
-The lights went down at seven and the hosts came out and did eleven minutes on streaming platforms.
+The lights went down at seven and the hosts came out and did nine minutes on streaming platforms.
 
 It was not good material. The room laughed at every line of it, because the room was on camera.
 
@@ -448,7 +448,7 @@ She asked Director Lee about the blocking in episode three — the long take in 
 
 "It was an ACCIDENT," Director Lee said, delighted, to the entire table.
 
-Sungjae had said perhaps eleven words all night. Camille asked him how he'd prepared for the funeral scene.
+Sungjae had said perhaps twenty words all night. Camille asked him how he'd prepared for the funeral scene.
 
 He looked at her the way you look at someone who has asked to see your wallet.
 
@@ -480,7 +480,7 @@ She sat there with her hand in her lap and watched a woman she'd met in a bar in
 
 Yuna drank and looked at nobody.
 
-Under the tablecloth, Camille's hand had been resting on her knee for eleven minutes and had not moved once, and Yuna had spent all eleven of them waiting for it to.
+Under the tablecloth, Camille's hand had been resting on her knee since the lights went down and had not moved once, and Yuna had spent the entire time waiting for it to.
 
 ***
 
@@ -704,7 +704,7 @@ Camille's shoulders moved. She was laughing. Silently, into her wine, entirely a
 
 Yuna got two fingers into her mouth under the cover of a cough, and sucked them clean, and closed her eyes, and thought: *I am the best actress in this country.*
 
-Heejin won Best Screenplay eleven minutes later.
+Heejin won Best Screenplay twenty minutes later.
 
 She sat through Best New Director. Clapped. Smiled. Laughed at Heejin's commentary. Her cunt pulsed around nothing — the ghost-shape of the cock, the stretch-memory — and the smile faltered for one second before the actress caught it.
 
@@ -746,7 +746,7 @@ The bartender put the whiskey down. Camille didn't pick it up yet.
 
 "Is it?"
 
-"...It's a joke I've told about eleven times this year."
+"...It's a joke I've told about forty times this year."
 
 "Where is he tonight?"
 
@@ -784,7 +784,7 @@ On the stairs, Yuna glanced back. She caught Dahye looking, and she smiled — t
 
 Dahye finished her champagne.
 
-Then she took out her phone and typed *who is the tall french woman with yuna-unnie* into a group chat of four actresses, and put the phone face down on the bar, and picked it up again eleven seconds later.
+Then she took out her phone and typed *who is the tall french woman with yuna-unnie* into a group chat of four actresses, and put the phone face down on the bar, and picked it up again almost immediately.
 
 ***
 
@@ -934,7 +934,7 @@ The hall settled.
 
 Somewhere in the third row, Heejin put her glass down.
 
-"I've been doing this eleven years and I'm very good at being whatever the room needs. Some of you have paid me to be that. A few of you are going to pay me to be it again in the spring." The laugh came, warm, and she rode it. "It's a real skill. It's most of what I have. And it works right up until somebody sits down across from you and doesn't need anything from you at all, and then you find out you don't know what to do with your hands."
+"I've been doing this since I was twenty-three and I'm very good at being whatever the room needs. Some of you have paid me to be that. A few of you are going to pay me to be it again in the spring." The laugh came, warm, and she rode it. "It's a real skill. It's most of what I have. And it works right up until somebody sits down across from you and doesn't need anything from you at all, and then you find out you don't know what to do with your hands."
 
 She had to stop again there.
 
@@ -944,7 +944,7 @@ Two thousand people watched the Nation's Wife stand at a podium and get hold of 
 
 The camera on rig four found Dohan in the second section.
 
-It found him beautifully. He had the expression already assembled — the modest downward look, the small proud shake of the head, the hand coming up to touch his own chest. Two thousand people made the sound a room makes when it decides it has seen love, and the fan section screamed, and somewhere a woman in row eleven was actually crying.
+It found him beautifully. He had the expression already assembled — the modest downward look, the small proud shake of the head, the hand coming up to touch his own chest. Two thousand people made the sound a room makes when it decides it has seen love, and the fan section screamed, and somewhere in the middle blocks a woman was actually crying.
 
 The shot ran nine seconds. It would be the most-shared clip of the night.
 
