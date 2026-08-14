@@ -340,13 +340,13 @@ Over the girl's shoulder, Camille leaned against the wall with her arms crossed 
 
 In the stairwell, out of sight, Yuna grabbed Camille's hand and shoved it between her legs. She ground against the palm through the gown, once, twice, with her eyes half shut.
 
-Camille took the hand back.
+Camille backed her into the handrail and gave it to her there — two fingers, the heel of her palm, no particular ceremony about it — and Yuna came in under a minute with her forehead against Camille's collarbone and her fist in the lapel of the suit.
 
-"Not yet."
+"You're going to kill me," Yuna said, when she could.
 
-"You're going to kill me."
+"You started it."
 
-"I'm going to make you wait."
+"I did start it."
 
 "I don't want to wait. I want you to fuck me on these stairs."
 
@@ -470,19 +470,29 @@ Camille slowed down and started taking her long. Almost all the way out, until Y
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
-The audience laughed at something the comedian said, and the laughter came through the concrete and mixed with the wet slap of Camille's hips. Yuna bit down on Camille's shoulder hard enough to leave a bruise that would still be there in the morning. She came without making a sound. Her cunt clenched in waves that tried to milk the cock and got nothing out of it, because Camille held on and did not finish.
+The audience laughed at something the comedian said, and the laughter came through the concrete and mixed with the wet slap of Camille's hips. Yuna bit down on Camille's shoulder hard enough to leave a bruise that would still be there in the morning, and came without making a sound.
 
-Camille set her down. Her legs barely took it.
+Camille went straight through it. She did not slow down for it, or acknowledge it, or wait to see whether Yuna had anything left, because whatever governor other people had, she had never been fitted with one. She fucked her against the concrete until Yuna's heels lost the grip behind her back and then she held her up by the thighs and kept fucking her.
 
-"You didn't—"
+"Daddy ♡♡♡ — I can't — I can't go again, I can't—"
 
-"Later."
+"Do you want me to stop?"
 
-"But—"
+"*No* — don't you dare, don't you DARE—"
 
-"Later. Back to the table."
+So she didn't.
 
-Yuna whimpered.
+Camille came inside her a minute later, hard, with her forehead against the wall beside Yuna's ear, and stayed there afterwards breathing while the ceremony went on through the concrete.
+
+Then she set her down. Yuna's legs barely took it.
+
+"We're going to be so late," Yuna said.
+
+"Mm."
+
+"You don't care."
+
+"Not remotely."
 
 They straightened up, and the gown fell, and the suit went back to looking like a suit. They were most of the way to the auditorium when a stage manager came around the corner with a headset and a clipboard and the hurried walk of a man running a live broadcast.
 
@@ -542,27 +552,79 @@ They went back. Heejin noticed immediately.
 
 "She's a good SOMETHING," Heejin muttered, and drank her wine.
 
-Yuna sat. Crossed her legs. Uncrossed them.
+Yuna sat down. Crossed her legs. Uncrossed them.
 
-'I can feel the cum that ISN'T there. She came inside me in the bathroom but pulled out in the corridor and the difference — full vs. empty — is making me insane.'
+The tablecloth went all the way to the floor. She had noticed that on the way in, the way you notice an exit row.
 
-Under the table, her hand found Camille's thigh. Moved lower. Along the inseam. The hard shape through fabric — the cock she'd had inside her ten minutes ago, still hard, straining against the trouser seam. She traced it. Up. Down. Pressed the fabric into the groove at the head. Squeezed.
+"—so they cut the orchestra budget," Heejin was saying, "and now it's a man. With a laptop. At the Baeksangs."
 
-It pulsed against her palm. Her cunt clenched in response.
+"It sounded fine," the producer said.
 
-Camille's hand covered hers. Stilled it.
+"It sounded like a ringtone."
 
-But didn't remove it. Held it there. Pressed flat against the cock. Not moving. Just THERE. Feeling every throb through the fabric. Every twitch. The slow thick pulse that matched Camille's heartbeat.
+Yuna's hand went under the tablecloth and found Camille's thigh.
 
-'I can't stroke. I can only feel. And the feeling is worse than nothing because it's RIGHT THERE and I can't have it and I'm sitting in a warm wet ruin of myself clapping for Best Supporting Actress—'
+She had meant to leave it there. She was fairly sure she had meant to leave it there. But the shape was right under her palm through the fabric, still hard, twenty minutes after a service corridor, and her hand went to it the way a tongue goes to a missing tooth.
 
-One slow circle from Camille's thumb on the back of Yuna's hand. Permission. Yuna's fingers curled around the shaft — one squeeze, two — and the hand covered hers again.
+She got the zip down.
 
-Stilled.
+Camille did not react. Camille was, at that moment, asking the director a question about the color grade in episode four.
 
-Yuna's nails dug into Camille's thigh. Hard. Then her hand went limp.
+That was worse. That was so much worse.
 
-Obedient.
+'She's not even— she's TALKING to him—'
+
+Yuna got her hand around it and nearly lost her grip on her own face. It was heavy and hot and already slick at the tip, and it did not fit in her hand, and it never had.
+
+She leaned in. Her lips almost touched Camille's ear.
+
+"Daddy," she whispered. "Daddy, you're so hard. You're so hard, I can't even get my fingers—"
+
+"Mm," Camille said. And then, to the director: "Because the interiors were warmer in the first two episodes. It changes in four."
+
+"That was deliberate," the director said, delighted. "Nobody's mentioned that all year."
+
+"It's a good choice."
+
+'SHE'S ANSWERING HIM. She's answering a question about COLOUR GRADING—'
+
+Camille glanced down at her. Just once, briefly, the way you check on a dog doing something ridiculous.
+
+That was the thing about her, and Yuna had understood it for about two months now. Camille wasn't moved by this. Camille was *entertained*. She thought it was funny — she thought Yuna's whole disintegrating dignity was the best joke she'd been told all year — and being amused by it was making her harder, and being harder was making Yuna worse, and there was no bottom to that particular stairwell.
+
+Yuna stroked her under the tablecloth and whispered a stream of things into her ear that she would not have been able to repeat afterwards.
+
+"Yuna-ya." Heejin, across the table. "Your director asked you something."
+
+"Hm?"
+
+"He asked if you're staying for the afterparty."
+
+Yuna's hand did not stop. It did not even slow down.
+
+"Yes," she said. "Absolutely."
+
+"You didn't hear a word of that."
+
+"I heard all of it."
+
+Camille reached over, unhurried, and moved her napkin into her lap.
+
+"Excuse me a moment," she said pleasantly, to nobody in particular.
+
+Then she came — into the napkin and over Yuna's fingers, in long thick pulses, without changing her expression at all — while Heejin explained to the producer exactly what was wrong with a man and a laptop.
+
+Yuna sat very still with a handful of it.
+
+She wanted it in her mouth. She was fully aware that she wanted it in her mouth, that she was at a table with four colleagues and a camera crane thirty feet away and a live broadcast in progress, and she thought about it for long enough that Camille noticed her thinking about it.
+
+Camille's shoulders moved. She was laughing. Silently, into her wine, entirely at Yuna's expense.
+
+"Go on, then," she murmured.
+
+Yuna got two fingers into her mouth under the cover of a cough, and sucked them clean, and closed her eyes, and thought: *I am the best actress in this country.*
+
+Heejin won Best Screenplay eleven minutes later.
 
 She sat through Best New Director. Clapped. Smiled. Laughed at Heejin's commentary. Her cunt pulsed around nothing — the ghost-shape of the cock, the stretch-memory — and the smile faltered for one second before the actress caught it.
 
