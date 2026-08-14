@@ -162,29 +162,65 @@ Yuna watched her husband decide not to think about it. She could actually see it
 
 ***
 
-The red carpet was a wall of light.
+The carpet at COEX ran ninety meters and Yuna had walked it six times in eleven years. It had never once gotten shorter.
 
-The limo pulled up and Manager Kim was there with the clipboard and the earpiece and the tight smile. The door opened. Dohan stepped out first — the wave, the smile, the algorithm — and the press pit erupted. *"Dohan-ssi! Over here! This way!"*
+Manager Kim was at the car door before it finished opening, talking into her own collar. "We're four minutes down. Dohan-ssi first, then you, then the press line, then—" She watched Camille unfold out of the limo and lost her place. "Then her."
 
-Yuna stepped out next. The Dior gown hit the light and the cameras doubled their rate. The midnight blue caught every flash and threw it back. The fan section gasped.
+"Her name's Camille."
 
-And then Camille stepped out.
+"Then Camille."
 
-She unfolded from the limo — all six foot two — and a different murmur went through the press pit. Not recognition. Cameras tracking the suit, the open collar, the body underneath, the way she straightened to her full height and the light hit the planes of her jaw.
+Dohan went out first and was immediately, genuinely excellent at it. He found his mark without looking down for it, picked the biggest lens in the pit out of about two hundred, and gave it the face that had sold nine million bottles of cologne.
 
-Manager Kim's clipboard wavered. "Yuna-ssi, the press line is—"
+"DOHAN-SSI! THIS WAY! OVER HERE! ONE MORE!"
 
-"In a moment." Yuna took Camille's arm. Not Dohan's. Camille's. They stood together on the carpet and the press pit fired and fired and fired.
+Then Yuna, and the noise changed pitch.
 
-Dohan was already moving down the carpet. He paused, turned, saw his wife on someone else's arm. The mask.
+The fan section was penned behind a barrier on the left and they had made banners. One of them said KANG YUNA MY SEROTONIN, in English, in glitter. She read it on the way past. She always read them. It was the only part of any of this she actually liked.
 
-"Yuna-ya, photos?" he called. The pet name for the cameras.
+The rest was standing on a strip of tape while men shouted instructions.
+
+"Yuna-ssi! Hands! HANDS!"
+
+She did the hands.
+
+"Turn! This way — THIS way!"
+
+She turned this way.
+
+Twenty minutes of it, minimum, under lights hot enough to bring the sweat up on her scalp, smiling without stopping. She'd worked out in her twenties that you could smile with the lower half of your face and let the eyes rest, and that this bought you about six extra minutes before the ache set into the hinge of the jaw.
+
+Then Camille came out of the car and the press pit did something Yuna had never heard it do.
+
+It hesitated.
+
+There was no name to shout. Nobody had a name. So for two full seconds there was only the sound of shutters running while three hundred people worked out whether they were supposed to care, and then they decided they were, and the shouting started again in a different key.
+
+"WHO IS THAT? WHO IS SHE?"
+
+"Press line," Manager Kim said into her ear.
+
+"In a minute."
+
+"Yuna-ssi, we are four minutes—"
+
+Yuna took Camille's arm.
+
+Manager Kim stopped talking into her collar.
+
+"Yuna-ya!" Dohan, six meters down the carpet, using the pet name he only used at events. "Photos!"
 
 "Coming."
 
-She released Camille's arm. Walked to Dohan. They stood together — the matched outfits, the Dior blue, the choreographed distance. He put his hand on her waist. She smiled. Flash, flash, flash.
+She let go and went and stood beside her husband and put her body where it went — turned slightly in, one hand at his waist, the pose they'd been doing since 2021. He smelled like Sauvage. He always smelled like Sauvage.
 
-"Okay, thank you!" Manager Kim called, and Dohan turned to move toward the press interview area. He was three steps away — still close — when Camille appeared at Yuna's side.
+Flash. Flash. Flash.
+
+"Beautiful! One more — closer!"
+
+They got closer.
+
+"Thank you, that's it," Manager Kim called, and Dohan peeled off toward the press interview pen. He was three steps gone when Camille arrived at Yuna's side.
 
 Camille put a hand on the small of her bare back.
 
