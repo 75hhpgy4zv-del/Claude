@@ -392,53 +392,101 @@ Yuna's bottom lip was trembling and the powder was already sweating off her ches
 
 ***
 
-Yuna's table was in the third row, left side. Six seats — the *Grace* director, the lead actor, the screenwriter, the producer, Yuna, and the empty chair that was now labeled BEAUMONT, C.
+Their table was third row on the left, six seats, and somebody had already put a card on the empty one reading BEAUMONT, C.
 
-Camille sat.
+"They spelled it right," Camille said.
 
-"So you're Yuna-unnie's friend!" The screenwriter — a woman in her forties named Heejin, sharp-eyed, two sojus deep before the ceremony started. "She NEVER brings friends to these things."
+"I spelled it for them twice," said Manager Kim, who had not forgiven anyone yet, and went away.
 
-"She's never had this friend before," Yuna said.
+Heejin was two sojus into the evening before the lights had even gone down, which was normal for Heejin and one of the four or five reasons Yuna loved her.
 
-"A professor! Philosophy! Kyung-ah, did you hear that? She teaches philosophy." Heejin elbowed the producer. "When's the last time we had a philosopher at our table?"
+"So you're the friend." She leaned across the producer to get a better look. "Yuna-ya doesn't bring people. Eight months of shooting, she brought nobody. I assumed she didn't have anyone."
 
-"Never," the producer said. "We usually get agents and their coke habits."
+"I have people."
 
-"I'm more interesting than a coke habit," Camille offered.
+"You have a husband and a manager. That's staff."
 
-"You're more interesting than this entire room," Heejin said, and the table laughed, and Yuna's hand found Camille's thigh under the tablecloth and gripped. Not stroking. Holding.
+"She's a professor," Yuna said, to change the subject.
 
-Camille's hand covered Yuna's. Held it there. Allowed it.
+"Of what?"
 
-The ceremony began. Opening performances. The hosts — a comedian and an actress — doing their comedy bits. Minor awards. Applause.
+"Philosophy."
 
-At the table, Camille asked the director about the blocking in the third episode. She asked Heejin about a structural choice in the script. She asked the lead actor — a quiet man named Sungjae who'd barely spoken — about his preparation process, and Sungjae talked for ten minutes straight, leaning forward, using his hands, more animated than he'd been all night.
+Kyung-ah the producer looked up from her phone for the first time in ten minutes. "A real one? At a real university?"
 
-"You two," Heejin said, gesturing between Camille and Yuna with her wine glass. "The way you look at each other. Yuna-ya, I've known you for eight months of shooting and I've NEVER seen you like this."
+"Haneul."
 
-"Like what?"
+"Huh." She went back to the phone. "We usually get agents."
 
-"Like you're actually enjoying yourself. Like you're not performing." Heejin leaned in, conspiratorial. "I'm going to say something controversial. I ship it."
+"And their coke habits," Heejin said.
 
-"Ship what?" the producer asked.
+"Heejin-ah."
 
-"THEM. Look at them. They're adorable."
+"What? It's dark. Nobody can hear me."
 
-"We're not—" Yuna started.
+"There are twelve cameras in this room."
 
-"She blushes! She BLUSHES! Yuna-ya, you never blush. You are chemically incapable of blushing. This woman has achieved the impossible." Heejin raised her glass. "To Camille. Who makes the Nation's Wife blush."
+"None of them on the drama block." Heejin finished her glass. "Nobody points a camera at us until the envelope."
 
-"To Camille," the table echoed.
+The lights went down at seven and the hosts came out and did eleven minutes on streaming platforms.
 
-Under the tablecloth, Yuna's hand tightened on Camille's thigh. White-knuckled. Her nails digging crescents into the suit fabric. Camille could feel Yuna's pulse through her fingertips — fast, shallow, the heartbeat of a woman whose cunt was still swollen and slick and empty and the emptiness was making her insane.
+It was not good material. The room laughed at every line of it, because the room was on camera.
 
-Camille leaned toward her during the applause for Best Screenplay. Mouth near Yuna's ear.
+Then the awards started, and the thing nobody mentions about awards is that they are mostly waiting. Four hours in a chair, in a hall they keep at nineteen degrees so the lights don't cook anybody, in a dress you cannot properly sit down in, watching categories that have nothing to do with you. Variety. Documentary. Editing. You clap. You arrange your face into pleasure for strangers.
 
-"You're dripping on my suit," Camille murmured. "I can feel it through my trousers. Your pussy is making a mess of a very expensive rental."
+Camille, meanwhile, was working.
 
-Yuna's hand spasmed on the thigh. A tiny, choked sound escaped her throat. Heejin glanced over and smiled.
+Not on Yuna. On the table.
 
-"See? ADORABLE."
+She asked Director Lee about the blocking in episode three — the long take in the kitchen, the one no reviewer had mentioned all year — and he put his glass down.
+
+"You saw that."
+
+"It's four minutes."
+
+"Four minutes twenty. Nineteen takes. My AD cried in the car park."
+
+"Which one did you use?"
+
+"Seventeen. The one where the rice boils over. That was an accident."
+
+"It looks like the best decision in the episode."
+
+"It was an ACCIDENT," Director Lee said, delighted, to the entire table.
+
+Sungjae had said perhaps eleven words all night. Camille asked him how he'd prepared for the funeral scene.
+
+He looked at her the way you look at someone who has asked to see your wallet.
+
+"...Nobody asks that."
+
+"I'm asking."
+
+So Sungjae told her. About the voice memo of his father he'd kept on his phone for six years, and how he'd played it in the car every morning of the shoot, and how by the last week he couldn't listen to it any more and did the final three days without it. He used his hands. He leaned in over his plate. Twice he stopped and apologised for talking so much, and both times Camille said keep going, and he kept going.
+
+Yuna had worked beside that man for eight months and had known none of it.
+
+She sat there with her hand in her lap and watched a woman she'd met in a bar in Mapo-gu take her entire cast apart and put them back together happier, and something went through her that had no sexual content in it whatsoever and was much harder to sit still for.
+
+"Right, I'm saying the thing," Heejin announced.
+
+"Don't say the thing," Kyung-ah said.
+
+"I ship it."
+
+"There it is."
+
+"Look at her!" Heejin pointed her glass at Yuna. "She's been smiling for forty minutes. Not the smile. The other one. The one with teeth in it."
+
+"I have one smile."
+
+"You have nine. I've catalogued them." Heejin got halfway to her feet, which was as far as she was going to get. "To Camille. Who made Kang Yuna blush, which I have now witnessed twice this evening, and once is already a miracle."
+
+"To Camille," said the table.
+
+Yuna drank and looked at nobody.
+
+Under the tablecloth, Camille's hand had been resting on her knee for eleven minutes and had not moved once, and Yuna had spent all eleven of them waiting for it to.
 
 ***
 
