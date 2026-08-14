@@ -718,65 +718,79 @@ Heejin won Best Screenplay. The table erupted. Yuna stood and cheered and hugged
 
 ***
 
-The bar area was during the next break. A mezzanine lounge where attendees mingled, collected drinks, networked. Low lighting. Ambient music.
+The mezzanine bar, third break. Bad ambient music and ninety people networking at volume.
 
-Camille was at the bar getting Yuna's whiskey when it happened.
+Camille was waiting on Yuna's whiskey when a woman in red arrived at her elbow and said, "That suit is rented."
 
-"That suit is extraordinary."
+"It is."
 
-The voice was warm and direct. Camille turned. The woman was maybe thirty-five — angular, stunning, cheekbones that could open mail, a jawline that had been on six magazine covers. Red gown, engineered cleavage, eyes doing a full scan of Camille's body and not even slightly hiding it.
+"I know. I can see it in the shoulder." Shin Dahye put her forearm on the bar. Six magazine covers, the KBS drama block, and the particular ease of a woman who had not introduced herself to anybody since she was twenty-two. "Doesn't matter. It's still the best thing in this building."
 
-"Thank you," Camille said. "Your dress is beautiful."
+"Thank you."
 
-"It's borrowed. The suit looks like it's yours."
+"That wasn't a compliment. That was an observation." A beat. "It was a compliment."
 
-"It's rented."
+"Camille Beaumont."
 
-"Rented?" The woman laughed. "It looks like it was built around you." She extended a hand. "Shin Dahye. I'm in the KBS drama block."
-
-"Camille Beaumont. I teach philosophy."
-
-"Philosophy." Dahye's eyes widened. "You're Yuna-unnie's friend. Heejin mentioned you — she said you were—" She paused. Chose her words. "She said you were interesting."
+"I know. Everyone's asking. Heejin-unnie has told two separate tables you're the most interesting person here, and Heejin doesn't say that about people. She says it about scripts."
 
 "That's generous of her."
 
-"She said specifically that you were the most interesting person at the table, and Heejin doesn't say that about people. She says it about scripts." Dahye stepped closer. Not subtly. "What brings a philosophy professor to the Baeksangs?"
+"It isn't generous, it's Heejin. She's exactly drunk enough to be accurate."
 
-"Yuna invited me."
+The bartender put the whiskey down. Camille didn't pick it up yet.
 
-"Just Yuna?"
+"What do you actually do?"
 
-"Just Yuna."
+"I teach philosophy."
 
-"Hmm." Dahye's hand found Camille's arm. Warm, lingering, fingertips resting on the suit sleeve with just enough pressure to be intentional. "You know, my husband is in the green room. He's always in the green room. I don't think he's watched an actual ceremony in five years. He just comes for the afterparty."
+"God." Dahye laughed, once, genuinely. "Say more of that."
 
-"That sounds lonely."
+"About philosophy?"
 
-"It IS lonely." The touch tightened. Dahye stepped closer again — close enough that Camille could smell her perfume, something floral and expensive, and Dahye could smell Camille's suit and what was underneath it — vetiver, musk, and something else, something warm and animal that Dahye couldn't identify but that made her thighs press together and her grip on Camille's arm go white-knuckled. She looked up — she was tall for a Korean woman, maybe five-seven, but she still had to look up — and her pupils were blown wide, her chest flushing above the red neckline, her lips parted, her breath coming fast and shallow. She was wet. She'd been wet since the suit. Since the handshake. Since the way Camille had looked at her — not at her body, at HER, the thirty seconds of full, undivided attention that no one in this building had given her in years. "Do you—"
+"About anything. My husband hasn't asked me a question since 2019." She heard it land and made a small correction to her face. "That's a joke."
+
+"Is it?"
+
+"...It's a joke I've told about eleven times this year."
+
+"Where is he tonight?"
+
+"Green room. He's always in the green room." She turned her glass a half-rotation on the bar. "He comes for the afterparty and the gift bag. He's not a bad man. He's just finished."
+
+Camille looked at her properly then — the whole thirty seconds of it, the attention arriving all at once and unmistakably — and Dahye, who had been looked at professionally by an entire country for eleven years, found she had to put her drink down.
+
+She put her hand on Camille's forearm.
+
+It was a practiced move. She had used it on a lot of people and it usually ended one conversation and started another.
+
+Camille glanced down at it with an expression of frank, uncomplicated interest.
+
+Dahye stopped breathing properly.
 
 "Camille."
 
-Yuna's voice. Behind her.
+Her hand came off the sleeve like the bar had gone hot.
 
-Camille turned. The rotation was immediate, total, compass needle swinging north. Her hand left the bar. Everything — the posture, the eyes, the energy — went to Yuna.
+Camille turned, and everything turned with her — shoulders, eyes, the whole apparatus — and whatever had been pointed at Dahye four seconds ago was now pointed somewhere else entirely, the way a spotlight goes somewhere else.
 
-"There you are," Camille said. And her voice went warmer. Just a degree. Two.
+"There you are," Camille said, and her voice did something it had not done once in four minutes of conversation.
 
-"I was looking for you," Yuna said, sliding her arm through Camille's. "They're about to announce Best Screenplay."
+"They're doing the film block." Yuna put her arm through Camille's. "I'm bored and I want my whiskey."
 
-"Excuse me," Camille said to Dahye. Pleasant. Warm. Already leaving.
+"Then come on."
 
-They walked away. Arm in arm.
+"Excuse me," Camille said to Dahye, kindly, and was already gone.
 
-Dahye stood at the bar holding her champagne. The flush on her chest was visible above the red gown — blotchy, deep, spreading down toward the engineered cleavage. Her hand was tingling. Her thighs were pressed together under the red gown and her nipples were hard against the fabric and she could still smell the suit — clean, masculine, something underneath that she couldn't name — and the ghost of the arm was still on her fingertips. She looked at her husband across the room, laughing with a producer, not looking at her.
+Dahye stood at the bar.
 
-She finished the champagne in one swallow.
+Across the room her husband was laughing with a producer, one hand on the man's shoulder, doing the thing he was genuinely still very good at.
 
-Yuna glanced back over her shoulder. Just once. She caught Dahye's eye.
+On the stairs, Yuna glanced back. She caught Dahye looking, and she smiled — the wide one, teeth and all — and kept walking.
 
-The feral smile. Brief. Final.
+Dahye finished her champagne.
 
-Dahye ordered another champagne. She drank it fast. Her thighs stayed pressed together for the rest of the night.
+Then she took out her phone and typed *who is the tall french woman with yuna-unnie* into a group chat of four actresses, and put the phone face down on the bar, and picked it up again eleven seconds later.
 
 ***
 
