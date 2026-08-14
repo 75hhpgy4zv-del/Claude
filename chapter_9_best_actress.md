@@ -142,145 +142,155 @@ She took Camille's arm again and walked off the carpet.
 
 The bathroom was on the second floor. VIP. Single occupancy. A lock that clicked.
 
-Seventy seconds from the carpet. Yuna's hand on Camille's wrist, pulling, half-running in heels down a corridor, the Dior gown whipping around her ankles. Past a catering station. Past a security guard who watched them go and said nothing. Up a staircase — Yuna stumbling on the second step because her legs were shaking and Camille caught her by the waist and lifted her the last three steps and set her down and Yuna's hand was on the door handle before her feet were fully under her.
+Seventy seconds from the carpet. Yuna pulling Camille by the wrist, half-running in heels, the Dior whipping around her ankles. A security guard watched them go. Said nothing.
 
-The door closed. The lock clicked. Yuna turned and Camille was already there — hands on her waist, lifting, the actress's back against the marble counter, the Dior gown bunched between them.
+The lock clicked. Camille lifted her onto the marble counter before the door stopped swinging.
 
-"The dress—" Yuna gasped.
+"The dress—"
 
 "I know."
 
-Camille's hand went under the gown. Up the thigh, past the stocking, past the garter, to the bare skin above. No underwear.
+Hand under the gown. Past the stocking. Past the garter. No underwear.
 
-Two fingers pushed inside and Yuna's head fell back against the mirror.
+Two fingers. In.
+
+Yuna's head cracked against the mirror.
 
 "Hah ♡♡♡!!!"
 
+'Oh God. Oh God oh God oh God—'
+
 "Quiet."
 
-"I can't — ♡♡♡ — Daddy, I can't be quiet, I've been—"
+"I can't — ♡♡♡ — I've been wet since you kissed my HEAD in the limo — ♡♡♡♡♡ — Dohan was RIGHT THERE — ♡♡♡♡♡♡♡!!!"
 
-Camille covered her mouth with one hand. The other hand worked — two fingers curling, the heel of her palm grinding against Yuna's clit, soaking through within seconds. Yuna's moan vibrated against Camille's palm, muffled, desperate, her eyes streaming, her hips grinding down on the fingers, trying to get them deeper.
+Camille covered her mouth. The other hand curled inside her, found the spot, and Yuna's moan vibrated against Camille's palm — muffled, desperate, animal. Yuna ground down on the fingers. More. Deeper.
 
-"You've been what?"
+Camille pulled them out. Dripping. Held them up.
 
-Yuna pulled the hand away from her mouth. "Wet since the LIMO — ♡♡♡ — since you kissed my head — ♡♡♡♡♡ — I've been sitting on this carpet soaking through the gown lining and Dohan was RIGHT THERE — ♡♡♡♡♡♡♡!!!"
+Yuna took them in her mouth without being told. Sucking. Tasting herself. Eyes locked on Camille's.
 
-Camille withdrew the fingers. They were dripping. She held them up and Yuna took them in her mouth without being told — sucking, tongue working between the knuckles, tasting herself, eyes locked on Camille's.
+"Turn around."
 
-Camille unzipped her suit trousers with her free hand. The cock sprang free — already hard, straining, it had been half-hard since the limo.
-
-"Turn around," Camille said.
-
-Yuna turned. Hands on the marble counter. The gown hiked to her waist, the midnight-blue fabric bunched against her stomach, her bare ass exposed, her pussy wet enough that the light caught it on her inner thighs. In the mirror: her own face — flushed, mascara intact, the face that had just smiled for forty cameras — and behind her, Camille, tall and dark-suited, the cock positioned between the bare thighs.
+She turned. Hands on marble. Gown hiked. In the mirror: her own face — flushed, mascara intact, the face that had smiled for forty cameras — and behind her, Camille, unzipped, the cock thick and hard between the bare thighs.
 
 SCHLURGE!
 
 "NNNGH ♡♡♡♡♡!!!"
 
-One stroke. Full. The cock sinking into her as Camille gripped one hip and pulled her back.
+Full. One stroke. All the way in.
 
-PLAP! PLAP! PLAP!
-
-"♡♡♡!!! ♡♡♡!!! ♡♡♡!!!"
+'That's — that's me. In the mirror. That woman with her mouth hanging open — that's—'
 
 "Watch," Camille ordered. "Watch yourself."
 
-Yuna watched. In the mirror: the Dior gown bunched at her waist. The Cartier diamonds swaying with each thrust. The bare back arching, the muscles in Camille's arms flexing, the wet sound of their bodies connecting echoing off the marble. Her mouth hung open. Her mascara was holding. Her eyes were not — they were glassy, rolling, the actress gone. A thin line of drool connected her lower lip to the counter.
+PLAP! PLAP! PLAP!
 
-Camille's hand slid from Yuna's hip to her ass. Spread the cheek. Yuna could see it in the mirror — her own ass being spread open, the cock disappearing into her pussy below, the wet pink of her stretched around the shaft. Camille's thumb brushed over her asshole and Yuna's entire body jerked.
+'That's ME. That's the woman from the red carpet. The one who smiled for Dispatch and said she was happy and — oh fuck — oh FUCK—'
+
+The Cartier diamonds swayed with each thrust. A thin line of drool connected her lower lip to the counter. The marble acoustics turned every wet sound enormous.
+
+Camille spread her ass. In the mirror, Yuna could see it — the cock disappearing into her, her own pink stretched wide around the shaft, and Camille's thumb circling her asshole, slow, wet with the slick running down from her pussy.
 
 "AH ♡♡♡♡♡!!!"
 
 "Sensitive."
 
-"Don't — ♡♡♡ — don't stop—"
+"Don't — ♡♡♡ — don't—"
 
-Camille didn't stop. The thumb circled — slow, wet with the arousal that was running down from Yuna's pussy, pressing lightly, not entering, just circling, and Yuna's cunt clenched so hard around the cock that Camille grunted.
+The thumb circled. Didn't enter. Just circled. Yuna's cunt clenched so hard Camille grunted.
+
+'The Nation's Wife. The Nation's Wife is getting her ass played with in a VIP bathroom and she's DROOLING—'
 
 PLAP! PLAP! PLAP! PLAP!
 
-Camille pulled her hair. Not hard — enough. Yuna's neck arched and she could see her own throat in the mirror, the pulse hammering in the vein, and Camille's other hand came around and pressed flat against her stomach, pulling her back onto the cock with every thrust. The angle changed — deeper, the head grinding against her front wall on every stroke — and Yuna's legs buckled.
+Hair pulled. Neck arched. In the mirror: the pulse hammering in her throat, and Camille's hand flat on her stomach pulling her back onto every stroke. The angle shifted. Deeper. The head grinding her front wall.
+
+Her legs gave.
 
 "Ah ♡♡♡!! Ah ♡♡♡♡♡!! AH ♡♡♡♡♡♡♡!!"
 
-Camille held her up. One arm around her waist, holding the actress's body against the counter while the cock worked. The wet sound was obscene — thick, rhythmic, sloppy, the bathroom's marble acoustics amplifying every squelch, every slap of Camille's hips against Yuna's ass. Yuna's reflection was gone. The woman in the mirror was slack-jawed, drooling, her eyes rolled back, the Cartier earrings swinging.
+Camille held her up. One arm. Kept going. The woman in the mirror was gone — slack-jawed, eyes rolled, the Cartier earrings swinging wild.
 
-"Your husband is downstairs," Camille said, not slowing. "In the green room. Practicing his presenter's smile."
+"Your husband is downstairs. Practicing his presenter's smile."
 
 "I know — ♡♡♡♡♡ —"
 
-"While I'm up here splitting his wife open on the counter."
+"While I'm splitting his wife open on the counter."
 
 "I KNOW ♡♡♡♡♡♡♡!!!"
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
-Camille bottomed out and held. Buried to the base. The cock filling Yuna completely, stretching her wide, and she could feel Camille's pulse inside her — the thick throb of the shaft, the twitch of the head pressed against her deepest wall. Camille didn't move. Just held. Yuna squirmed, tried to push back, tried to fuck herself on it, but Camille's hands locked her hips in place.
+Camille bottomed out. Held. Buried to the base. Didn't move.
+
+'I can feel her heartbeat. Inside me. I can feel her HEARTBEAT—'
+
+Yuna squirmed. Tried to push back. Camille's hands locked her hips.
 
 "Daddy — ♡♡♡ — please—"
 
 "Please what?"
 
-"MOVE — ♡♡♡♡♡ — please, I need—"
+"MOVE—"
 
-Camille moved. Hard. Five brutal strokes that cracked through the bathroom like applause.
+Five strokes. Hard. They cracked through the marble like applause.
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
-"What would they say? All those cameras? If they could see the Nation's Wife right now — stuffed full in a VIP bathroom with your forty-million-won dress around your waist?"
+"What would they say? All those cameras? The Nation's Wife, stuffed full, forty-million-won dress around her waist?"
 
 "DADDY ♡♡♡♡♡ — DADDY — DADDY ♡♡♡♡♡♡♡!!!"
 
-Yuna came. Her pussy clamped and her squirt sprayed against the inside of the marble counter and she bit her own arm to muffle the scream.
+Yuna came. Squirt hit the marble counter. She bit her arm to muffle it.
 
 "MMMPH ♡♡♡♡♡♡♡♡♡♡♡!!!"
 
 Camille pulled out. Still hard. Hadn't finished.
 
-"I didn't come," Camille said. "That was for you. We're coming back for more later."
+"That was for you. We're coming back for more later."
 
-Yuna shuddered. Her pussy clenched around nothing and a small aftershock rolled through her.
+***
 
-They cleaned up. Quickly. Camille tucked the cock back into the suit trousers — still hard, straining against the fabric. Yuna smoothed the gown. Checked the mirror. The flush was fading. The hair was intact. The gown showed nothing.
+'That's not me.'
 
-Yuna unlocked the door. Opened it.
+Yuna smoothed the gown. Checked the mirror. Hair intact. Flush fading. Gown showing nothing.
 
-A makeup artist was waiting in the hallway — a young woman with a kit bag, there to touch up presenters between segments. She looked at Yuna. At the flush. At the slightly damp hairline.
+'That woman. That drooling, shaking, broken woman — that was someone else. The actress is back now.'
 
-The makeup artist smiled. Knowingly.
+She unlocked the door. A makeup artist was waiting in the hallway — young, kit bag, there for presenter touch-ups. She looked at Yuna's damp hairline and smiled.
 
 "Dohan-ssi couldn't wait, huh?"
 
-Yuna's face was perfect. The actress. The best in the country.
+The actress. The best in the country.
 
-"You know how it is," Yuna said. "Awards night gets him excited."
+"You know how it is. Awards night gets him excited."
 
-The makeup artist giggled. Touched up Yuna's foundation. Applied a light dusting of powder to the décolletage where the flush was still visible.
+The makeup artist giggled. Touched up her foundation. Powdered the flush on her décolletage.
 
-"You two are so cute," she said. "My boyfriend won't even hold my hand in public."
+"You two are so cute. My boyfriend won't even hold my hand in public."
 
-Yuna caught Camille's eye over the makeup artist's shoulder. The French woman was leaning against the wall, arms crossed, the ghost of a smile on her lips.
+Yuna caught Camille's eye over the artist's shoulder. Arms crossed. Ghost of a smile.
 
-"All done," the artist said. "You look perfect."
+"All done. You look perfect."
 
 "I feel perfect ♡."
 
-They went downstairs. In the stairwell, out of sight, Yuna grabbed Camille's hand and pressed it between her legs — over the gown, the fabric damp, the heat of her cunt radiating through the Dior. She pressed Camille's palm flat and ground against it — one roll of her hips, two — her eyes half-closed, her jaw tight, chasing something that she couldn't have because Camille pulled the hand away.
+In the stairwell, out of sight, Yuna grabbed Camille's hand and shoved it between her legs. Over the gown. Fabric damp. She ground against the palm — one roll, two — eyes half-shut, jaw tight.
+
+Camille pulled the hand away.
 
 "Not yet."
-
-Yuna's eyes went wide. Desperate. Furious.
 
 "You're going to KILL me—"
 
 "I'm going to make you wait."
 
-"I don't WANT to wait — I want you to fuck me on these stairs — I want—"
+"I don't WANT to wait — I want you to fuck me on these stairs—"
 
-"I know what you want." Camille straightened Yuna's gown where the grinding had rumpled it. Smoothed the fabric over her hip. "You'll get it when I decide you get it."
+"You'll get it when I decide you get it."
 
-Yuna stared at her. Breathing hard. The flush climbing her chest again, the powder the makeup artist had applied already dissolving into sweat. Her fists clenched at her sides. Her bottom lip trembled.
+Yuna's bottom lip trembled. The powder was already dissolving into sweat.
 
 She went downstairs.
 
@@ -338,11 +348,15 @@ Yuna's hand spasmed on the thigh. A tiny, choked sound escaped her throat. Heeji
 
 The break between the drama categories and the film categories was fifteen minutes.
 
-There was a corridor behind the auditorium — service corridor, used by staff and catering, dim and narrow, lined with stacked chairs and equipment cases. One moment they were at the table. The next, Camille's hand was on the small of Yuna's back — the bare skin, the backless dress — guiding her up, away, through a side door. Yuna went. She'd have followed that hand anywhere. Down a hallway. Her heels clicking on concrete. The sound of the ceremony fading behind them. Around a corner into shadow. Camille's thumb traced a slow line down Yuna's spine as they walked and Yuna shivered and walked faster.
+Through the walls: applause. The comedian making a joke about streaming numbers. Laughter, rolling like distant thunder.
 
-The corridor. Dim. A rack of folding chairs against one wall. The muffled sound of the ceremony through the walls, laughter rolling like distant thunder.
+Camille's hand on the small of Yuna's bare back. Guiding. Side door. Hallway. Yuna's heels clicking on concrete, fast, getting faster.
 
-Camille pressed her against the wall. The Dior gown against the concrete. Yuna's bare back touching the cold surface and she gasped — from the cold, from the hands on her hips, from the cock she could feel hardening against her stomach through the suit.
+'I'm following her. I'd follow this hand anywhere. I'd follow it off a cliff.'
+
+Around a corner. Dim. A rack of folding chairs. The ceremony muffled through the walls — awards being given, careers being made — and here, in a service corridor that smelled like catering trays, Camille pressed her against concrete.
+
+Cold. Cold on her bare back. Yuna gasped.
 
 "Someone could come—"
 
@@ -352,67 +366,71 @@ Camille pressed her against the wall. The Dior gown against the concrete. Yuna's
 
 "Yes."
 
-"We have maybe ten minutes before—"
+"We have maybe ten—"
 
 "Then stop talking."
 
-Camille lifted the gown. Unzipped. Lifted Yuna by the thighs — one arm, effortless, the actress's legs wrapping around her waist, the heels hooking behind Camille's back. Yuna's bare cunt pressed against the cock — hot, soaking, the slick smearing along the shaft — and Camille rolled her hips once, grinding the length between Yuna's folds without entering, the head dragging over her clit.
+Camille lifted her. One arm. Yuna's legs wrapped around the waist, heels hooking behind Camille's back. The cock pressed against her — hard, hot through the suit — and Camille didn't push inside. Rolled her hips. Ground the shaft between Yuna's folds. The head dragged over her clit.
 
 "Nnh ♡♡♡♡♡—"
 
-"Quiet."
+Another roll. Not entering. Just grinding. Slow. The head nudging her entrance — pressing just enough to spread her open — and sliding away.
 
-Another roll. The cock sliding through the wet, coating itself, Yuna's clit catching on the ridge of the head. Her hips bucked and Camille pinned her to the wall with her weight and did it again. And again. Slow, grinding, the shaft splitting her folds and rubbing every nerve and not going inside. Yuna was soaking the cock — her arousal running down the shaft in strings, dripping onto the concrete floor, the sound of it wet and obscene in the quiet corridor. Her clit was swollen and the head kept catching it on every pass and each catch sent a jolt through her that made her legs tighten around Camille's waist and her heels dig into Camille's back.
+Through the wall: *"...and the award for Best Director goes to..."*
 
-"Daddy — ♡♡♡ — put it in — ♡♡♡♡♡ — please—"
+Through the corridor: the wet sound of Yuna's cunt soaking the cock, her arousal running down the shaft, dripping on concrete.
 
-"Please?" Camille kept grinding. The head nudging Yuna's entrance, pressing just enough to spread her open, and then sliding away. "The Nation's Wife, begging in a service corridor."
+"Daddy — ♡♡♡ — put it in—"
 
-"YES — ♡♡♡♡♡ — yes, I'm begging — ♡♡♡ — please, Daddy, please put it inside me, I need it, I need your cock—"
+"The Nation's Wife. Begging in a service corridor."
 
-Camille pushed inside.
+"YES — ♡♡♡♡♡ — I'm begging — ♡♡♡ — please—"
 
 SCHLURGE!
 
 "NNH ♡♡♡♡♡!!!"
 
-Yuna bit Camille's shoulder. The suit fabric muffled the sound — the corridor had acoustics and anyone within thirty feet would hear.
+Through the wall: applause.
+
+Through the corridor: the choked scream Yuna buried in Camille's shoulder.
 
 PLAP! PLAP! PLAP!
 
-Controlled. Each stroke deliberate, measured, hitting the spot behind her cervix that made Yuna's legs shake and her toes curl inside her heels. The angle was different from the bathroom — deeper, the wall giving Camille leverage to push UP, the cock entering at an incline that dragged the head along Yuna's front wall on every stroke. The actress's face was buried in Camille's neck and her moans came out as vibrations against the collar. Camille could feel Yuna's cunt gripping — tighter than the bathroom, needier, the muscles pulling at the cock on every outstroke.
+'Anyone within thirty feet can hear this. Anyone. And I don't care. I don't CARE—'
+
+Camille fucked her UP. The wall gave leverage. Every stroke lifted Yuna's body, heels scraping Camille's back, the angle dragging the head along her front wall. Her face was buried in the collar and her moans came out as vibrations against Camille's neck.
 
 "Mmph ♡♡♡… mmph ♡♡♡♡♡…"
 
-Camille shifted her grip. Both hands under Yuna's thighs, spreading them wider, opening her up. The new angle let the cock hit deeper and Yuna's whole body jerked and a wet SQUELCH echoed through the corridor and Yuna's moan broke high and desperate.
-
-"♡♡♡♡♡♡♡!!! ♡♡♡♡♡♡♡!!!"
-
-"Your husband is a hundred feet away," Camille whispered, thrusting. "At his table. With his cast."
-
-"He's not — ♡♡♡ — wondering — ♡♡♡♡♡ — he doesn't wonder about me — ♡♡♡♡♡♡♡!!!"
-
-"No. He doesn't."
-
 PLAP! PLAP! PLAP! PLAP!
 
-Camille slowed. Long strokes. Pulling nearly all the way out — the head catching at the rim, Yuna's pussy gripping the ridge, trying to hold it — and then sinking back in. Slow. Full. The entire twelve inches disappearing into Yuna's cunt while the actress shook and drooled against Camille's collar.
+Through the wall: *"Song Jaeho! Congratulations!"*
 
-"But I do. I think about you constantly. I think about you when you're on his arm and I think about you when you're on this cock and I think about you when you're on that stage and I think about you—"
+Through the corridor: SQUELCH. Yuna's moan breaking high and desperate.
+
+"♡♡♡♡♡♡♡!!!"
+
+Camille slowed. Long strokes. Nearly all the way out — Yuna's pussy gripping the ridge, trying to hold it — and then sinking back. Slow. Full.
+
+"But I do." Low. Into her ear. "I think about you constantly. When you're on his arm. When you're on this cock. When you're on that stage."
 
 "Daddy ♡♡♡♡♡♡♡—"
 
-"—because you're MINE. Not his. Not the brand's. Not Korea's."
+"Because you're MINE. Not his. Not the brand's. Not Korea's."
 
 "YOURS ♡♡♡♡♡♡♡♡♡!!!"
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
-Fast again. Brutal. The wet slap of it bouncing off the corridor walls and Yuna's ass was slick with her own arousal and the sound was filthy and loud and the laughter from the ceremony bled through the walls and mixed with it.
+Through the wall: the comedian warming up the audience.
 
-The orgasm was quiet but vicious — Yuna's body seizing, her teeth sinking into Camille's shoulder hard enough that Camille would find the bruise tomorrow, her pussy clenching in waves that milked the cock but Camille HELD, didn't come, controlled it, pulled back from the edge.
+Through the corridor: the wet slap of Camille's hips against Yuna's ass, filthy and loud, mixing with the laughter bleeding through the concrete.
 
-Camille pulled out. Set Yuna down. The actress's legs were shaking, her thighs slick, her breathing ragged.
+'He's out there doing his job. The whole building is out there doing their jobs. And I'm in here getting RUINED against a wall and I'm going to walk back to that table and sit in my own mess and SMILE—'
+
+Yuna bit Camille's shoulder. Hard. She'd find the bruise tomorrow. Her body seized — quiet, vicious — cunt clenching in waves that milked the cock but Camille HELD. Didn't come. Controlled it.
+
+Pulled out. Set her down. Yuna's legs barely held.
 
 "You didn't—"
 
@@ -424,53 +442,49 @@ Camille pulled out. Set Yuna down. The actress's legs were shaking, her thighs s
 
 Yuna whimpered.
 
-They straightened up. The gown fell. The suit adjusted. They walked back toward the auditorium.
+They straightened up. Gown fell. Suit adjusted. Walking back toward the auditorium when a stage manager rounded the corner — headset, clipboard, the hurried walk of live broadcast.
 
-A stage manager rounded the corner. Headset, clipboard, the hurried walk of someone managing a live broadcast. He saw them — Yuna, flushed, slightly breathless, and a tall figure in a dark suit beside her — and his eyes went wide.
+He saw them. Flushed woman. Tall figure in a dark suit. His eyes went wide.
 
-"Ah — Kang Yuna-ssi — you're needed backstage in twenty for the pre-segment — and—" He looked at Camille. At the height, the suit. "—Dohan-ssi, the green room is on the left if you need to—"
+"Ah — Kang Yuna-ssi — you're needed backstage in twenty for the pre-segment — and—" He looked at Camille. The height. The suit. "—Dohan-ssi, the green room is on the left if you need to—"
 
 "That's not—" Yuna started.
 
-"Thank you," Camille said, in Korean. Polite. Low-voiced. Not correcting him.
+"Thank you," Camille said, in Korean. Polite. Low. Not correcting him.
 
-The stage manager nodded and rushed past.
+He rushed past.
 
-Yuna looked at Camille. The laughter started in her stomach and she had to clamp both hands over her mouth to keep it from exploding through the corridor.
+Yuna looked at Camille. The laughter started in her stomach and she clamped both hands over her mouth.
 
 "He thought you were DOHAN—"
 
 "I heard."
 
-"He looked RIGHT at you and thought—"
-
-"The suit."
-
-"The SUIT! You're a foot taller than Dohan and you don't have a FACE that launches a thousand cosmetics campaigns—"
+"He looked RIGHT at you—"
 
 "Dark corridor. Tall person. Suit. Wife."
 
-Yuna was shaking with suppressed laughter.
+Yuna was shaking.
 
-"This is the best night of my life," she whispered.
+"This is the best night of my life."
 
 "The award?"
 
-"Fuck the award. YOU. Here. With me. Only for me." She pressed her face against Camille's chest. The suit fabric was warm. Vetiver. Musk. The faint undertone of sex. "Nobody has ever been just for me. At anything. Ever."
+"Fuck the award." She pressed her face against Camille's chest. Vetiver. Musk. The undertone of sex. "Nobody has ever been just for me. At anything. Ever."
 
 Camille kissed the top of her head.
 
-"Back to the table," Camille said. "Your category is in forty minutes."
+"Back to the table. Your category is in forty minutes."
 
 "Forty minutes is a long time, Daddy ♡."
 
-"It is. Behave."
+"Behave."
 
 "I can't behave. You made me this way."
 
 "Behave anyway. I'll reward you after."
 
-They went back to the table. Heejin noticed immediately.
+They went back. Heejin noticed immediately.
 
 "Where did you GO? You missed Best Director. Song Jaeho won and his wife CRIED."
 
@@ -482,29 +496,35 @@ They went back to the table. Heejin noticed immediately.
 
 "You showed her where the BATHROOM was." Heejin's eyebrow climbed. "Yuna-ya. You are the worst liar in this entire industry, which is saying something because this industry was BUILT on lying."
 
-"She's not lying," Camille said, smooth. "She showed me where the bathroom was. She's a good host."
+"She's not lying," Camille said. "She showed me where the bathroom was. She's a good host."
 
 "She's a good SOMETHING," Heejin muttered, and drank her wine.
 
-Yuna sat. Crossed her legs. Uncrossed them. Her cunt was swollen and slick and the corridor had left her raw — the concrete against her back, the cock hammering up into her while her legs wrapped around Camille's waist — and the rawness was a pulse, a steady throb that synced with her heartbeat, and every throb sent a small shockwave through her clit. She could feel the cum that wasn't there. The absence of it. Camille had come inside her in the bathroom but pulled out before finishing in the corridor and the difference — full vs. empty, claimed vs. teased — was making her desperate in a way that two orgasms hadn't touched.
+Yuna sat. Crossed her legs. Uncrossed them.
 
-Under the table, Yuna's hand found Camille's thigh again. Her fingers dug into the suit fabric and found the muscle underneath and moved lower, along the inseam, tracing the hard shape through the fabric — the cock she'd had inside her ten minutes ago, still hard, the ridge of it straining against the trouser seam. Her fingers traced it in small desperate movements. Up the shaft. Down. Pressing the fabric into the groove at the head. Her palm cupping the heat of it. She squeezed, gently, and felt it pulse against her hand and her cunt clenched in response — sympathetic, Pavlovian, the muscles remembering what that pulse felt like inside her.
+'I can feel the cum that ISN'T there. She came inside me in the bathroom but pulled out in the corridor and the difference — full vs. empty — is making me insane.'
 
-Camille's hand covered hers. Stilled it. *Not yet.*
+Under the table, her hand found Camille's thigh. Moved lower. Along the inseam. The hard shape through fabric — the cock she'd had inside her ten minutes ago, still hard, straining against the trouser seam. She traced it. Up. Down. Pressed the fabric into the groove at the head. Squeezed.
 
-But not entirely. Camille held Yuna's hand against the cock — pressed flat, not moving, just THERE, feeling it throb through the fabric, the heat of it against her palm, the slow thick pulse that matched Camille's heartbeat. Yuna couldn't stroke. She could feel. Every beat. Every twitch. The cock was right there under her hand and she couldn't have it and the denial made her cunt slick enough that she could feel it on the inside of her thighs, dampening the stockings, the residual cum from the bathroom mixing with fresh arousal until she was sitting in a warm wet ruin of herself and smiling for the cameras and clapping for Best Supporting Actress.
+It pulsed against her palm. Her cunt clenched in response.
 
-Camille's thumb drew one slow circle on the back of Yuna's hand. Permission. Yuna's fingers curled around the shaft through the fabric — one squeeze, two — and then Camille's hand covered hers again and stilled it.
+Camille's hand covered hers. Stilled it.
 
-Yuna's nails dug into Camille's thigh once, hard, and then her hand went limp under Camille's.
+But didn't remove it. Held it there. Pressed flat against the cock. Not moving. Just THERE. Feeling every throb through the fabric. Every twitch. The slow thick pulse that matched Camille's heartbeat.
+
+'I can't stroke. I can only feel. And the feeling is worse than nothing because it's RIGHT THERE and I can't have it and I'm sitting in a warm wet ruin of myself clapping for Best Supporting Actress—'
+
+One slow circle from Camille's thumb on the back of Yuna's hand. Permission. Yuna's fingers curled around the shaft — one squeeze, two — and the hand covered hers again.
+
+Stilled.
+
+Yuna's nails dug into Camille's thigh. Hard. Then her hand went limp.
 
 Obedient.
 
-She sat through Best New Director obediently. She clapped and smiled and laughed at Heejin's commentary. Her thighs pressed together and the wetness cooled on her skin and her cunt pulsed around nothing — the stretch-memory of the cock, the ghost of it, the shape it had left — and every pulse sent a shock through her clit that made her stomach tighten and her jaw clench and the smile falter for one second before the actress caught it.
+She sat through Best New Director. Clapped. Smiled. Laughed at Heejin's commentary. Her cunt pulsed around nothing — the ghost-shape of the cock, the stretch-memory — and the smile faltered for one second before the actress caught it.
 
-Camille's hand rested on Yuna's thigh. Not moving. Just warm. And the warmth seeped through the gown and Yuna's skin was so sensitized that even the still pressure of a resting hand was almost too much. Her pussy throbbed against the wet gown lining. Her nipples were hard enough to ache. Her clit was so swollen that the fabric pressing against it was a kind of torture and she couldn't shift in her seat without a small wet friction that made her eyes water.
-
-Heejin won Best Screenplay. The table erupted. Yuna stood and cheered and hugged the producer and her legs were trembling and there were tears in her eyes — from happiness, from pride, from the fact that standing up had changed the pressure on her clit and she'd nearly come from the gown rubbing against her when she clapped.
+Heejin won Best Screenplay. The table erupted. Yuna stood and cheered and hugged the producer and her legs were trembling and there were tears in her eyes — from happiness, from pride, from the fact that standing up had shifted the pressure on her clit and she'd nearly come from the gown rubbing against her when she clapped.
 
 ***
 
@@ -570,81 +590,95 @@ Dahye ordered another champagne. She drank it fast. Her thighs stayed pressed to
 
 ***
 
-The third time happened backstage.
+The third time was the funniest.
 
-Yuna had been called for the pre-segment — a thirty-second intro package before her category. She was in the wings, waiting, a PA with a headset counting her down, when Camille appeared. Past the equipment, in the narrow corridor between the wings and the green rooms, where the cables ran along the floor and the only light was the blue glow of an emergency exit sign.
+Yuna was in the wings. PA with a headset counting down her pre-segment. Four minutes. Her face on a monitor — the intro package, her performance in *Grace*, the clip of her crying in the rain.
 
-Camille took Yuna's wrist and pulled her two steps sideways, behind a rack of stage lights, into a pocket of darkness that smelled like dust and hot electronics.
+On the monitor: the actress. Luminous. Serious. A woman of depth.
+
+Behind a rack of stage lights, in a pocket of darkness that smelled like dust and hot electronics: Camille's hand around her wrist, pulling her two steps out of the PA's sightline.
 
 "I'm on in four minutes—"
 
-Camille's mouth was on her neck. Teeth on the tendon. Tongue on the pulse point. One hand went under the gown and pushed past the ruined stockings, fingers sliding through the mess — cum from the bathroom, arousal from the corridor, fresh slick from the under-table torture — and two fingers sank in and Yuna's knees buckled.
+Mouth on her neck. Teeth. One hand under the gown, past the ruined stockings, fingers sliding through the mess — cum from the bathroom, slick from the corridor, fresh arousal from the under-table torture — and two fingers sank in.
+
+Yuna's knees buckled.
 
 "AH ♡♡♡♡♡!!"
 
-"Two minutes," Camille said against her throat. Her fingers curled. Yuna's hips jerked and her hands grabbed Camille's lapels and her mouth fell open and a string of drool hung from her bottom lip.
+On the monitor: the actress accepting a bouquet of roses, gracious, composed.
+
+Behind the stage lights: three fingers now. Yuna's head cracking against the rack, metal rattling, Camille's hand clamping over her mouth. Fast. Wet. Obscenely loud in the small space.
+
+"MMH ♡♡♡♡♡!! MMHH ♡♡♡♡♡♡♡!!"
+
+"Two minutes."
 
 "That's not enough—"
 
 "It's enough."
 
-A third finger. Yuna's eyes rolled back and her head hit the stage light rack and the metal rattled and Camille clamped her other hand over Yuna's mouth and pumped all three fingers, fast, the wet squelching obscenely loud in the small space.
+Camille pulled the fingers out. Put them in her own mouth. Tasted. Swallowed.
 
-"MMH ♡♡♡♡♡!! MMHH ♡♡♡♡♡♡♡!!"
-
-Camille withdrew the fingers and brought them to her own mouth. Tasted. Yuna watched through half-closed eyes — the fingers disappearing between Camille's lips, the jaw working, the swallow.
-
-Then Camille spun her. Face against the wall. The gown hiked. The cock found her — Yuna's pussy was so wet that the head slipped twice before Camille gripped her hip and pushed.
+Then spun her. Face to the wall. Gown hiked. The cock slipped twice — too wet, everything too wet — before Camille gripped her hip and pushed.
 
 SCHLURGE!
 
-Yuna's moan was bitten into her own forearm. The backstage wall was thin. The audience was on the other side. She could hear the hosts doing their intro forty feet away. The comedian's voice: *"...and now, the moment we've been waiting for — Best Actress in a Television Drama..."*
+Yuna bit her own forearm. The wall was thin. The audience was RIGHT THERE. She could hear the comedian:
+
+*"...and now, the moment we've been waiting for — Best Actress in a Television Drama..."*
 
 PLAP! PLAP! PLAP!
 
-Hard. Fast. No restraint left. Camille's hips slamming into Yuna's ass and the wet clap of it mixing with the applause bleeding through the wall. Yuna's face was pressed against the concrete and her mascara was finally running and she could feel every inch of the cock — thick, deep, stretching her open, the head battering the back of her cunt on every stroke. Her body clamped down so hard that each thrust pulled a wet SCHLUCK on the outstroke, the suction audible, her pussy trying to swallow the cock whole.
+No restraint. None left. The wet clap mixing with the applause bleeding through the wall — two kinds of applause, one for excellence and one for being split open backstage with her mascara running.
 
-"Mmph ♡♡♡!!! Mmph ♡♡♡♡♡!!!"
-
-Camille grabbed a fistful of Yuna's hair and pulled her head back from the wall. The actress's mouth hung open, mascara streaking black lines down her cheeks, eyes glazed, the tendons in her neck standing out. Camille fucked her like that — head pulled back, throat exposed — the muscles in her forearm cording from the grip on the hair and the muscles in her hips flexing with each thrust.
-
-PLAP! PLAP! PLAP! PLAP! PLAP!
-
-"Your category is next," Camille said into her ear. "You're going to walk on that stage with me dripping down your legs."
-
-"MMPH ♡♡♡♡♡♡♡!!!"
+'That's my category. That's MY CATEGORY. They're announcing my category and I'm — I can't even — oh God — oh GOD—'
 
 PLAP! PLAP! PLAP! PLAP!
 
-Yuna's own face was on the screen — the intro package playing, her performance in *Grace*, the clip of her crying in the rain — and the real Yuna was right here with her teeth in her arm and twelve inches of cock buried in her cunt and her mascara ruined and her stockings soaked and the forty-million-won gown bunched around her waist.
+Camille's fist in her hair. Head pulled back. Throat exposed.
 
-Camille bottomed out. Held. Pulled Yuna's hips flush against her own and ground deep — not thrusting, grinding, the cock stirring inside Yuna's cunt in slow circles that hit every wall, every ridge, the head rubbing places that made Yuna's legs give out entirely. Camille held her up by the hair and the hip and kept grinding.
+"You're going to walk on that stage with me dripping down your legs."
 
-"Nnh ♡♡♡♡♡♡♡… nnh ♡♡♡♡♡♡♡♡♡… DADDY ♡♡♡♡♡♡♡♡♡♡♡!!!"
+"MMPH ♡♡♡♡♡♡♡!!!"
+
+PLAP! PLAP! PLAP! PLAP! PLAP!
+
+On the monitor: her own face. The crying-in-the-rain scene. Beautiful. Devastating.
+
+Behind the stage lights: mascara streaking black lines down her cheeks. Drool on her chin. The gown bunched around her waist. Every thrust pulled a wet SCHLUCK on the outstroke — her pussy trying to swallow the cock.
+
+'That woman on the screen is going to win. And THIS woman — this one, the one making sounds she can't control — she's going to walk out there and accept it. Same person. Same person.'
+
+Camille bottomed out. Ground deep. Not thrusting — stirring. Slow circles that hit every wall. Yuna's legs gave out completely. Camille held her up by the hair and the hip.
+
+"Nnh ♡♡♡♡♡♡♡… DADDY ♡♡♡♡♡♡♡♡♡♡♡!!!"
 
 Camille came.
 
-SPURT! SPURT! SPURT!
-
-Inside her. Deep. The cum flooding her pussy in thick pulses and Yuna came at the same instant — silently, violently, her body convulsing against the wall, her squirt soaking the backstage floor, and through the wall she heard the presenter opening the envelope:
+Inside. Deep. Thick pulses flooding her and Yuna came at the same instant — silent, violent, squirt soaking the backstage floor — and through the wall:
 
 *"Kang Yuna, Grace."*
 
-Applause. Standing ovation.
+Standing ovation.
 
-Camille pulled out. The cum followed — a trickle that Yuna clenched against, kegels firing, holding as much as she could inside.
+'That's me. Go. GO.'
 
-"Go," Camille said. "You have an award to accept."
+Camille pulled out. Cum followed. Yuna clenched — kegels firing, holding what she could.
 
-Yuna turned. Her face was — Camille wiped under her eyes with her thumbs. The mascara. Quick. Precise. Good enough.
+"Go. You have an award to accept."
 
-She pulled the gown straight. Smoothed it. Took one breath. Two. Her legs were shaking. Her thighs were slick — cum and squirt and arousal soaking the emergency stockings, the gown lining damp against her skin. Her cunt was swollen, pulsing, raw from three fucks in three hours. Her clit was throbbing against the wet fabric. Her nipples were hard and visible through the Dior and there was nothing she could do about that.
+Camille wiped under her eyes with both thumbs. Mascara. Quick. Good enough.
 
-She took a third breath.
+Gown pulled straight. One breath. Two.
 
-Then she walked onto the stage.
+'I have cum inside me. I'm about to walk in front of two thousand people with cum inside me and my stockings soaked and my clit throbbing and my nipples cutting through forty million won of Dior and I'm going to SMILE.'
 
-The lights hit her and she almost stumbled — the heat of them on her flushed skin, the roar of the ovation rolling over her like a wave. Her legs carried her to the podium on muscle memory. Every step shifted the cum inside her. Every step made the wet stockings slide against her thighs. Every step rubbed the damp gown lining against her clit and by the time she reached the podium she was biting the inside of her cheek hard enough to taste copper.
+Three.
+
+She walked onto the stage.
+
+The lights hit her. The roar rolled over her. Her legs carried her to the podium on muscle memory. Every step shifted the cum. Every step rubbed the wet gown lining against her clit. By the time she reached the podium she was biting her cheek hard enough to taste copper.
 
 ***
 
@@ -682,9 +716,11 @@ Dohan found her there. He appeared at her elbow with two champagne flutes and th
 
 "Right. Right."
 
-They stood together. The photo-op. Colleagues approaching to congratulate, to air-kiss. Yuna received them all — smiling, gracious — while cum leaked into the emergency stockings she'd borrowed from a PA backstage. She could feel it. Every time she shifted her weight, every time she turned to accept a handshake, the cum shifted inside her, warm and thick, and a fresh trickle would slip down and her stockings would absorb it and she'd smile a little wider because the alternative was moaning. Her pussy was swollen and tender and still clenching in small involuntary spasms — aftershocks from the backstage, the muscles refusing to settle — and Dohan's hand was on her waist and his cologne was in her nose and her body was full of another person's cum and her thighs were sticky and her clit was pulsing against the wet fabric and she was the Best Actress in Korea.
+They stood together. Photo-op. Colleagues approaching to congratulate, to air-kiss. Yuna received them all — smiling, gracious — while cum leaked into the stockings she'd borrowed from a PA backstage.
 
-She excused herself from a conversation with a PD to press her thighs together. Hard. The pressure on her clit sent a sharp bolt through her and she bit the inside of her cheek and her knees almost buckled and Dohan's hand tightened on her waist — steadying her, solicitous, the attentive husband.
+Every time she shifted her weight: a trickle. Every time she turned to accept a handshake: another. She smiled wider because the alternative was moaning. Dohan's hand was on her waist. His cologne in her nose. Another person's cum inside her. Best Actress in Korea.
+
+She pressed her thighs together. Hard. The pressure on her clit sent a bolt through her and her knees almost buckled and Dohan's hand tightened — steadying, solicitous.
 
 "You okay?"
 
@@ -698,7 +734,9 @@ He looked at her. For a second — one second — something real moved behind th
 
 Then someone called his name and the second passed.
 
-Camille was across the room. At the bar. Talking to Heejin, who was drunk and delighted and telling everyone within earshot that her table had the best energy in the entire auditorium. Yuna watched Camille's hands — the long fingers wrapped around a whiskey glass, the same fingers that had been inside her three times tonight, the fingers she could still feel — and her cunt clenched again and a fresh pulse of cum leaked out and she shifted her weight and smiled at a stylist who was complimenting her dress.
+Camille was across the room. At the bar. Talking to Heejin, who was drunk and delighted. Yuna watched Camille's hands — the fingers wrapped around a whiskey glass. The same fingers that had been inside her three times tonight.
+
+She shifted her weight. Smiled at a stylist complimenting her dress.
 
 A producer approached Dohan. Lee Jaewon — silver-haired, powerful, the head of the production company that had greenlit *Grace*. He shook Dohan's hand with the two-handed grip.
 
