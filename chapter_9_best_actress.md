@@ -2,769 +2,623 @@
 
 ---
 
-The gown cost forty million won.
+The limo was Dohan's idea.
 
-Yuna knew because she'd watched them build it — three fittings at the Dior atelier in Cheongdam, a French seamstress flown in from Paris who measured the same hip twice because the first measurement couldn't be right (*"Elle est trop parfaite"*), and a fabric that moved like water and weighed like a promise. Midnight blue, floor-length, backless to the waist. It was the kind of dress that restructured a room's attention the moment it appeared. The kind of dress designed to make three hundred industry professionals, twelve cameras, and the entire KBS viewership forget that any other woman existed.
+Not because he wanted to share the ride — because the optics were better. Korea's golden couple arriving at the 63rd Baeksang Arts Awards together, stepping out of the same car, the same frame, the photo that would run in every entertainment outlet by morning. The brand required proximity. So Manager Kim booked the car, the driver, the forty-five-minute route from Gangnam to COEX that gave the paparazzi time to set up.
 
-The stylist had finished at four. Hair swept up, a few strands artfully loose. Makeup that looked like no makeup but cost two hours and seventeen products. The diamond earrings from Cartier — contractual obligation, but they did catch the light beautifully. Yuna stood in the hallway mirror of the Gangnam penthouse and looked at herself and saw what Korea would see at eight o'clock tonight: perfection. The Nation's Wife, polished, poised, ready to accept the Best Actress award at the 63rd Baeksang Arts Awards for her role in *A Woman Alone*.
+What Manager Kim had not planned for was the third passenger.
 
-The irony of the title sat in her chest like a bone.
+Yuna had texted at 4 PM: *I'm bringing a guest. Professor Camille Beaumont, Haneul College. She's interested in Korean cultural events. Add her to my table.* Manager Kim had added the name to the seating chart without comment because Manager Kim's job was logistics, not questions, and Kang Yuna's guest list was Kang Yuna's business.
 
-Dohan was already at the venue. He was presenting — not nominated, just presenting, which he'd pretended was fine with the studied casualness of a man who'd been nominated three times and never won. He'd left the penthouse at two without saying goodbye. Manager Kim had texted his location updates: *2:15 arrived venue. 2:30 green room. 3:00 rehearsal. 3:45 press line.* The machinery of Kang Dohan's public existence, ticking along without her.
+The limo picked up Dohan first, at the Gangnam penthouse. He was in a charcoal Tom Ford suit, hair styled, cologne applied — *Sauvage*, because it tested well. He sat in the back seat scrolling his phone, liking fan posts, performing the digital maintenance of a man whose career ran on visibility.
 
-Yuna had three hours before she needed to be there.
+Then the car pulled up to a bar in Mapo-gu, and Yuna got in.
 
-She told Manager Kim she was napping. Do not disturb until 6:30. Phone off.
+She was in midnight-blue Dior. Floor-length, backless to the waist, the kind of dress that made rooms reorganize around it. The Cartier diamonds. Hair swept up. She looked like what she was — the most beautiful woman in Korean entertainment on the biggest night of her career.
 
-She took the midnight-blue gown, the Cartier diamonds, the two-hour face, the swept-up hair — all of it — and got in a cab to Mapo-gu.
+She was not alone.
+
+Camille Beaumont folded herself into the limo after Yuna, ducking the door frame, and the car's interior shrank. She was wearing a black suit — tailored, narrow-lapeled, the kind of suit that cost less than a tenth of the Dior gown and looked ten times more dangerous. White shirt, open collar, no tie. Her hair was down, brushed, hanging past her jaw. She looked like a woman who'd been dressed by someone who understood that the body underneath was the real outfit and the fabric was just there to make it socially acceptable.
+
+Dohan looked up from his phone.
+
+"Ah," he said. "The professor."
+
+"Dohan-ssi." Camille extended her hand. The grip was firm. Dohan's was practiced. Their hands met and parted and that was the entirety of their physical interaction for the evening.
+
+"Yuna tells me you teach philosophy."
+
+"Western philosophy. At Haneul."
+
+"Interesting. I nearly studied philosophy before acting. Yonsei offered me a spot."
+
+"What made you choose acting?"
+
+"The money." He laughed — the charming laugh, the one that had won three magazine covers and a cologne endorsement. "And the lifestyle. Philosophy seemed—"
+
+"Lonely?"
+
+"Quiet." He put his phone away. Tried to engage. He was not a bad man. He was a man who had been performing so long that the performance had consumed the person, and what remained was pleasant and empty and unfailingly polite. "How are you finding Korea?"
+
+"I love it."
+
+"The food?"
+
+"The people."
+
+"Ah, yes. Korean people are very warm."
+
+Camille turned to Yuna.
+
+That was it. The conversation with Dohan was over. Not rudely — Camille hadn't dismissed him, hadn't cut him off. She'd simply answered his last question and turned to the person she actually wanted to talk to, and the turn was absolute. Her body angled toward Yuna. Her knee touched Yuna's knee. Her hand found the seat between them and Yuna's hand found it too, their fingers interlacing under the folds of the Dior gown where Dohan couldn't see.
+
+"You look incredible," Camille said to Yuna. Low. Private. The voice that was just for her.
+
+Yuna's face did the thing — the thing Dohan hadn't seen in three years because he'd stopped looking. The glow. Not blush, not flush — glow. A warmth that started behind her eyes and radiated outward through her skin until she looked lit from the inside, nuclear, the difference between a woman who was beautiful and a woman who was beautiful AND wanted.
+
+"You look—" Yuna bit her lip. Glanced at Dohan. Decided she didn't care. "You look like you're going to get me in trouble tonight."
+
+"That's the plan."
+
+Yuna laughed. Not the press laugh — the ugly one, the real one, the one where her nose crinkled and her head tipped back and her mouth opened too wide and she looked like a human being instead of a brand. Camille laughed with her, and their laughter filled the limo, and Dohan sat across from them and watched his wife be happy with someone else and didn't know what to do with his face.
+
+He picked up his phone.
+
+For the next thirty minutes, Yuna and Camille existed in a world of two. They talked — about the dress, about the nomination, about a book Camille had lent her, about the restaurant where Soojin had served them a tasting menu that made Yuna cry. They talked the way people talk when they are genuinely fascinated by each other — leaning in, finishing sentences, laughing at things that weren't jokes because the intimacy made everything funny. Yuna's hand stayed in Camille's. At one point she put her head on Camille's shoulder and Camille kissed the top of her head — automatic, tender, the gesture of someone who did this every day and didn't think twice.
+
+Dohan watched this on his phone screen. Not directly — he was scrolling Instagram, but his eyes kept drifting up over the top of the phone, catching fragments. His wife's head on a woman's shoulder. Their tangled fingers. The laughter that he couldn't produce in her anymore.
+
+He didn't say anything.
+
+He liked a fan post instead. *Dohan-oppa and Yuna-unnie are GOALS 😍 #gukminbubu*
 
 ***
 
-Camille was reading when the door opened.
+The red carpet was a wall of light.
 
-She looked up from *Human Acts* and the book fell out of her hands. Not from surprise — from the image. Kang Yuna in a forty-million-won Dior gown, standing in the doorway of a one-room apartment above a bar, holding her skirt off the dirty hallway floor with one hand and carrying her heels in the other. She'd walked up the stairs barefoot. The Cartier diamonds caught the apartment's dim light and threw tiny rainbows on the water-stained ceiling.
+The limo pulled up and Manager Kim was there with the clipboard and the earpiece and the tight smile. The door opened. Dohan stepped out first — the wave, the smile, the algorithm — and the press pit erupted. *"Dohan-ssi! Over here! This way!"*
 
-"I have two hours," Yuna said.
+Yuna stepped out next. The Dior gown hit the light and the cameras doubled their rate. The midnight blue caught every flash and threw it back and the audible gasp from the fan section was real — not performed, not polished, the genuine sound of several hundred people seeing something extraordinary.
 
-"You're wearing—"
+And then Camille stepped out.
 
-"The Baeksang dress. Yes."
+She unfolded from the limo — all six foot two of her, the black suit, the open collar, the body that made the suit look like wrapping paper on a weapon — and a different kind of murmur went through the press pit. Not recognition. Curiosity. *Who is that? Is she a model? An athlete? She looks like—*
 
-"You came here in the Baeksang dress."
+Manager Kim's clipboard wavered. "Yuna-ssi, the press line is—"
 
-"I came here IN the Baeksang dress because I'm going to the Baeksang ceremony FROM here and I want to stand on that stage with you still inside me."
+"In a moment." Yuna took Camille's arm. Not Dohan's. Camille's. The actress threaded her hand through the crook of the French woman's elbow and they stood together on the carpet and the press pit fired and fired and fired because whatever THIS was, it photographed beautifully.
 
-The sentence landed in the room and the room changed temperature.
+Dohan was already moving down the carpet. He paused, turned, saw his wife on someone else's arm, and — the mask. The pleasant, empty, unfailing mask.
 
-Camille stood. Her eyes tracked the dress — the way it moved, the way it draped, the bare back that looked like an invitation to ruin something expensive. She crossed the room and Yuna didn't step back. Didn't flinch. Three months ago, on this futon, she'd been a shaking woman in a bucket hat ordering whiskey and trying not to exist. Now she was standing in Dior and declaring intent.
-
-"The dress can't get wrinkled," Yuna said. "The dress can't get stained. Nobody can see a mark. I have to walk out of here looking exactly the way I walked in."
-
-"That's a constraint."
-
-"It's a challenge. You like challenges."
-
-Camille's hand found the back of the gown. The bare back — skin, muscle, the elegant architecture of the spine. Her palm pressed flat and Yuna's breath hitched.
-
-"If I can't take the dress off," Camille said, "I'll have to work around it."
-
-"I'm counting on that."
-
-Camille's other hand went under the skirt. The fabric was heavy and the lining was silk and underneath it Yuna was wearing — Camille's hand traveled up the thigh, past the lace top of a stocking, past the garter, to—
-
-Nothing.
-
-"You didn't wear underwear."
-
-"They show through the dress." The lie was flawless. Delivered with the timing of a woman who'd been lying to cameras for a decade. The truth was simpler: she hadn't worn underwear because she wanted Camille's cum to have nowhere to go except inside her for the next five hours.
-
-"Yuna."
-
-"Daddy ♡."
-
-The word in that dress. In the diamonds. With the makeup perfect and the hair swept up and the entire apparatus of Korea's most beloved woman wrapped around a body that was calling a French professor in a walk-up apartment *Daddy*. The dissonance was pornographic.
-
-Camille shoved her against the wall. Not the futon — the wall, next to the bookshelf, where the plaster was cracked and a water pipe ran behind it and Han Kang novels were stacked at knee height. The forty-million-won Dior gown pressed against the wall of an apartment that cost eight hundred thousand won a month and the metaphor was not subtle and neither was Camille.
-
-"Lift the skirt," Camille ordered.
-
-Yuna gathered the midnight-blue fabric in both fists and hiked it to her waist. Below: bare legs, the tops of the stockings, the garter, and between her thighs — wet. Already wet. She'd been wet since the penthouse mirror, since the moment she'd decided to come here, since the plan had formed in her head with the clarity of a script she'd been waiting to perform.
-
-Camille pulled down her sweatpants. The cock sprang free and Yuna looked at it the way she always did — with the starving evaluation of a woman who'd been fed rice cakes for a decade and was now being offered the entire buffet.
-
-"Lift me," Yuna said.
-
-Camille's hands went to her ass — under the gown, gripping, lifting. Yuna weighed nothing in the dress. She wrapped her legs around Camille's waist, the gown cascading around them like a stage curtain, and Camille positioned the head against her entrance and pushed up.
-
-SCHLURGE!
-
-"HNNNGH ♡♡♡♡♡!!!"
-
-Standing. Against the wall. The full twelve inches sinking into her as gravity pulled her down and Camille pushed up and the combined force seated the cock so deep that Yuna felt it in her ribs. Her head dropped back against the wall. The carefully arranged hair crushed against the plaster.
-
-'*The hair,*' some distant part of her brain noted. '*The stylist spent forty minutes on the hair.*'
-
-The rest of her brain told that part to go fuck itself.
-
-"Daddy ♡♡♡… Daddy, it's so deep ♡♡♡♡♡…"
-
-"You're going on stage in two hours," Camille said, not moving yet. Just holding her there. Impaled. Suspended. The weight of the gown dragging around them, the silk lining sticking to Yuna's sweating thighs. "You're going to stand at a podium in front of the entire Korean entertainment industry and accept an award. And the whole time—"
-
-"I know ♡♡♡."
-
-"—you're going to feel this. The ache. The stretch. You're going to be sore and the soreness is going to remind you where you were. Who you were under."
-
-"I KNOW ♡♡♡♡♡."
-
-Camille began to move.
-
-PLAP! PLAP! PLAP!
-
-Short, vicious thrusts that used gravity and the wall and the angle to drive the cock UP into Yuna's body, battering her cervix, rearranging her insides while the forty-million-won gown bounced and swayed with each impact.
-
-"♡♡♡!!! ♡♡♡!!! ♡♡♡!!!"
-
-"What's the acceptance speech?" Camille asked. Conversational. Like they were discussing dinner plans, not fucking against a wall.
-
-"I — ♡♡♡ — I haven't — ♡♡♡♡♡ — I have cards—"
-
-"In the clutch?"
-
-"In the — NNH ♡♡♡♡♡ — in the clutch, yes—"
-
-"What do they say?"
-
-PLAP! PLAP! PLAP! PLAP!
-
-"They say — ♡♡♡♡♡ — thank you to the director — ♡♡♡♡♡♡♡ — thank you to the cast — ♡♡♡♡♡♡♡♡♡ — and thank you to my HUSBAND—"
-
-Camille slammed into her. Hard.
-
-"AHHH ♡♡♡♡♡♡♡♡♡!!!"
-
-"Thank your husband?"
-
-"I have to — ♡♡♡ — it's expected — ♡♡♡♡♡ — everyone thanks their—"
-
-"Thank him for what?"
-
-PLAP! PLAP! PLAP! PLAP! PLAP!
-
-"For — ♡♡♡♡♡ — his SUPPORT — ♡♡♡♡♡♡♡ — his unwavering—"
-
-"His unwavering what?"
-
-"HIS FIVE-INCH COCK AND HIS THREE-MINUTE EFFORT AND HIS COMPLETE DISINTEREST IN WHETHER I COME ♡♡♡♡♡♡♡♡♡♡♡!!!"
-
-Camille laughed against her throat. The vibration traveled through Yuna's chest and made her pussy clench.
-
-"Say it at the podium."
-
-"I'll say — ♡♡♡♡♡ — I want to thank my husband — ♡♡♡♡♡♡♡ — for always being there—"
-
-"Where is he?"
-
-"Second bedroom — ♡♡♡ — always the second — HARDER—"
-
-PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
-
-"And while you're thanking him—"
-
-"I'll feel you — ♡♡♡♡♡ — I'll feel where you ARE — ♡♡♡♡♡♡♡ — every word of that speech, every thank you, every BOW — ♡♡♡♡♡♡♡♡♡ — I'll feel your cum dripping out of me — ♡♡♡♡♡♡♡♡♡♡♡!!!"
-
-The loop caught. The thing that made Yuna different from the others — her loop fuel wasn't rage or rebellion or liberation. It was performance inversion. The thrill of the performance ITSELF — the knowledge that she was performing one thing while being another. The Nation's Wife accepting a Best Actress award while leaking her French Daddy's cum. The acting was the kink. The bigger the stage, the harder she came.
-
-PLAP! PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
-
-"DADDY ♡♡♡♡♡♡♡!!! FILL ME UP — ♡♡♡ — FILL ME UP SO I CARRY YOU ON THAT STAGE — ♡♡♡♡♡♡♡ — FILL YOUR NATION'S WIFE SO SHE CUCKS THE NATION ♡♡♡♡♡♡♡♡♡♡♡!!!"
-
-Camille came.
-
-SPURT! SPURT! SPURT! SPURT!
-
-Deep. Buried. The cum flooding Yuna's pussy in thick pulses, filling her, overfilling her, pooling in the spaces the cock didn't reach and pressing against her cervix and she felt it — HOT, liquid, unmistakable — and the sensation triggered her own orgasm.
-
-"NNNGGGHH ♡♡♡♡♡♡♡♡♡♡♡♡♡!!!"
-
-Her pussy clamped and her squirt sprayed around the shaft and soaked the lining of the Dior gown — the INSIDE, where nobody would see — and Yuna screamed into Camille's shoulder and bit down and the bite would leave a mark but Camille didn't have to walk a red carpet, so it didn't matter.
-
-SPURT… spurt… spurt…
-
-Camille held her there. Pinned against the wall. The cock still inside, softening slowly, keeping the cum in. Neither of them moved. Yuna's breathing came in ragged gasps, her face buried in Camille's neck, the Cartier diamonds tangled in strands of escaped hair, the makeup — so far — intact, because her face hadn't been near a pillow or a sheet. Just Camille's neck. Just skin.
-
-"Don't pull out yet," Yuna whispered.
-
-"I wasn't going to."
-
-"When you do — pull out slow. I need to keep as much inside as I can."
-
-"That's going to leak."
-
-"Not if I clench." She pulled her head back. Her eyes were glazed, mascara untouched, the face that would be on twelve cameras in ninety minutes perfectly composed except for the flush across her cheeks that she'd tell the stylist was a reaction to a new foundation. "I've been doing kegels. Every day. For this."
-
-"For an award ceremony?"
-
-"For THIS. Standing at the Baeksang podium with a pussy full of Daddy's cum. I've been PLANNING this since I got the nomination three weeks ago."
-
-She'd been planning for three weeks. The kegels, the no-underwear logistics, the timing, the route from Mapo-gu to the COEX Convention Center in Gangnam, the excuse for Manager Kim, the hair that could survive being pressed against a wall. Three weeks of preparation for the most elaborately staged infidelity in Korean entertainment history.
-
-"You're insane," Camille said, with admiration.
-
-"I'm the best actress in the country. I should be able to hold cum." She clenched demonstratively around the cock still inside her and Camille groaned. "See? Iron."
-
-"Careful or I'm going to get hard again."
-
-"You CANNOT get hard again. I have to leave in forty minutes."
-
-"Then stop clenching."
-
-"Make me ♡."
-
-Camille pulled out. Slowly, as requested — inch by inch, the withdrawal making a slick, obscene sound as the seal broke. Yuna's pussy tried to hold the cum in but physics was physics, and a thin white trail followed the cock's exit, running down the inside of her thigh.
-
-She caught it with her fingers. Pushed it back in.
-
-"Nothing leaves," she said. Firm. Professional. The voice of a woman directing her own scene. "Everything stays inside. For five hours."
-
-"That's ambitious."
-
-"I once held a crying scene for seventeen takes because the director couldn't decide on an angle. I can hold cum."
-
-She let the gown fall. The midnight-blue fabric covered everything — the stockings, the garters, the glistening thighs, the absence of underwear, the thing she was carrying inside her. She walked to the bathroom. Checked the mirror. The hair — she pushed it back into place with the efficient hands of a woman who'd been styled a thousand times and knew every trick. Two pins and it looked right. Not perfect. Right enough.
-
-Face: intact. The flush was fading. By the time she reached the venue it would be gone, replaced by the dewy calm of a woman who'd napped for two hours and arrived refreshed.
-
-She looked at herself. The mirror showed the Nation's Wife. The Baeksang nominee. The forty-million-won dress and the Cartier diamonds and the face that sold cosmetics.
-
-It didn't show the cum.
-
-"How do I look?" she asked.
-
-Camille appeared behind her. Still naked. The cock soft against her thigh, glistening. She put her hands on Yuna's bare shoulders — the backless dress exposed everything from the nape of the neck to the waist — and kissed the junction of shoulder and throat. Gently. Not a mark. Just a presence.
-
-"Like someone who just won Best Actress."
-
-"I haven't won yet."
-
-"You won the moment you walked in here wearing that dress."
-
-Yuna closed her eyes. The cum inside her shifted — warm, thick, settling deeper — and a small contraction rolled through her pussy. Involuntary. A preview. She'd be feeling those all night, small clenching pulses, each one a reminder, each one a tiny private orgasm that nobody in the audience would ever know about.
-
-"Daddy."
-
-"Mm."
-
-"When I thank him — when I say the words — I need you to know that every single one is for you."
-
-"I know."
-
-"Watch it on TV. Watch me say it. And know."
-
-She put her heels on. Picked up her clutch — inside it, the speech cards she'd written two weeks ago and memorized last night. She walked to the door. Stopped. Turned. The same move as always — the actress's instinct for the exit line.
-
-"How many women have left your apartment carrying your cum to a nationally televised awards ceremony?"
-
-"You're the first."
-
-"Good ♡. I want to be the first at SOMETHING."
-
-She left. Down the stairs, past the bar where Soyeon was setting up for the evening, the bartender looking up and seeing the gown and the diamonds and the specific walk of a woman clenching and her eyes going wide—
-
-"Is that—"
-
-"Don't ask," Yuna said, smiling. The real smile. The feral one.
-
-She walked into the 6 PM Seoul sun in a forty-million-won dress with cum inside her and hailed a cab to the Baeksang Arts Awards.
-
-***
-
-The COEX Convention Center was a cathedral of light.
-
-Red carpet running from the entrance to the auditorium doors, flanked by press pits, fans behind barricades with lightsticks and signs, the pop-flash of cameras creating a strobe effect that turned every arrival into a stuttering film reel. The air smelled like hairspray, sweat, and the specific brand of desperation that accompanied any gathering where everyone was pretending not to want what they wanted.
-
-Yuna's car pulled up at 7:20. Manager Kim met her at the door — clipboard, earpiece, the tense smile of a woman whose job was to make chaos look spontaneous.
-
-"You look rested," Manager Kim said, scanning her. "The nap helped."
-
-"It did."
-
-"Dohan-ssi is already inside. He did the press line at six. He's in good spirits."
-
-"He's always in good spirits when cameras are present."
-
-Manager Kim didn't register the edge. She was already moving, guiding Yuna toward the carpet, murmuring logistics — *press pit first, then the fan zone, wave to the left section, they've been here since noon*.
-
-Yuna stepped onto the carpet.
-
-The cameras ignited. A WALL of flash, the sound like hail, and her name shouted from forty mouths simultaneously — *"Yuna-ssi! Yuna-ssi! Over here! This way!"* She turned. Smiled. The forty-million-won dress caught the light and the collective intake of breath from the press pit was audible.
-
-She walked. Slowly. Each step measured. Each step sending a small vibration through her body that traveled upward through the stockings and the bare thighs and reached the place where Camille's cum sat, heavy and warm, and each vibration made her pussy clench and each clench threatened to push a drop out and each drop threatened to run down her thigh and each centimeter of potential trajectory was a countdown to catastrophe.
-
-She clenched. Held. The kegels. Three weeks of kegels.
-
-"Beautiful, Yuna-ssi! Beautiful! Can you turn? Over the shoulder?"
-
-She turned. The backless dress was its own event — the cameras going rapid-fire, the bare skin gleaming under the lights, and she held the pose with the trained stillness of a woman who'd held poses for twelve years and never once held anything this dangerous inside her while doing it.
-
-Inside her body, a small contraction. A pulse. The cum shifted.
-
-She breathed. Smiled. Turned back.
-
-"This way, Yuna-ssi! To the right! Look at me!"
-
-She looked. She was looking at the camera but she was seeing the apartment — the wall, the water pipe, the Han Kang novels at knee height, Camille's hands under the gown.
-
-Flash. Flash. Flash.
-
-Dohan appeared at her side. He materialized the way he always did — from nowhere, suddenly there, his hand finding her waist with the choreographed precision of a thousand red carpets. He was wearing a Dior suit that matched her gown — midnight blue, tailored, the designer's attempt to make them look like a matched set. They were a matched set. The Nation's Couple. *Gukmin bubu.*
-
-"You look good," he said. His voice was pleasant and distant, the voice of a man complimenting a painting.
-
-"Thank you."
-
-"How was the nap?"
-
-"Restorative."
-
-His hand sat on her waist. Exactly where it always sat. Exactly the pressure it always applied. The hand that was contractually obligated to touch her and voluntarily disinterested in feeling her.
-
-Two inches lower and to the left, under the gown, his wife was full of another person's cum.
-
-They walked the carpet. Smiling. Waving. The choreography. *Step. Pause. Turn left. Smile. Turn right. Smile. Acknowledge the fan section. Wave. Not too much — contained, elegant, the wave of a woman who is delighted to see you but also above you.* Yuna had done this a hundred times and the muscle memory was so deep it didn't require consciousness.
-
-Which was good, because her consciousness was elsewhere.
-
-Every step: the shift. Every shift: the clench. Every clench: the tiny pulse of pleasure that radiated from her pussy to her stomach to her chest and settled behind her sternum like a warm coal. She was aroused. Standing on a red carpet next to her husband in front of forty cameras, she was aroused, and the arousal was not going away because the SOURCE of the arousal was inside her and would be inside her for the next three hours.
-
-"Fan zone," Manager Kim murmured in her ear. "Thirty seconds."
-
-The fans were screaming. *"Yuna-unnie! Yuna-unnie! SARANGHAEYO!"* They loved her. Three million votes for Nation's Wife. They loved the gown and the diamonds and the man beside her and the image of perfection that Korea had constructed and that Yuna performed and that was, at this exact moment, a container for French cum.
-
-She waved. Signed three autographs. Took a selfie with a crying teenager who couldn't speak. Through all of it, the clench. The hold. The discipline of a body keeping a secret that would end careers.
-
-"Let's go inside," Dohan said.
-
-They went inside.
-
-The auditorium was vast — two thousand seats, stage dressed with screens and flowers, the KBS cameras already positioned for the live broadcast. They were led to the front row. Reserved seats. Name cards. Yuna sat and the act of sitting changed the pressure and a tiny fresh pulse of warmth leaked and she crossed her legs IMMEDIATELY, the motion smooth, practiced, a woman crossing her legs because the dress sat better that way, nobody would think twice.
-
-Under the gown, a thin line of white descending one millimeter.
-
-She clenched. Caught it. Held.
-
-'*I'm going to come,*' she thought, not with alarm but with the calm assessment of an actress evaluating a scene. '*At some point tonight, sitting in this chair, I'm going to have a small, invisible orgasm and nobody will know.*'
-
-Dohan sat beside her. His cologne was the one she'd bought him three Christmases ago because Manager Kim said *Sauvage* tested well with female demographics. He smelled like a strategy.
-
-"Nervous?" he asked.
-
-"No."
-
-"You should be. Song Jooyeon is strong this year."
-
-"Song Jooyeon is adequate. The committee knows the difference."
-
-"Confident."
-
-"Prepared."
-
-He smiled. The public smile. The algorithm smile. And Yuna smiled back and their smiles met in the space between them and meant nothing to each other and everything to the camera that was capturing them from the third row.
-
-***
-
-The ceremony began at eight.
-
-Opening performances. Comedy bits from the hosts. The minor categories — Best New Actor, Best Screenplay, Best OST. Yuna watched and clapped and laughed at the appropriate moments and inside her body, the cum continued its slow, patient mission.
-
-Every twenty minutes, a contraction. Small. Involuntary. Her pussy clenching around the memory of the cock that had been inside it two hours ago, and each clench expressed a tiny amount and each tiny amount traveled a tiny distance and Yuna performed the calculus of fluid dynamics in real time while applauding a twenty-three-year-old's acceptance speech for Best New Actress.
-
-The twenty-three-year-old was crying. She was thanking her parents, her agency, God. She was saying the things you say when you're twenty-three and the lights are bright and you believe the industry loves you.
-
-Yuna watched her and thought: '*You'll learn.*'
-
-And then thought: '*Actually, you might not. That might be worse.*'
-
-Best Supporting Actor. Best Director. Best Drama Series. The categories ticking by, each one a step closer to the moment Yuna was going to stand on that stage with forty million won of fabric and two tablespoons of cum and deliver the performance of her life.
-
-"Next category," Manager Kim's voice in her earpiece. "You're up after the commercial break."
-
-The commercial break. Two minutes. Yuna uncrossed her legs, crossed them the other way, the shift releasing a tiny pulse of warmth that made her breathing catch. Dohan glanced at her.
-
-"Cold?"
-
-"The air conditioning."
-
-He took off his suit jacket and draped it over her shoulders. The gesture was gallant and empty and the cameras caught it and the audience sighed and Yuna sat under the jacket of a man who hadn't fucked her in three years while his replacement's cum cooled inside her.
-
-The lights dimmed. The screens lit. The presenter walked to the podium — an older actor, distinguished, the kind of gravitas that the Baeksang committee deployed for the big categories.
-
-"The nominees for Best Actress in a Television Drama are..."
-
-Yuna's clip played. Her face on the screen — *A Woman Alone*, the drama about a divorcée rebuilding her life in rural Korea. She'd poured everything into that role. Every sexless night, every scripted smile, every empty penthouse morning — she'd channeled it into a character who'd chosen to be alone and discovered that alone was better than pretending.
-
-The irony was so thick she could have served it on a plate.
-
-"...and the Baeksang Award for Best Actress goes to..."
-
-The pause. The intake of breath. Two thousand people, twelve cameras, a live broadcast.
-
-"Kang Yuna, *A Woman Alone*."
-
-The auditorium erupted. Standing ovation. Dohan was on his feet — smiling, clapping, the supportive husband — and Yuna stood and his jacket fell from her shoulders and she felt it, the standing-up, the shift of gravity, a contraction so strong she had to disguise the gasp as a surprised laugh.
-
-The cum moved. She clenched. Held.
-
-She turned to Dohan. Custom required this — the moment between spouses, the embrace, the nation watching their golden couple celebrate together. He opened his arms. She stepped into them.
-
-The hug lasted three seconds. His hands on her bare back — the backless dress giving him nowhere to touch but skin — and his cheek against hers, and the cameras capturing the angle, and Yuna's pussy clenching around French cum while her Korean husband held her and two thousand people cried.
-
-"Congratulations," he said into her hair. Polite. Distant. The compliment-for-a-painting voice.
-
-"Thank you," she said. And meant it for someone else.
-
-She walked to the stage. Each step was a negotiation with her body — the heels on the stage stairs, the shift of weight, the dress swishing against the thighs where nothing was supposed to be leaking. She climbed three stairs and each stair was a tiny seismic event and she smiled through every one.
-
-The podium. The trophy — crystal, heavy, the weight of institutional approval. She placed it on the podium. Opened the clutch. Took out the cards.
-
-The audience settled. Two thousand faces. Twelve cameras. KBS live.
-
-She looked at the cards. The words she'd written two weeks ago. Safe words. Approved words. The words that a nation's wife says when a nation is watching.
-
-She looked past the cards. At the dark auditorium. At the faces she couldn't see. At the cameras whose red lights were tiny hearts beating in the darkness.
-
-And she felt it. The cum. Inside her. Warm and thick and undeniably, impossibly present. The physical fact of Camille Beaumont, seated in a bar in Mapo-gu watching this on a twelve-inch TV screen, existing inside Yuna's body while Yuna stood at the highest podium in Korean entertainment.
-
-The contraction was involuntary. A clench so deep it was almost an orgasm. She felt a drop escape. Felt it begin its descent. Felt the warm line tracing down the inside of her left thigh, hidden by the gown, invisible to every camera, a secret written in white on skin that only she could read.
-
-She breathed. Smiled. Began.
-
-"Thank you. I'm — overwhelmed." The standard opening. The trembling-voice start that every Best Actress speech required. But the tremble was real, and it wasn't about the award. "This drama meant more to me than I can say. *A Woman Alone* is the story of a woman who discovers that the life she was living wasn't hers."
-
-She paused. Let it land. The audience was still.
-
-"I want to thank Director Lee, who saw something in me that I was afraid to show. I want to thank the cast and crew, who gave me the safest space I've ever worked in." Another pause. The drop had traveled three inches. She clenched. Stopped it. "I want to thank my agency, who believed in this project when everyone said a drama about a woman choosing solitude wouldn't sell."
-
-She looked at the cards. The next line was: *I want to thank my husband, Dohan, for his unwavering support.*
-
-She looked at the camera. She thought about the bar. The small TV above the bottles. Camille watching. Soyeon watching. Maybe all of them — Jihye, Minji, Hana, Soojin, Eunji — gathered around the screen, watching the Nation's Wife stand at a podium with Daddy's cum between her legs.
-
-"And I want to thank my husband."
-
-She felt it as she said it — the dual meaning, the performance WITHIN the performance. The word *husband* leaving her mouth and meaning nothing. The word she wanted to say instead, burning in her throat, a word that would end everything, that would detonate the brand and the marriage and the three million votes, a single word that was more honest than anything she'd ever said on any stage.
-
-"For always," she continued, her voice steady, "being exactly who he is."
-
-The audience heard: *I love him.*
-
-Yuna heard: *He is nothing. He has always been nothing. He is exactly who he is — absent, disinterested, a man who sleeps in the second bedroom and mistakes a hickey for a mochi allergy and sends allergy cream while his wife screams Daddy in Mapo-gu.*
-
-She looked at the front row. Dohan was smiling. The algorithm. The three million votes. He was smiling because his wife had thanked him on national television and the brand was intact and everything was fine.
-
-The drop had stopped. The kegels held. The secret stayed.
-
-"This award," Yuna said, looking directly into the camera — the one with the red light, the one broadcasting live, the one that was carrying her face into ten million homes — "is for every woman who has ever performed a version of herself that someone else wrote."
-
-She let the silence hold.
-
-"Thank you."
-
-The ovation was enormous. The audience stood. Yuna lifted the crystal trophy and the weight of it was real and the moment was real and the cum was real and she descended the stairs with the specific walk of a woman clenching hard enough to hold a secret inside her body while an entire country applauded.
-
-***
-
-She made it to the bathroom.
-
-Not the public one — the one backstage, the one for presenters and winners, a single stall with a mirror and a lock. She closed the door. Locked it. Set the trophy on the sink.
-
-Her hands were shaking. Not from nerves. From the effort of holding everything — the cum, the orgasm, the word — inside her body for ninety consecutive minutes while performing the role of a lifetime.
-
-She let go.
-
-The cum came in a slow, thick rush — running down both thighs, soaking the tops of the stockings, dripping onto the tile floor. She braced herself against the sink and gasped and the gasp became a moan and the moan became a sound she'd been holding since the podium — a small, quiet, private orgasm that rolled through her body like a wave reaching shore.
-
-"Oh ♡… oh God ♡♡♡…"
-
-She shook. Thirty seconds. Forty. The aftershocks of a climax she'd been deferring since the red carpet, building since the opening ceremony, peaking at the podium, and finally releasing in a backstage bathroom while a Baeksang trophy sat on the sink and judged her.
-
-She pulled out her phone. Texted Camille.
-
-*I said "for always being exactly who he is"*
-
-Three dots.
-
-*I know. I watched.*
-
-*Did you hear it?*
-
-*I heard everything.*
-
-*I came at the podium. A tiny one. Nobody saw.*
-
-*I know. I saw your face.*
-
-*You could see that on the TV?*
-
-*I see everything, Yuna.*
-
-She leaned against the sink. Looked at herself in the mirror. The hair was still in place. The makeup was still in place. The gown was still pristine from the outside — the lining was destroyed, soaked, but the outer fabric was immaculate. She looked exactly like the woman who'd walked in.
-
-She didn't look anything like the woman who'd walked in.
-
-A knock on the door. "Yuna-ssi? Manager Kim. The press room is ready. Five minutes."
+"Yuna-ya, photos?" he called. The pet name for the cameras.
 
 "Coming."
 
-She cleaned up. Quickly, efficiently, the motions of a woman who'd learned to erase evidence with the speed of a spy. Tissue. Wet paper towel. The stockings — unsalvageable, she peeled them off and stuffed them in the clutch. The gown fell to the floor, covering everything. Without stockings, her bare legs would be visible, but bare legs in a floor-length gown were a fashion choice, not a scandal.
+She released Camille's arm. Walked to Dohan. They stood together — the matched outfits, the Dior blue, the choreographed distance. He put his hand on her waist. She smiled. Flash, flash, flash. The same angle, the same tilt, the same performance they'd given a hundred times.
 
-She checked the mirror one final time.
+"Okay, thank you!" Manager Kim called, and Dohan turned to move toward the press interview area. He was three steps away — still within the carpet's ambient noise, but close — when Camille appeared at Yuna's side.
 
-Perfect. Korea's wife. Best Actress. Not a trace.
+Camille's hand touched the small of Yuna's bare back. The backless dress meant skin on skin, and the contact — warm, proprietary, the touch of someone who had been inside her and would be inside her again shortly — sent a visible shiver through Yuna's body.
 
-She picked up the trophy. Opened the door. Walked to the press room with her legs bare under the Dior gown and the ghost of an orgasm still humming in her pelvis.
+"Daddy ♡," Yuna breathed. The word was adoring. Liquid. The voice of a woman greeting the center of her gravity. Not a whisper — conversational, natural, the way you'd say the name of someone you loved when they appeared beside you.
 
-***
+Dohan paused. Half-turned. Something — a sound, a fragment, something that the carpet noise almost but didn't quite swallow. His wife had said — something. To the professor. His brow creased for one second. Then it smoothed.
 
-In The Fox, the TV was showing the press conference. Yuna at a long table with microphones, the trophy beside her, answering questions with the practiced ease of a woman who'd been doing press since she was nineteen.
+He kept walking.
 
-*"What does this award mean to you?"*
+Camille leaned in. Her mouth an inch from Yuna's ear, close enough that a photographer snapped it — the image would run tomorrow as *Yuna's mysterious friend whispers congratulations*, and nobody would ever know what was actually said.
 
-*"It means that stories about women alone can matter as much as stories about women in love."*
+What was actually said: "I'm going to fuck you in every room this building has. Starting now."
 
-Camille watched. On the stool. Gin and tonic. Behind the bar, Soyeon was watching too — her hands still, the glasses forgotten, her eyes on the screen with the expression of a woman watching someone she knew perform a miracle in plain sight.
+Yuna's thighs clenched. Visibly. Her knees pressed together under the gown and her breath caught and her pupils blew wide and a flush crept up her chest and climbed her neck and reached her cheeks in the time it took for three camera flashes to fire.
 
-At the back table, the others. Jihye with her laptop closed for once. Minji with both hands around her beer. Hana humming something under her breath. Soojin with her hair now coral, exactly as promised. Eunji in the corner, NOT taking notes, which was its own kind of revolution.
+"Yuna-ssi!" a reporter called. "You're glowing tonight! What's your secret?"
 
-They'd all watched the speech. They'd all heard it — *for always being exactly who he is* — and they'd all understood what the nation hadn't.
+Yuna looked at the reporter. The feral smile. The real one. The one that nobody in the press pit could distinguish from the public one but that Camille could read like a headline.
 
-Soyeon looked at Camille. The bartender's eyes were bright.
+"Happiness," Yuna said. "Just happiness."
 
-"She did it," Soyeon said.
-
-"She did it."
-
-"On national television."
-
-"On national television."
-
-"With your—"
-
-"Yes."
-
-Soyeon's hand drifted below the bar. To herself. A reflexive touch, the sympathetic arousal of a woman who understood exactly what Yuna had been carrying because she'd carried it herself — not to a Baeksang ceremony, just to the corner store once, and even that had made her come in the elevator afterward.
-
-On the TV, a reporter asked: *"Yuna-ssi, you thanked your husband very movingly. Can you tell us about his support?"*
-
-Yuna's face — the close-up, the HD camera, every pore and eyelash in high definition — was flawless. The smile was the real one, the dangerous one, but it looked enough like the public one that nobody could tell the difference. Nobody except seven women in a bar in Mapo-gu.
-
-*"Dohan is..."* The pause was perfect. Timed. Actorly. *"...exactly who he's always been. Consistent. Predictable. And I am grateful for that consistency every single day."*
-
-The reporters scribbled. The answer was heartfelt and loving and entirely true and meant the opposite of what they thought.
-
-In the bar, Eunji — the journalist who'd retired from investigating Camille but couldn't retire from noticing things — shook her head slowly.
-
-"She's the best actress in the country," Eunji said. "And that performance will never be nominated."
-
-Hana raised her beer. "To Yuna-unnie."
-
-"To Yuna-unnie," they echoed. Seven glasses. The clink of bottles and pint glasses in a small bar in Mapo-gu where the best-kept secret in Korean entertainment was common knowledge.
-
-Camille drank. Watched the screen. Yuna was standing now, the press conference ending, the trophy in her hand. She was walking off-camera, and just before she disappeared from the frame, she glanced — not at the camera, not at the reporter, but at something below the lens line. At her phone, maybe. At the screen.
-
-At Camille.
-
-On the TV screen, for one frame, the Nation's Wife smiled.
-
-The real smile. The feral one.
-
-And then she was gone, and the broadcast cut to commercial, and Soyeon turned off the TV and the bar was quiet.
-
-"She's coming here," Soyeon said. Not a question. She knew Yuna the way she knew all of them — by the trajectory of the falling.
-
-"She's coming here," Camille confirmed.
+She took Camille's arm again and walked off the carpet.
 
 ***
 
-Yuna arrived at midnight.
+The bathroom was on the second floor. VIP. Single occupancy. A lock that clicked.
 
-Not in a cab this time. In the black company sedan that Manager Kim had arranged, which she'd dismissed at the end of the block with a text — *I'm staying at a friend's apartment tonight. The French professor. Don't wait up.* Manager Kim had texted back a thumbs-up emoji and a reminder about the Cartier brunch at 11 AM tomorrow, and Yuna had turned off the phone and walked the last hundred meters in the Dior gown, carrying the Baeksang trophy by the stem like a wine glass, barefoot on the Mapo-gu sidewalk because the heels were in the clutch and she was done performing for concrete.
+They'd made it seventy seconds from the carpet. Yuna's hand on Camille's wrist, pulling — not leading, not directing, just DESPERATE, the pull of a woman who'd been simmering since the limo and the red carpet had brought her to a boil. Camille followed because Camille chose to follow, and the choice was the point. Yuna could pull all she wanted. Camille moved when Camille decided to move.
 
-The bar was closed. Soyeon had sent the others home an hour ago — Thursday was the day after tomorrow, and tonight was Yuna's. She'd left the door unlocked.
+The door closed. The lock clicked. Yuna turned and Camille was already there — hands on her waist, lifting, the actress's back against the marble counter, the Dior gown bunched between them.
 
-Yuna walked in. The bar was dark, just the amber light behind the bottles. Soyeon was gone. The apartment upstairs was lit.
+"The dress—" Yuna gasped.
 
-She climbed the stairs. The gown trailing behind her, sweeping the steps, picking up dust and grit from the stairwell. Forty million won of Dior collecting the floor of a walk-up in Mapo-gu.
+"I know."
 
-The apartment door was open.
+Camille's hand went under the gown. Up the thigh, past the stocking, past the garter, to the bare skin above and the wet heat between. No underwear. Yuna hadn't worn underwear. The same trick as every event since Chapter 6 — the lines-show-through excuse that was really an invitation.
 
-Camille was on the futon. Naked. Reading. The cock half-hard against her thigh, like it had been waiting. It was always waiting.
+Two fingers pushed inside and Yuna's head fell back against the mirror.
 
-Yuna stood in the doorway. Trophy in one hand. Clutch in the other. The gown catching the light from the single lamp. She looked like an apparition — the most famous woman in Korea, materializing in a one-room apartment at midnight, still in full regalia, still flawless from the neck up.
+"Hah ♡♡♡!!!"
 
-From the neck down: barefoot, gown hem dirty, no stockings, no underwear, and — she could still feel it — the faintest residue of what she'd carried through the ceremony. Most of it had come out in the bathroom. Not all.
+"Quiet."
 
-She set the trophy on the bookshelf. Next to Foucault. Next to Han Kang. A Baeksang crystal award between *Discipline and Punish* and *The Vegetarian*.
+"I can't — ♡♡♡ — Daddy, I can't be quiet, I've been—"
 
-"I won," she said.
+Camille covered her mouth with one hand. The other hand worked. Yuna's moan vibrated against Camille's palm, muffled, desperate, her eyes streaming, her hips grinding against the fingers inside her.
 
-"I watched."
+"You've been what?"
 
-"Did you like the speech?"
+Yuna pulled the hand away from her mouth. "Wet since the LIMO — ♡♡♡ — since you kissed my head — ♡♡♡♡♡ — I've been sitting on this carpet soaking through the gown lining and Dohan was RIGHT THERE — ♡♡♡♡♡♡♡!!!"
 
-"I liked the speech. I liked 'exactly who he is.'"
+Camille withdrew the fingers. Unzipped her suit trousers. The cock sprang free — already hard, straining, it had been half-hard since the limo — and Yuna looked at it the way she always looked at it, like a woman seeing water after a week in the desert.
 
-"I almost said it." She stepped into the room. Let the clutch drop. "At the podium. I almost said it. The word. YOUR word. In front of twelve cameras and two thousand people and the entire KBS viewership. I was standing there and the word was in my throat and I almost — I ALMOST—"
+"Turn around," Camille said.
 
-"But you didn't."
-
-"I didn't. Because it's mine. It's not for them."
-
-She reached behind her back. Found the zipper. The sound of it — the slow, metallic purr of a forty-million-won dress being opened — filled the small apartment.
-
-The gown fell.
-
-It pooled around her feet like water. Like something being shed. Underneath: Yuna. Just Yuna. No Cartier — she'd taken the earrings off in the car. No stockings. No underwear. Nothing between her skin and the air except the fading marks of what had happened against the wall five hours ago. A redness on her inner thigh where the gown's lining had chafed against dried cum. A tenderness between her legs where the cock had been.
-
-She stepped out of the dress. Left it on the floor.
-
-"I want my reward," she said.
-
-Camille set down the book. The cock was fully hard now — it had been filling since the doorway, since the zipper, since the dress hit the floor. It stood against her stomach, thick and demanding, and Yuna looked at it with the expression of a woman who'd spent five hours performing and was done, DONE, ready to stop acting and start being.
-
-She walked to the futon. Knelt. The trophy on the bookshelf caught the lamp light and threw a tiny rainbow on the ceiling, identical to the ones the Cartier diamonds had made earlier, and the symmetry pleased her.
-
-"Daddy."
-
-"Mm."
-
-"I held your cum inside me through a press line, a red carpet, two hours of ceremony, an acceptance speech, a press conference, and a car ride. I clenched for ninety consecutive minutes while accepting a national award. I had a tiny orgasm at the podium that nobody saw. And the whole time — the WHOLE time — the only thing I wanted was this."
-
-She put her mouth on it.
-
-SHLRRP…
-
-"Mmm ♡♡♡…"
-
-Not tentative. Not the careful blowjob of their first night. This was the blowjob of a woman who'd earned something and was collecting. Her tongue worked the head, her lips stretched around the shaft, and she pushed down — four inches, five, six — with the determination of a woman who'd held everything in for five hours and was now taking everything in instead.
-
-GLRK… SHLRRP… GLRK…
-
-"Fuck—" Camille's hand found her hair. The pins. The careful updo. She pulled them out — one, two, three — and the hair fell, tumbling around Yuna's face, and the Best Actress became unrecognizable with a cock in her throat and her hair down and her mascara starting to run.
-
-GLRK! GLRK! GLRK!
-
-"♡♡♡♡♡… ♡♡♡♡♡♡♡…"
-
-Yuna gagged and kept going. She was deepthroating with a vengeance — punishing the cock for making her wait, or rewarding it for making her carry it, or both. Her jaw ached and her throat was raw and drool ran down her chin in ropes and she was making sounds that would have gotten her blacklisted from every brand deal in Korea.
-
-Camille pulled her off by the hair. Yuna gasped — strings of saliva connecting her mouth to the cock, her eyes streaming, her face the opposite of every magazine cover she'd ever graced.
-
-"On the futon," Camille said. "Face down."
-
-Yuna obeyed. The word was right: *obeyed*. Not complied, not agreed, not chose — obeyed. She lay face-down on the futon where six other women had been broken and she pressed her face into the pillow that smelled like all of them and she raised her hips and waited.
-
-"Which hole won an award tonight?" Camille asked.
-
-The filthiness of the question — the sheer, uncut, raw filthiness of it — made Yuna's pussy clench and her ass twitch and her whole body shudder.
-
-"Both ♡."
-
-Camille positioned the head against her pussy. Pushed in. One stroke. Full depth.
+Yuna turned. Hands on the marble counter. The gown hiked to her waist, the midnight-blue fabric bunched against her stomach. In the mirror: her own face — flushed, mascara intact, the face that had just smiled for forty cameras — and behind her, Camille, tall and dark-suited, the cock positioned between the bare thighs.
 
 SCHLURGE!
 
-"DADDY ♡♡♡♡♡♡♡!!!"
+"NNNGH ♡♡♡♡♡!!!"
 
-The scream was different this time. Louder than the apartment walls could contain. Raw and shredded and FREE — the scream of a woman who'd been holding in everything for five hours and was finally, catastrophically, letting go. Five hours of clenching. Five hours of performing. Five hours of sitting next to a man who smelled like strategy while carrying the cum of the woman who made her feel real.
-
-PLAP! PLAP! PLAP! PLAP!
-
-"♡♡♡!!! ♡♡♡!!! ♡♡♡!!!"
-
-Camille fucked her into the futon. Face down, ass up, the position that Yuna had presented herself in because it was the position where she could be least seen and most felt. No cameras. No angles. No consideration of how her jaw looked or whether her neck was elegant. Just the cock, filling her, emptying her, filling her again.
-
-PLAP! PLAP! PLAP! PLAP! PLAP!
-
-"Give me your speech," Camille demanded.
-
-"I — ♡♡♡ — I want to thank — ♡♡♡♡♡—"
-
-"Who?"
-
-"DADDY — ♡♡♡♡♡♡♡ — I want to thank DADDY — ♡♡♡♡♡♡♡♡♡ — for his UNWAVERING — ♡♡♡♡♡♡♡♡♡♡♡ — COCK — ♡♡♡♡♡♡♡♡♡♡♡♡♡!!!"
-
-PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
-
-"What else?"
-
-"THIS AWARD — ♡♡♡♡♡ — IS FOR EVERY KOREAN WOMAN — ♡♡♡♡♡♡♡ — WHO PERFORMED A VERSION OF HERSELF — ♡♡♡♡♡♡♡♡♡ — THAT SOMEONE ELSE WROTE — ♡♡♡♡♡♡♡♡♡♡♡ — AND THEN WENT HOME — ♡♡♡♡♡♡♡♡♡♡♡♡♡ — AND GOT FUCKED BY DADDY UNTIL SHE REMEMBERED WHO SHE ACTUALLY WAS ♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡!!!"
-
-Camille pulled out. Yuna whined at the absence. But the head was pressing somewhere else now — above, behind, the tight ring of muscle that Dohan had never touched and Camille had claimed.
-
-"The other award," Camille said.
-
-"YES — ♡♡♡ — yes, Daddy, the other—"
-
-SCHLURGE!
-
-"HNNNNGH ♡♡♡♡♡♡♡♡♡!!!"
-
-The cock pushed into her ass. Slow, stretching, the muscle yielding around the head and then the shaft, and Yuna's face pressed into the pillow and her fists balled in the sheets and the sound she made was the sound from Chapter 6 — the compressed scream, the one that had Dohan's name in it as an accusation.
+One stroke. Full. The cock sinking into her as Camille gripped one hip and pulled her back, and Yuna's reflection went slack — mouth open, eyes rolling, the Nation's Wife disappearing and the real woman surfacing.
 
 PLAP! PLAP! PLAP!
 
-"♡♡♡♡♡!!! ♡♡♡♡♡♡♡!!!"
+"♡♡♡!!! ♡♡♡!!! ♡♡♡!!!"
 
-Deeper. Camille's hips meeting Yuna's ass, the full length seated, the stretch extreme. Yuna's pussy, empty now, clenched at nothing and her squirt dripped onto the futon in sympathetic response and her body was producing fluids from every available surface.
+"Watch," Camille ordered. "Watch yourself."
+
+Yuna watched. In the mirror: a woman being fucked in a Baeksang bathroom. The Dior gown. The Cartier diamonds swaying with each thrust. The bare back arching, the muscles in Camille's arms flexing, the wet sound of their bodies connecting echoing off the marble.
 
 PLAP! PLAP! PLAP! PLAP!
 
-"The speech nobody heard," Camille growled. "The one you wrote in your head at the podium. Give it to me."
+"Your husband is downstairs," Camille said, not slowing. "In the green room. Practicing his presenter's smile."
 
-"I'M — ♡♡♡♡♡ — KANG YUNA — ♡♡♡♡♡♡♡ — BEST ACTRESS — ♡♡♡♡♡♡♡♡♡ — AND I STOOD ON THAT STAGE — ♡♡♡♡♡♡♡♡♡♡♡ — FULL OF DADDY'S CUM — ♡♡♡♡♡♡♡♡♡♡♡♡♡ — AND THE NATION CLAPPED — ♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡!!!"
+"I know — ♡♡♡♡♡ —"
 
-PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
+"While I'm up here—"
 
-"AND MY HUSBAND — ♡♡♡♡♡♡♡ — STOOD UP — ♡♡♡♡♡♡♡♡♡ — AND CLAPPED — ♡♡♡♡♡♡♡♡♡♡♡ — WHILE HIS WIFE'S PUSSY — ♡♡♡♡♡♡♡♡♡♡♡♡♡ — DRIPPED WITH DADDY'S BIG WHITE COCK'S CUM — ♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡!!!"
+"I KNOW ♡♡♡♡♡♡♡!!!"
+
+PLAP! PLAP! PLAP! PLAP! PLAP!
+
+"What would they say? All those cameras? If they could see the Nation's Wife right now?"
+
+Yuna came. Fast — too fast, the buildup from the limo and the carpet and the "Daddy" and the whisper and seventy seconds of WANTING compressing into a detonation that hit without warning. Her pussy clamped and her squirt sprayed against the inside of the marble counter and she bit her own arm to muffle the scream.
+
+"MMMPH ♡♡♡♡♡♡♡♡♡♡♡!!!"
+
+Camille pulled out. Still hard. Hadn't finished.
+
+"I didn't come," Camille said. Matter of fact. "That was for you. We're coming back for more later."
+
+Yuna shuddered. The thought — later, MORE, the promise of this happening again in a different room, a different corner, the whole building a playground — made her pussy clench around nothing and a small aftershock rolled through her.
+
+They cleaned up. Quickly. Camille tucked the cock back into the suit trousers — still hard, straining against the fabric, visible if you looked, but nobody at the Baeksang Awards would be looking at a woman's crotch. Yuna smoothed the gown. Checked the mirror. The flush was fading. The hair was intact. The gown — a masterpiece of Dior engineering — showed nothing.
+
+Yuna unlocked the door. Opened it.
+
+A makeup artist was waiting in the hallway — a young woman with a kit bag, there to touch up presenters between segments. She looked at Yuna. At the flush. At the slightly damp hairline. At the specific look of a woman who had just been thoroughly attended to.
+
+The makeup artist smiled. Knowingly.
+
+"Dohan-ssi couldn't wait, huh?"
+
+Yuna's face was perfect. The actress. The best in the country.
+
+"You know how it is," Yuna said. "Awards night gets him excited."
+
+The makeup artist giggled. Touched up Yuna's foundation. Applied a light dusting of powder to the décolletage where the flush was still visible.
+
+"You two are so cute," she said. "My boyfriend won't even hold my hand in public."
+
+Yuna caught Camille's eye over the makeup artist's shoulder. The French woman was leaning against the wall, arms crossed, the ghost of a smile on her lips. The suit looked immaculate. The cock's outline was hidden by the jacket's cut.
+
+The makeup artist didn't look twice at her. Why would she? Yuna's date was a professor. The flushed skin was obviously from Dohan.
+
+"All done," the artist said. "You look perfect."
+
+"I feel perfect ♡."
+
+They went downstairs.
+
+***
+
+Yuna's table was in the third row, left side. Six seats — the *Grace* director, the lead actor, the screenwriter, the producer, Yuna, and the empty chair that was now labeled BEAUMONT, C.
+
+Camille sat. The table oriented around her immediately — not because she demanded it, but because she was six foot two and French and her suit looked like it was painted on and she radiated the specific kind of charisma that made people want to tell her things.
+
+"So you're Yuna-unnie's friend!" The screenwriter — a woman in her forties named Heejin, sharp-eyed, two sojus deep before the ceremony started. "She NEVER brings friends to these things."
+
+"She's never had this friend before," Yuna said.
+
+"A professor! Philosophy! Kyung-ah, did you hear that? She teaches philosophy." Heejin elbowed the producer. "When's the last time we had a philosopher at our table?"
+
+"Never," the producer said. "We usually get agents and their coke habits."
+
+"I'm more interesting than a coke habit," Camille offered.
+
+"You're more interesting than this entire room," Heejin said, and she wasn't wrong, and the table laughed, and Yuna's hand found Camille's thigh under the tablecloth and gripped. Not stroking. Holding. The grip of a woman anchoring herself to the only real thing in a room full of performance.
+
+Camille's hand covered Yuna's. Held it there. Allowed it.
+
+The ceremony began. Opening performances. The hosts — a comedian and an actress — doing their comedy bits. Minor awards. The applause that sounded like rainfall from inside the auditorium.
+
+At the table, a rhythm established. The cast talked to Camille. Camille talked to the cast. She asked the director about the blocking in the third episode. She asked Heejin about a structural choice in the script. She asked the lead actor — a quiet man named Sungjae who'd barely spoken — about his preparation process, and Sungjae opened up like a flower because nobody at these events ever asked actors about PROCESS, they asked about diet and workout routines and dating rumors.
+
+They loved her. Within twenty minutes, the table had adopted Camille as their unofficial mascot, and the conversation kept circling back to the same observation:
+
+"You two," Heejin said, gesturing between Camille and Yuna with her wine glass. "The way you look at each other. Yuna-ya, I've known you for eight months of shooting and I've NEVER seen you like this."
+
+"Like what?"
+
+"Like you're actually enjoying yourself. Like you're not performing." Heejin leaned in, conspiratorial. "I'm going to say something controversial. I ship it."
+
+"Ship what?" the producer asked.
+
+"THEM. Look at them. They're adorable."
+
+"We're not—" Yuna started.
+
+"She blushes! She BLUSHES! Yuna-ya, you never blush. You are chemically incapable of blushing. This woman has achieved the impossible." Heejin raised her glass. "To Camille. Who makes the Nation's Wife blush."
+
+"To Camille," the table echoed.
+
+Under the tablecloth, Yuna's hand tightened on Camille's thigh. The grip was white-knuckled. Desperate. Every cell in her body wanted to climb into Camille's lap and she was holding herself to the chair by force of will and the will was losing.
+
+Camille leaned toward her during the applause for Best Screenplay. Her mouth near Yuna's ear. To the table, it looked like she was whispering congratulations, or a joke, or something about the award.
+
+"You're dripping on my suit," Camille murmured. "I can feel it through my trousers. Your pussy is making a mess of a very expensive rental."
+
+Yuna's hand spasmed on the thigh. A tiny, choked sound escaped her throat — not quite a moan, not quite a word. The screenwriter Heejin glanced over and smiled.
+
+"See? ADORABLE."
+
+***
+
+The break between the drama categories and the film categories was fifteen minutes. Long enough.
+
+There was a corridor behind the auditorium — the service corridor, used by staff and catering, dim and narrow and lined with stacked chairs and equipment cases. Camille found it because Camille always found the dark corners. She'd been mapping the building since they arrived, the way a predator maps terrain — exits, blind spots, places where the light didn't reach and the noise from the auditorium covered everything.
+
+One moment they were at the table. The next, Camille's hand was on the small of Yuna's back — the bare skin, the backless dress — guiding her up, away, through a side door, down a hallway, around a corner into shadow.
+
+Yuna didn't ask where they were going. She didn't need to. The hand on her back was the answer.
+
+The corridor. Dim. A rack of folding chairs against one wall. The muffled sound of the ceremony through the walls, the hosts doing a comedy bit, laughter rolling like distant thunder.
+
+Camille pressed her against the wall. The Dior gown against the concrete. Yuna's bare back touching the cold surface and she gasped — from the cold, from the hands on her hips, from the cock she could already feel hardening against her stomach through the suit.
+
+"Someone could come—"
+
+"Yes."
+
+"Staff, or a PA, or—"
+
+"Yes."
+
+"We have maybe ten minutes before—"
+
+"Then stop talking."
+
+Camille lifted the gown. Yuna's hands went up automatically — holding the fabric out of the way, keeping the forty-million-won dress from touching the dirty corridor floor, a logistical instinct that was completely absurd given what was about to happen in it.
+
+Camille unzipped. Lifted Yuna by the thighs — one arm, effortless, the actress's legs wrapping around her waist — and slid inside.
+
+SCHLURGE!
+
+"NNH ♡♡♡♡♡!!!"
+
+Yuna bit Camille's shoulder. The suit fabric muffled the sound but not the intent — she was biting because the alternative was screaming and the corridor had acoustics and anyone within thirty feet would hear.
+
+PLAP! PLAP! PLAP!
+
+Quiet thrusts. Controlled. Camille fucking her against the wall with a restraint that was more devastating than violence — each stroke deliberate, measured, hitting the deep spot that made Yuna's legs shake. The actress's face was buried in Camille's neck and her moans came out as vibrations against the collar.
+
+"Mmph ♡♡♡… mmph ♡♡♡♡♡…"
+
+"Your husband is a hundred feet away," Camille whispered, thrusting. "At his table. With his cast. Wondering where his wife went."
+
+"He's not — ♡♡♡ — wondering — ♡♡♡♡♡ — he doesn't wonder about me — ♡♡♡♡♡♡♡!!!"
+
+"No. He doesn't."
+
+PLAP! PLAP! PLAP! PLAP!
+
+"But I do. I think about you constantly. I think about you when you're on his arm and I think about you when you're on this cock and I think about you when you're on that stage and I think about you—"
+
+"Daddy ♡♡♡♡♡♡♡—"
+
+"—because you're MINE. Not his. Not the brand's. Not Korea's."
+
+"YOURS ♡♡♡♡♡♡♡♡♡!!!"
+
+The orgasm was quiet but vicious — Yuna's body seizing, her teeth sinking into Camille's shoulder, her pussy clenching in waves that milked the cock but Camille HELD, didn't come, controlled it, pulled back from the edge because this wasn't the last stop and the night was young.
+
+Camille pulled out. Set Yuna down. The actress's legs were shaking, her thighs slick, her breathing ragged.
+
+"You didn't—"
+
+"Later."
+
+"But—"
+
+"Later. Back to the table."
+
+Yuna whimpered. The sound of a woman being denied the thing she wanted most — not the orgasm, she'd had that. The cum. She wanted it inside her, wanted to carry it back to the table, wanted to sit next to Camille with the evidence settling while the Best Director award was announced. Camille had given her the pleasure and withheld the prize, and the withholding was its own kind of dominance.
+
+They straightened up. The gown fell. The suit adjusted. They walked back toward the auditorium.
+
+A stage manager rounded the corner. Headset, clipboard, the hurried walk of someone managing a live broadcast. He saw them — Yuna, flushed, slightly breathless, and a tall figure in a dark suit beside her — and his eyes went wide.
+
+"Ah — Kang Yuna-ssi — you're needed backstage in twenty for the pre-segment — and—" He looked at Camille. At the height, the suit, the authoritative presence. From his angle, in the dim corridor, the tall person in the dark suit next to the Nation's Wife was an obvious silhouette. "—Dohan-ssi, the green room is on the left if you need to—"
+
+"That's not—" Yuna started.
+
+"Thank you," Camille said, in Korean. Polite. Low-voiced. Not correcting him.
+
+The stage manager nodded and rushed past.
+
+Yuna looked at Camille. The laughter started in her stomach and she had to clamp both hands over her mouth to keep it from exploding through the corridor.
+
+"He thought you were DOHAN—"
+
+"I heard."
+
+"He looked RIGHT at you and thought—"
+
+"The suit."
+
+"The SUIT! You're a foot taller than Dohan and you don't have a FACE that launches a thousand cosmetics campaigns—"
+
+"Dark corridor. Tall person. Suit. Wife. The brain fills in what it expects."
+
+Yuna was shaking with suppressed laughter. The giddiness — the pure, electric, teenager-at-prom GIDDINESS of what they were doing, where they were doing it, who they were doing it to — was better than any drug, any role, any award.
+
+"This is the best night of my life," she whispered.
+
+"The award?"
+
+"Fuck the award. YOU. Here. With me. Only for me." She pressed her face against Camille's chest. The suit fabric was warm and smelled like Camille — vetiver, musk, the faint undertone of sex. "Nobody has ever been just for me. At anything. Ever."
+
+Camille kissed the top of her head. The same gesture from the limo. The tender one. The one that was more dangerous than any fuck because it meant something that neither of them was naming yet.
+
+"Back to the table," Camille said. "Your category is in forty minutes."
+
+"Forty minutes is a long time, Daddy ♡."
+
+"It is. Behave."
+
+"I can't behave. You made me this way."
+
+"Behave anyway. I'll reward you after."
+
+They went back to the table. Heejin noticed immediately.
+
+"Where did you GO? You missed Best Director. Song Jaeho won and his wife CRIED."
+
+"Bathroom," Yuna said.
+
+"Both of you?"
+
+"I showed Camille where it was."
+
+"You showed her where the BATHROOM was." Heejin's eyebrow climbed. "Yuna-ya. You are the worst liar in this entire industry, which is saying something because this industry was BUILT on lying."
+
+"She's not lying," Camille said, smooth. "She showed me where the bathroom was. She's a good host."
+
+"She's a good SOMETHING," Heejin muttered, and drank her wine.
+
+Under the table, Yuna's hand found Camille's thigh again. Immediately. Magnetically. She couldn't not touch her. Her fingers dug into the suit fabric and she felt the muscle underneath and lower, along the inseam, the hard shape that she knew was there, that she'd had inside her ten minutes ago, and her fingers traced it through the fabric in small desperate movements that she couldn't stop.
+
+Camille's hand covered hers. Stilled it. Not a word. Just: *not yet.*
+
+Yuna made a sound. Tiny. Barely audible. A whimper compressed into a whisper. Her nails dug into Camille's thigh once, hard, a small act of frustrated defiance, and then her hand went limp under Camille's.
+
+Obedient.
+
+She sat through Best Supporting Actress obediently. She sat through Best New Director obediently. She clapped and smiled and laughed at Heejin's commentary and the whole time her thighs pressed together and the wetness from the corridor was cooling on her skin and she vibrated like a string that had been plucked and not allowed to ring.
+
+***
+
+The bar area was during the next break. A mezzanine lounge where attendees mingled, collected drinks, networked. The lighting was low. The music was ambient. The conversations were the kind that happened at industry events — half genuine, half strategy, the social lubrication that kept the machine running.
+
+Camille was at the bar getting Yuna's whiskey when it happened.
+
+"That suit is extraordinary."
+
+The voice was warm and direct. Camille turned. The woman was maybe thirty-five — angular, stunning, the kind of beauty that Korean entertainment selected for and then ruthlessly maintained. She was wearing a red gown that showed engineered cleavage and her eyes were doing the thing — the scan, the intake, the rapid processing of Camille's height and build and the thing in the eyes that wasn't quite disguised.
+
+"Thank you," Camille said. "Your dress is beautiful."
+
+"It's borrowed. The suit looks like it's yours."
+
+"It's rented."
+
+"Rented?" The woman laughed. "It looks like it was built around you." She extended a hand. "Shin Dahye. I'm in the KBS drama block."
+
+"Camille Beaumont. I teach philosophy."
+
+"Philosophy." Dahye's eyes widened. "You're Yuna-unnie's friend. Heejin mentioned you — she said you were—" She paused. Chose her words. "She said you were interesting."
+
+"That's generous of her."
+
+"She said specifically that you were the most interesting person at the table, and Heejin doesn't say that about people. She says it about scripts." Dahye stepped closer. Not subtly. The movement of a woman who knew what she wanted and had decided that directness was more efficient than flirting. "What brings a philosophy professor to the Baeksangs?"
+
+"Yuna invited me."
+
+"Just Yuna?"
+
+"Just Yuna."
+
+"Hmm." Dahye's hand found Camille's arm. A touch. Warm, lingering, the fingertips resting on the suit sleeve with just enough pressure to be intentional. "You know, my husband is in the green room. He's always in the green room. I don't think he's watched an actual ceremony in five years. He just comes for the afterparty."
+
+"That sounds lonely."
+
+"It IS lonely." The touch tightened. Dahye looked up at Camille — she was tall for a Korean woman, maybe five-seven, but she still had to look up — and her eyes had that quality. The hunger. The same hunger Camille had seen in Soyeon, in Jihye, in Minji, in every Korean woman she'd encountered who was beautiful and praised and desired and ALONE inside all of it. "Do you—"
+
+"Camille."
+
+Yuna's voice. Behind her. Not sharp — warm, possessive, the voice of a woman who didn't need to compete because the competition was already decided.
+
+Camille turned. The rotation was immediate, total, the body reorienting like a compass needle swinging north. Her hand left the bar. Her attention left Dahye. Everything — the posture, the eyes, the energy — went to Yuna.
+
+"There you are," Camille said. And her voice changed. Not dramatically — a degree or two warmer, a shade more intimate, the micro-adjustments that only someone paying very close attention would catch. Dahye was paying very close attention. She caught every one.
+
+"I was looking for you," Yuna said, sliding her arm through Camille's. The gesture was proprietary. Natural. The gesture of a woman who'd been doing this in her head for three months and was finally doing it in public. "They're about to announce Best Screenplay."
+
+"Excuse me," Camille said to Dahye. Pleasant. Warm. Already leaving.
+
+They walked away. Arm in arm. Camille's attention fully, utterly, exclusively on Yuna, as if the woman at the bar had been a stranger on a subway platform — briefly occupied the same space, now gone, already forgotten.
+
+Dahye stood at the bar holding her champagne. The flush on her chest was visible above the red gown. Her hand — the one that had been on Camille's arm — was tingling. She looked at her husband across the room, laughing with a producer, not looking at her, never looking at her.
+
+She finished the champagne in one swallow.
+
+Yuna glanced back over her shoulder. Just once. She caught Dahye's eye. The look that passed between them was not hostile, not competitive. It was the look of a woman who had the thing another woman wanted, and who knew it, and who was not sorry about it at all.
+
+The feral smile. Brief. Final.
+
+Dahye ordered another champagne.
+
+***
+
+The third time happened backstage.
+
+Yuna had been called for the pre-segment — a thirty-second intro package before her category. She was in the wings, waiting, a PA with a headset counting her down, when Camille appeared. Not in the audience area — backstage, past the equipment, in the narrow dark corridor between the wings and the green rooms, where the cables ran along the floor and the only light was the blue glow of an emergency exit sign.
+
+Camille didn't say anything. She took Yuna's wrist and pulled her two steps sideways, behind a rack of stage lights, into a pocket of darkness that smelled like dust and hot electronics.
+
+"I'm on in four minutes—"
+
+Camille's mouth was on her neck. Yuna's protest died. The hands on her hips — lifting the gown, finding the bare skin, the wet heat that hadn't dried because it hadn't STOPPED — were not asking permission.
+
+"Two minutes," Camille said against her throat.
+
+"That's not enough—"
+
+"It's enough."
+
+Camille spun her. Face against the wall. The gown hiked. The cock — she'd been hard since the bar, since Dahye's hand on her arm, since Yuna's possessive arrival, since the look over the shoulder — found the entrance and pushed.
+
+SCHLURGE!
+
+Yuna's moan was bitten into her own forearm. The backstage wall was thin. The audience was on the other side. The hosts were doing their intro forty feet away. She could hear the comedian's voice: *"...and now, the moment we've been waiting for — Best Actress in a Television Drama..."*
+
+PLAP! PLAP! PLAP!
+
+Quiet. Controlled. Devastating. Camille fucked her against the backstage wall while the intro package played — Yuna's own face on the screen, her performance in *Grace*, the clip of her crying in the rain, and the real Yuna was right here with her teeth in her arm and a cock inside her and her mascara finally, finally starting to run.
+
+"Mmph ♡♡♡!!! Mmph ♡♡♡♡♡!!!"
+
+"Your category is next," Camille whispered. "You're going to walk on that stage with me dripping down your legs."
+
+"MMPH ♡♡♡♡♡♡♡!!!"
+
+PLAP! PLAP! PLAP! PLAP!
 
 Camille came.
 
-SPURT! SPURT! SPURT! SPURT!
+SPURT! SPURT! SPURT!
 
-In her ass. The cum filling her from behind while her pussy dripped from the front and Yuna came — without being touched, without friction, from the sheer overwhelming REALITY of what she'd done tonight — her body seizing, her squirt arcing off the futon, her voice breaking on a note that was half-scream, half-laugh, half-something that didn't have a name.
+Inside her. Deep. The cum flooding her pussy in thick pulses and Yuna came at the same instant — silently, violently, her body convulsing against the wall, her squirt soaking the backstage floor, and through the wall she could hear the presenter opening the envelope and saying her name:
 
-"DADDY ♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡!!!"
+*"Kang Yuna, Grace."*
 
-Three halves. More than a whole. That was the math of being fucked after winning a Baeksang.
+Applause. Standing ovation. The audience on their feet for a woman who was currently coming on a French cock behind the stage they were applauding.
 
-SPURT… spurt… spurt…
+Camille pulled out. Fast. The cum followed — a trickle that Yuna clenched against, kegels firing, holding as much as she could.
 
-They collapsed. The futon was destroyed. The pillow was destroyed. On the bookshelf, the Baeksang trophy glinted between Foucault and Han Kang, and if it had an opinion about what it had just witnessed, it kept it to itself.
+"Go," Camille said. "You have an award to accept."
 
-Yuna lay face-down. Breathing. Cum leaking from her ass, pooling in the small of her back. Her hair — the two-hour updo that had survived the wall, the red carpet, the podium, and the press conference — was finally, completely, irreversibly ruined.
+Yuna turned. Her face was — Camille wiped under her eyes with her thumbs. The mascara. Quick. Precise. Good enough. The flush was there and there was no hiding it and it didn't matter because Yuna was an actress and actresses flushed at awards.
 
-"Daddy," she said into the pillow.
+She pulled the gown straight. Smoothed it. Took one breath. Two.
 
-"Mm."
+Then she walked onto the stage.
 
-"That was my acceptance speech. The real one."
+***
 
-"I liked it better."
+Two thousand people. Twelve cameras. The crystal trophy — heavy, real. The podium. The lights.
 
-"Me too ♡."
+Yuna stood at the podium and felt the cum settling inside her and looked into the camera and was, for the first time in her career, not acting.
 
-She rolled over. Looked at the ceiling. The same ceiling she'd looked at three months ago, the first time, when she'd been Kang Yuna, Nation's Wife, perfect and empty. Now she was Kang Yuna, Best Actress, imperfect and full. Full of cum and laughter and the knowledge that she'd stood on the biggest stage in Korean entertainment and cucked the entire nation and nobody knew except seven women and one French professor.
+"Thank you," she said. The tremble in her voice was real. "This role — *Grace* — is about a woman who discovers that the version of herself she's been performing isn't her. It's the version everyone else needed her to be. And the moment she stops performing — the moment she chooses to be herself, even if it's messier, even if it's harder, even if it costs her everything — that's the moment she becomes real."
 
-"Dohan texted," she said. "Before I turned the phone off."
+She paused. The auditorium was silent.
 
-"What did he say?"
+"I want to thank Director Lee. Heejin-unnie's extraordinary script. My cast, who became my family." She looked at the front row. Dohan was there — different table, different section, but visible. Smiling. The algorithm. "And I want to thank my husband, Dohan, for always being exactly who he is."
 
-"'Great speech. Get some rest. Cartier brunch at 11.'"
+The audience heard love.
 
-"That's it?"
+Camille, watching from the wings with cum drying on her suit trousers, heard the truth.
 
-"That's it. His wife won Best Actress and he texted her like she'd completed a task on a shared calendar."
+"This award is for every woman who performed someone else's version of her life. You deserve your own story."
 
-"How does that make you feel?"
+The ovation was enormous. Yuna lifted the trophy. The cameras captured her — radiant, glowing, the Best Actress in Korea, lit up from the inside in a way that no lighting designer could replicate and no makeup artist could explain.
 
-"Like I should win every year." She grinned. The feral one. "Because every year, I'll come here first. And every year, I'll stand on that stage with you inside me. And every year, he'll text me a scheduling reminder. And every year, I'll come back here and give you the speech they didn't hear."
+The glow.
 
-She pulled Camille's arm around her. Nestled in. Small and naked and wrecked, with a Baeksang award on the bookshelf and cum drying in places that the Nation would faint to imagine.
+She'd carry it for weeks. The entertainment press would write about it. *"Yuna looked INCREDIBLE at the Baeksangs."* The beauty columns would speculate about new skincare, new treatments, new diets. *"What is Kang Yuna doing differently?"* The fan forums would have theories. *"She and Dohan must be in a really good place — she was GLOWING."*
 
-"Daddy?"
+And in a bar in Mapo-gu, weeks later, Yuna would read the comments aloud while the other women howled.
 
-"Mm."
+*"Dohan must be treating her right 😍"*
+*"Whatever he's doing, she should bottle it"*
+*"Their love is so beautiful I could CRY"*
 
-"I want to thank you for your unwavering cock."
+And Yuna would look at Camille, and Camille would look at Yuna, and neither of them would say it because they wouldn't need to.
 
-"Speech was better the second time."
+But that was later. That was Thursday. That was the bar.
 
-"Everything's better the second time ♡."
+This was the Baeksang. This was the podium. This was the glow.
 
-She fell asleep. In Mapo-gu. In a walk-up. On a futon. The Best Actress in Korea, naked and dripping, while her husband slept alone in a Gangnam penthouse wondering whether to lead with the orphan initiative or the housing reform at tomorrow's press conference.
+***
 
-He never wondered about her.
+The afterparty was in the COEX ballroom.
 
-That was the award she'd actually won.
+Dohan found her there. Of course he did — the brand required a post-ceremony appearance, the golden couple celebrating the golden wife's golden night. He appeared at her elbow with two champagne flutes and the pleasant smile and the hand on her waist.
+
+"Beautiful speech," he said.
+
+"Thank you."
+
+"The part about performing. Very meta."
+
+"It's from the drama."
+
+"Right. Right."
+
+They stood together. The photo-op. Colleagues approaching to congratulate, to air-kiss, to perform the intimacy that the industry ran on. Yuna received them all with the grace of a woman who'd been receiving congratulations her entire career and who was currently, invisibly, leaking cum into a pair of emergency stockings she'd borrowed from a PA backstage.
+
+Camille was across the room. At the bar. Talking to Heejin, who was drunk and delighted and telling everyone within earshot that her table had the best energy in the entire auditorium.
+
+A producer approached Dohan. Lee Jaewon — silver-haired, powerful, the head of the production company that had greenlit *Grace*. He shook Dohan's hand with the two-handed grip of a man who traded in favors.
+
+"Dohan-ssi. Congratulations. Your wife was extraordinary tonight."
+
+"She always is."
+
+"She was GLOWING. I mean it — I've been in this industry thirty years and I've never seen someone look that alive on a stage." Lee Jaewon leaned in. Man-to-man. The wink. The nudge. "Whatever you're doing, keep doing it. The whole building was talking about it."
+
+Dohan's smile held. The algorithm processed the input and selected the appropriate response from its database of charming deflections.
+
+"What can I say," Dohan said. "I'm a lucky man."
+
+Lee Jaewon laughed. Clapped his shoulder. Moved on.
+
+Dohan stood with his champagne. The smile stayed because the smile always stayed. But behind it — in the second bedroom of his expression, the room where the real Dohan lived, the one who hadn't touched his wife in three years and hadn't wondered why until tonight — something shifted.
+
+He'd arrived at the venue at six. He'd been in the green room, the press line, the stage rehearsal. He'd presented Best Supporting Actress at eight-fifteen. He'd sat at his table with his cast the entire ceremony. He had not been near his wife once tonight — not in the bathroom, not in the corridor, not backstage.
+
+But the building was talking about them. About what HE was doing. About his wife's glow. About whatever happened in the dark corners that the golden couple had apparently been sneaking off to all night.
+
+He'd been in none of those corners.
+
+Across the room, Yuna was laughing with her cast. The tall French woman beside her, arm around her waist, and Yuna leaning into the touch with an ease that Dohan had never produced and could not name.
+
+The champagne was warm in his hand. He drank it anyway.
+
+"I'm a lucky man," he said to no one.
+
+The brand held.
 
 ---
 
