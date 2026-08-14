@@ -706,9 +706,7 @@ Yuna got two fingers into her mouth under the cover of a cough, and sucked them 
 
 Heejin won Best Screenplay twenty minutes later.
 
-She sat through Best New Director. Clapped. Smiled. Laughed at Heejin's commentary. Her cunt pulsed around nothing — the ghost-shape of the cock, the stretch-memory — and the smile faltered for one second before the actress caught it.
-
-Heejin won Best Screenplay. The table erupted. Yuna stood and cheered and hugged the producer and her legs were trembling and there were tears in her eyes — from happiness, from pride, from the fact that standing up had shifted the pressure on her clit and she'd nearly come from the gown rubbing against her when she clapped.
+The table came out of its chairs. Yuna stood and cheered and hugged the producer and there were tears in her eyes, from pride and from the fact that standing up had shifted the dress against her and she had very nearly finished right there while applauding.
 
 ***
 
