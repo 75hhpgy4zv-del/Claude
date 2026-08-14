@@ -62,33 +62,103 @@ Yuna laughed — the ugly one. Nose crinkled, head tipped back, mouth too wide. 
 
 He picked up his phone.
 
-For the next thirty minutes, they talked — about the dress, about the nomination, about a book Camille had lent her, about the restaurant where Soojin had served them a tasting menu that made Yuna cry. Leaning in. Finishing each other's sentences. Yuna's hand stayed in Camille's. At one point she put her head on Camille's shoulder and Camille kissed the top of her head. At another point Camille's thumb traced slow circles on Yuna's inner wrist and Yuna's breathing went shallow and she shifted her thighs together and Camille felt it — the micro-clench, the subtle press, the damp heat already building — and kept the circles going. Slow. Patient. The same thumb. The same wrist. Yuna's pulse climbing under the pad of it.
+The thing about the dress was that it wasn't the dress she wanted.
 
-The limo took a turn. Yuna's body pressed into Camille's. Hip to hip, thigh to thigh, the heat of her through the Dior gown. Yuna didn't pull away. Her hand slid from Camille's hand to Camille's thigh and she felt the muscle tense under her palm and her fingers spread wider and she squeezed and Camille's jaw tightened and the cock stirred — half-hard, thickening against the inseam — and Yuna felt it pulse and her own cunt answered with a throb that made her close her eyes.
+Yuna explained this at some length. There had been a problem with the loan, and then a problem with the stylist who had caused the problem with the loan, and the whole thing had ended with somebody calling Paris at two in the morning. She was aware while telling it that it was not an interesting story. She told it anyway, because Camille listened to her the way she listened to everything, which was completely.
 
-Camille's hand moved to Yuna's knee. Rested. Then slid up, over the gown fabric, the Dior shifting under her palm as her hand traveled along Yuna's thigh. Slowly. The fabric gathered. The hand stopped mid-thigh — high enough to feel the heat radiating from between Yuna's legs through the dress, low enough that from Dohan's angle it looked like a hand on a knee. Yuna's breath went ragged. She pressed her thighs together, trapping Camille's hand between them, squeezing, and she could feel the long fingers resting against the inside of her thigh where the skin was soft and thin and she was wet — already wet, wet from the kiss on her head, wet from the thumb on her wrist, wet from the cock pulsing against the inseam two feet from her hand — and the dress was absorbing it.
+"So it isn't even the one you wanted."
 
-Another turn. Camille's hand pressed harder between the trapped thighs and Yuna's hips rocked — one tiny, involuntary movement — and she bit her lip and stared at the limo ceiling.
+"It's the third one I wanted."
 
-Dohan scrolled Instagram. His eyes kept drifting up over the top of the phone. His wife's head on a woman's shoulder. Their tangled fingers. The way Yuna kept shifting in her seat, pressing her knees together, her cheeks flushed, her bottom lip caught between her teeth.
+"It's a good third."
 
-The limo hit a pothole. Yuna gasped — the bump jolted Camille's fingers against her cunt through the gown and the contact, muffled through layers of Dior fabric, was still enough to make her stomach clench and a small, sharp sound escape her mouth. She covered it with a cough. The cock was fully hard now. Yuna could see the line of it through the suit trousers from where she was sitting — the ridge, the length, the head pressing against the fabric — and Dohan was two feet away and couldn't see because the angle was wrong and Yuna wanted to scream.
+"It's a very good third." Yuna smoothed the skirt over her knee. "The first one had a slit up to about here. Manager Kim said the fan cafés would have opinions."
 
-Dohan glanced up. "You okay?"
+"About your leg."
 
-"Fine. The cold."
+"About my leg. There's a thread. Forty pages."
+
+"About your leg."
+
+"You keep saying it like it's going to stop being true."
+
+"Blue photographs better anyway," Dohan said. "It was the right call."
+
+Yuna had been married to him for four years and knew exactly what that sentence was. It was a man finding a door in a conversation and trying the handle.
+
+Nobody answered him.
+
+"That's what I told her," he said, to his phone.
+
+Yuna gave it a respectful four seconds.
+
+"Did you finish the book?"
+
+"Tuesday. Then I read the last forty pages again on Wednesday and then I was angry until about an hour ago."
+
+"Good."
+
+"Not good. You gave me a book that made me angry."
+
+"You said you wanted something that wasn't a script."
+
+"I wanted something nice."
+
+"You did not want something nice." Camille was smiling out the window. "You said — and I'm quoting you — that you wanted something that would do damage."
+
+Yuna laughed. Not the one she used on camera. The other one, the one that crinkled her nose and opened her mouth too wide, which a magazine profile in 2019 had called *surprisingly unglamorous*. She had read that profile eleven times.
+
+Camille laughed too.
+
+In the reflection of his phone screen, Dohan watched his wife laugh at something he hadn't heard.
+
+Somewhere near the river they ran out of things to say, and it turned out not to matter.
+
+Yuna put her head on Camille's shoulder. Camille kissed the top of it, which took half a second and was the least sexual thing that happened in that car all evening, and Yuna felt it go down her spine and out through the backs of her knees.
+
+Then Camille took her hand, turned it palm up, and started drawing slow circles on the inside of her wrist with her thumb.
+
+That was all. That was the entire thing. She did it for eleven minutes.
+
+Ten days ago this woman had fucked her against a wall until she briefly lost the use of her legs, and this was worse. There was no part of it she could point at. If you filmed it and showed it to a court you would have a woman holding another woman's hand. And still, by the time they came off the bridge, Yuna had stopped being able to follow the conversation. She was looking out the window at a stack of apartment buildings and thinking about nothing at all and sitting very, very still, because sitting still was the only thing holding her together.
+
+"Traffic's light," Dohan said.
+
+"Mm."
+
+"We're early, even. That never happens."
+
+"Mm."
+
+The car took the ramp and she slid against Camille's side and did not slide back.
+
+Her hand went onto Camille's thigh, mostly because it needed somewhere to be. She found the muscle under the fabric and squeezed, and something shifted against the inseam of the suit trousers, and Yuna shut her eyes and thought, with total clarity: *I am going to embarrass myself in this car.*
+
+Camille put a hand on her knee.
+
+It sat there long enough that Yuna decided it was going to stay. Then it moved, up over the Dior, gathering the fabric as it went, and stopped high on her thigh. From Dohan's seat it was a hand on a knee. From hers it was close enough to feel the heat of the palm through the dress, and she understood that she was going to be dealt with eventually, on somebody else's schedule, and that there was nothing whatsoever she could do to hurry it.
+
+She clamped her thighs shut on it.
+
+"—they've fixed the seating this year," Dohan was saying. "Last year they had us behind a camera crane. You couldn't see anything."
+
+"Mm."
+
+Then the car hit a pothole.
+
+Camille's fingers jolted against her through the dress and Yuna made a noise. It was a small noise, but it was unmistakably a noise, and she turned it into a cough about half a second too late.
+
+Dohan looked up. "You okay?"
+
+"Fine. Cold."
 
 "It's June."
 
-"The air conditioning."
+"Air conditioning."
 
-He looked at her for one beat. Two. His eyes moved to Camille's hand, resting on the seat between them, close to Yuna's thigh. The hand was still. Innocent. Three minutes ago it had been between his wife's legs.
+He looked at her. One beat, then another. Then his eyes went to Camille's hand, which was sitting on the seat between them now, being completely innocent.
 
-He went back to his phone.
-
-He didn't say anything.
-
-He liked a fan post instead. *Dohan-oppa and Yuna-unnie are GOALS 😍 #gukminbubu*
+Yuna watched her husband decide not to think about it. She could actually see it happen. It took him about a second and a half. Then he went back to his phone and liked a fan post — *Dohan-oppa and Yuna-unnie are GOALS 😍 #gukminbubu* — and she loved him a little, in a distant way, the way you love someone in a photograph.
 
 ***
 
