@@ -10,6 +10,8 @@ They collected Dohan first. He got in smelling of Sauvage, said "Hey," and went 
 
 Then the car stopped outside a bar in Mapo-gu and Yuna got in, and Camille got in behind her and had to duck to do it.
 
+There were two benches. Yuna sat down on the one opposite her husband, and Camille sat down next to Yuna, and that was how the seating went for the next forty minutes.
+
 Dohan looked up.
 
 "Ah," he said. "The professor."
@@ -64,11 +66,33 @@ Yuna looked out of the window for a moment before she trusted herself to answer.
 
 Yuna laughed. Not the one she used on camera — this one was loud and it crinkled her nose and opened her mouth too wide. Camille laughed at her laughing. Between them they filled the car with it.
 
-"Trouble," Dohan said, pleasantly. "Should I be worried?"
+"Trouble," Dohan said. "Should I be worried?"
+
+He had meant it as a joke. It came out about eighty percent joke.
 
 Nobody picked it up.
 
-He left it a moment longer than was comfortable, in case one of them was going to, and then he got his phone out.
+"We did an interview in a car once," he said, to Camille, because Camille was the one looking at him. "Some magazine. They wanted couple content, us in the back of a car being adorable, and Yuna-ya got carsick."
+
+"I didn't get carsick."
+
+"You went green."
+
+"I went green because the interviewer asked me what I cook for you."
+
+"See, this is what she does." He was expansive about it, generous, a man letting a guest in on the family joke. "She remembers the question wrong because the wrong one's a better story. She's been doing it for years."
+
+"I remember the question exactly," Yuna said, and did not look at him while she said it.
+
+Dohan laughed anyway.
+
+Then he leaned across the gap between the benches and put his hand on her knee — the outside one, the one nearest him — and left it there for a second and took it back. A husband's hand. Entirely for show, and there was nobody in the car it could have been for except the two women who had both watched him do it.
+
+Neither of them said anything about that either.
+
+He sat back. He looked at the two of them on the opposite bench, at the eight inches of upholstery between his knee and his wife's, and at the zero inches between his wife and the professor.
+
+Then he got his phone out.
 
 The thing about the dress was that it wasn't the dress she wanted.
 
