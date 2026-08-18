@@ -154,7 +154,7 @@ He laughed anyway.
 
 Then he leaned across the gap between the benches and put his hand on his wife's knee.
 
-She kept talking. She was telling Camille about the schedule — who she had to thank, the walk to the stage — and his hand sat there on her knee like something left on a table. Camille's hand was on the other knee. The difference between the two was something she felt in every nerve ending she had, and then he took his hand back.
+She kept talking. She was telling Camille about the schedule — who she had to thank, the walk to the stage — and his hand sat there on her knee and she felt nothing. Not warmth, not weight, not skin. Just pressure in a location. Camille's hand was on the other knee and her whole body was humming from it, and then he took his hand back.
 
 He got his phone out.
 
