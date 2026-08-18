@@ -290,43 +290,43 @@ She took Camille's arm and walked off the carpet.
 
 The bathroom on the second floor was VIP, single occupancy, with a lock that clicked.
 
-She dragged Camille down the corridor by the wrist, half-running in heels with the Dior whipping round her ankles, past a security guard who watched them go and decided it was not his problem. Seventy seconds from the carpet to the door. She had the handle turned before her feet were under her.
+Yuna dragged Camille down the corridor by the wrist, half-running in heels with the Dior whipping round her ankles, past a catering station and a security guard who watched them go and decided it was not his problem. She had the handle turned before her feet were properly under her, pulling Camille through by the lapel of the rented suit, and Camille caught the door with her heel and the lock turned behind them and for about two seconds the only sound in the room was Yuna breathing.
 
-Camille lifted her onto the marble counter before the door finished swinging shut.
+The marble counter was cold through the Dior when Camille lifted her onto it. Yuna's thighs opened around her waist on instinct, heels hooking behind Camille's legs, and the height difference put Camille's mouth level with her forehead and her hands level with everything else.
 
 "The dress—"
 
 "I know."
 
-Camille's hand went under the gown, up her thigh, past the stocking and the garter to bare skin. No underwear. Yuna had made that decision at four in the afternoon and had thought about it roughly every ten minutes since.
+Camille's hand went under the gown. Up past the stocking-top where the lace bit into her thigh, past the garter strap, onto bare skin that was already hot and damp with sweat. No underwear. Yuna had made that decision at four in the afternoon and the awareness of it had been sitting low in her belly for three hours, a slow constant pulse, her body reminding her every time she shifted in a chair or felt the lining of the dress drag across her.
 
-Two fingers pushed into her and her head cracked back against the mirror.
+Two fingers pushed into her and her skull cracked back against the mirror hard enough to rattle it in the frame.
 
 "Hah ♡♡♡!!!"
 
 "Quiet."
 
-"I can't ♡… I've been wet since the *limo* ♡♡♡… since you kissed my head ♡♡♡ I almost came from the wrist thing, I almost came and he was sitting RIGHT THERE ♡♡♡♡♡…"
+"I can't ♡… I've been soaked since the *limo* ♡♡♡… since the wrist thing, I was dripping through the lining and he was sitting RIGHT THERE ♡♡♡♡♡…"
 
-Camille put a hand over her mouth. Yuna rode her hand like she was trying to climb it.
+She was so wet that Camille's fingers made an obscene sucking sound every time they moved, and the sound bounced off the marble walls and came back doubled, and Yuna could hear exactly how desperate she was and it made her worse. She rode Camille's hand with her hips rolling in tight circles, trying to take the fingers deeper, grinding her clit against the heel of Camille's palm until the friction built into something unbearable and her thighs started shaking.
 
-Then Camille pulled the fingers out, dripping, and held them up.
+Camille pulled the fingers out. Held them up between them, shining, strung with it.
 
-Yuna took them into her mouth without being asked. She sucked them clean. She kept her eyes on Camille's the whole way through.
+Yuna took them into her mouth without being asked. She tasted herself — salt and musk and the faint bitterness underneath — and sucked them clean with her eyes locked on Camille's, hollowing her cheeks around the knuckles, running her tongue between the fingers to get all of it.
 
 "Turn round."
 
-She turned and put her palms flat on the marble. The gown came up over her hips.
+She turned and put her palms flat on the marble. It was ice-cold and her nipples went tight against the Dior and the gown came up over her hips and the air hit the wet skin of her inner thighs and she shivered from her shoulders to her knees.
 
 "Look up."
 
-The mirror ran the full width of the wall. There she was — hair still perfect, forty million won of midnight-blue Dior bunched at her waist, and behind her a woman a foot taller getting a zip down.
+The mirror ran the full width of the wall, warm downlighting above it designed to make everyone look expensive. And there she was — hair still in place, mascara still perfect, forty million won of midnight-blue Dior bunched at her waist like a rag, and behind her a woman a foot taller and twice as broad across the shoulders getting a zip down with one hand while the other held Yuna's hip against the counter.
 
-"New rule," Camille said. "Tell me what you see. Every time I ask."
+"New rule," Camille said. Her voice was low and easy and completely unhurried, like a woman deciding what to order for dinner. "You're going to tell me what you see. Every time I ask."
 
 "...What?"
 
-"Out loud. Stop talking and I stop."
+"Out loud. In words. Stop talking and I stop moving."
 
 "That's not—"
 
@@ -334,19 +334,19 @@ The mirror ran the full width of the wall. There she was — hair still perfect,
 
 "...Me."
 
-"Try harder."
+"Try harder than that."
 
 SCHLURGE!
 
 "NNNGH ♡♡♡♡♡!!!"
 
-It went in to the base on the first stroke and her knees went out from under her and she caught herself on her forearms.
+It went in to the base on the first stroke. Her knees buckled and she caught herself on her forearms and her mouth opened and stayed open and the breath came out of her in a long, wrecked, shapeless sound that fogged the marble under her face.
 
-The first second is always too much. She is not a large woman and there is more of it than there is of her, and the first stroke puts a pressure up under her ribs that she feels in her stomach and near the base of her throat, and there is a place inside her that is not supposed to be reachable and it arrives there and then arrives there again. It sits on the line where pain would start and does not cross it.
+The size of it rearranged her. That was the only word for it. She could feel the head pressing up behind her navel, a deep aching pressure that radiated outward through her hips and up into her ribs and sat right on the seam between pain and something so far past pleasure that the word didn't apply any more. Her walls clenched around it involuntarily, fluttering, trying to accommodate something they could not accommodate, and every flutter sent a pulse of heat through her whole pelvis that she felt in her nipples and her scalp and the backs of her knees.
 
-And her head goes quiet.
+And her head went quiet.
 
-That is the part. That is why she is bent over a sink in a building with two thousand people. It cannot run through this — the process, the performance, the permanent calculation of how she is being read — there is not enough of her left to run it. She is too full. For as long as that lasts she is nobody at all and it is the only rest she gets.
+Not peaceful. Not calm. Quiet the way a circuit breaker is quiet — everything behind it still live, still running, but the connection severed. The endless calculation that ran her life — *how am I being read, who is watching, what does this room need from me* — it could not run through this. There was not enough of her left. The cock filled her so completely that every thought she tried to form broke apart against the sensation of it before it could finish, and what remained was just body, just nerve endings, just the wet obscene reality of being stretched open around something too big for her, and it was the only rest she had ever found.
 
 PLAP! PLAP! PLAP!
 
@@ -354,53 +354,61 @@ PLAP! PLAP! PLAP!
 
 "What do you see?"
 
+She tried to focus on the mirror. The woman in it had her mouth open and her eyes half-rolled and a string of saliva connecting her lower lip to the marble countertop. Behind her Camille's hips were moving in long, deliberate strokes that pushed Yuna forward on the counter each time and dragged her back by the hip each time, and the wet sounds of it were filling the bathroom, thick and rhythmic and grotesquely loud.
+
 "I — ♡♡♡ — I don't want it to stop—"
 
 "That's not what I asked."
 
-"Someone who doesn't — ♡♡♡♡♡ — someone who doesn't want to leave this room ♡♡♡♡♡!!!"
+"Someone who — ♡♡♡♡♡ — who doesn't want to leave this room, ever, someone who'd stay here forever ♡♡♡♡♡!!!"
 
 "Better."
 
 PLAP! PLAP! PLAP! PLAP!
 
-Camille reached round and spread her open. The mirror had everything now. A thumb started circling her asshole with the wet coming down off her.
+Camille reached around with one hand and spread her open from the front so the mirror caught everything — the cock going in, the pink stretched rim of her clinging to the shaft on every outstroke, the slick mess of her running down her inner thighs and soaking into the stocking-tops. With her other hand she ran a thumb down through the wetness pooling beneath Yuna's ass and pressed it against her asshole, circling slowly, not pushing in, just making her aware of it.
 
 "AH ♡♡♡♡♡!!! Don't — ♡♡♡ — don't stop—"
 
 "What do you see?"
 
-"I see — ♡♡♡♡♡ — I see someone who'd give it all up for this ♡♡♡♡♡♡♡ — all of it, the career and the husband and the — DADDY ♡♡♡♡♡♡♡♡♡ — I'm yours, I'm your stupid Korean fucktoy and I'd trade everything ♡♡♡♡♡♡♡!!!"
+"I see — ♡♡♡♡♡ — I see someone who wants to give everything up ♡♡♡♡♡♡♡ — the career and the husband and all of it — I'd trade it all, I'd give up everything I have for this, DADDY ♡♡♡♡♡♡♡♡♡ — I'm yours, I'm Daddy's stupid Korean fucktoy and I'd trade every award on that stage ♡♡♡♡♡♡♡!!!"
 
-Camille laughed. Not unkindly.
+Camille laughed. Low, warm, genuinely delighted.
 
 "There she is."
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
-A fist closed in her hair and pulled, and the woman in the mirror stopped being anybody she recognised. That face had been on the side of a building in Gangnam since March. It was slack now, mouth open, eyes rolling up, drool swinging off her bottom lip onto the marble.
+A fist closed in her hair and pulled her head up off the counter, and the woman in the mirror was no longer anyone Yuna recognised. That face had been on the side of a building in Gangnam since March, sixty feet tall over the Apgujeong intersection, selling skincare to four million commuters. It was slack now, mouth hanging open, mascara beginning to smear under the eyes, a long string of drool swinging off her bottom lip and landing on the marble in a wet spot that spread slowly outward. Her pupils were blown so wide the brown was almost gone.
 
 "Say it looking at yourself."
 
-Yuna dragged her eyes up. She found her own face in the glass, drooling, mascara starting to go, and said it with the woman in the mirror saying it back.
+It cost her something to hold her own gaze. The woman in the mirror was looking back at her with an expression of total, abject, ruined surrender, and she had to watch herself say the words while that face said them back.
 
-"I'm Daddy's ♡♡♡♡♡ — I'm Daddy's and I've never wanted anything this much in my LIFE ♡♡♡♡♡♡♡♡♡!!!"
+"I'm Daddy's ♡♡♡♡♡ — I'm Daddy's and I've never wanted anything this much in my life and I'd do this every day forever and never get tired of it ♡♡♡♡♡♡♡♡♡!!!"
 
 That was when Camille stopped being patient.
 
-Both hands on her hips. The counter banging the wall. Yuna's forearms went. Her cheek hit marble. Her fingers splayed and found nothing.
+Both hands locked onto her hips, fingers digging in hard enough to leave bruises she would find in the shower tomorrow, and the pace doubled. The counter banged against the wall on every stroke, a rhythmic concussive thud that someone in the corridor could absolutely hear, and Yuna's forearms gave out and her cheek hit the marble and her fingers scrabbled and splayed and found nothing to hold onto. The wet slap of skin on skin echoed off the tile and came back layered on itself, filling the small room with the sound of what was happening to her, and her whole body was jolting forward with each thrust, her breasts crushed against the cold stone through the bunched-up Dior, her toes barely touching the floor in the heels.
 
 PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
 
 "♡♡♡♡♡!!! DADDY ♡♡♡♡♡♡♡♡♡!!!"
 
-She came so hard she squirted against the underside of the counter and got her own forearm into her mouth to keep it inside the room.
+She came so hard her vision whited out. Her cunt clamped down in waves and she squirted against the underside of the counter, a hot rush that ran down her thighs and pooled in the tops of her stockings, and she got her own forearm into her mouth and bit down to keep the scream inside the room and tasted the salt of her own skin and kept coming, kept clenching, her whole body seizing in long rolling contractions that she could feel in her stomach and her chest.
 
-Camille did not stop. She fucked her straight through and buried herself to the root and came inside her, one hand splayed flat on the small of her back to hold her down for it.
+Camille did not stop. She fucked her straight through the orgasm without slowing, and every thrust during it was too much, every nerve ending screaming, her clit so swollen and sensitive that the indirect pressure of the cock moving inside her sent shocks through her that made her legs kick, and she was making sounds into her own forearm that were not words in any language.
 
-Then she leaned over and put her mouth by Yuna's ear.
+Then Camille buried herself to the root and held there and came inside her.
+
+Yuna felt it. She felt the cock pulse and swell and the first thick rope of cum hit deep inside her and the heat of it spread outward through her pelvis, and Camille's hand was splayed flat on the small of her back, pressing her hips down against the counter so she couldn't move, couldn't do anything except lie there and take it, and she felt herself being filled, felt the cum pooling inside her where there was no room for it, felt it begin to leak out around the shaft in a slow warm trickle that ran down across her clit and dripped onto the marble floor.
+
+Camille leaned over and put her mouth against Yuna's ear. She was breathing hard. It was the first time all night Yuna had heard her breathing hard.
 
 "Nine minutes," she said. "Before anyone comes looking."
+
+Yuna lay on the counter with her cheek in a puddle of her own drool and cum leaking out of her and the taste of her own arm in her mouth and the Dior bunched at her waist like she'd been mugged.
 
 "...Nine minutes is enough for another one."
 
