@@ -662,6 +662,42 @@ They went back. Heejin noticed immediately.
 
 "She's a good SOMETHING," Heejin muttered, and drank her wine.
 
+Dohan came over between categories.
+
+He worked these rooms in loops — twenty seconds a table, a hand on a shoulder, a joke he'd already used twice. Yuna watched him coming from fifteen meters out and felt nothing at all about it.
+
+"Table looks lively."
+
+"Heejin's drunk."
+
+"Heejin's always drunk." He put his hand on the back of Yuna's chair rather than on Yuna. "You were gone a while."
+
+"Bathroom."
+
+"For twenty minutes?"
+
+"There was a queue."
+
+There was no queue. There was never a queue at the VIP bathrooms, which was the entire point of the VIP bathrooms, and Dohan had used them at four separate ceremonies.
+
+He looked at her for a moment.
+
+Her hair was not right on one side. There was a mark coming up under her jaw that the foundation was losing an argument with. She was sitting tilted off one hip because the other one had been driven into a concrete wall forty minutes earlier, and her voice had gone about a semitone lower than it had been at dinner.
+
+"Right," he said. "Your category's soon."
+
+"I know."
+
+"You'll get it."
+
+"Thanks."
+
+He squeezed the back of the chair and moved to the next table.
+
+Heejin watched him go the entire way.
+
+"Huh," she said, to nobody.
+
 Yuna sat down. Crossed her legs. Uncrossed them.
 
 The tablecloth went all the way to the floor. She had noticed that on the way in, the way you notice an exit row.
