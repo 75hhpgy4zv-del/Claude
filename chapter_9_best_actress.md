@@ -246,9 +246,9 @@ She took Camille's arm again and walked off the carpet.
 
 ***
 
-The bathroom on the second floor was VIP, single occupancy, with a lock that clicked. The lock was the only feature Yuna cared about.
+The bathroom on the second floor was VIP, single occupancy, with a lock that clicked.
 
-She dragged Camille down the corridor by the wrist, half-running in heels with the Dior whipping around her ankles. A security guard watched them go and decided it wasn't his problem. Seventy seconds from the red carpet to the door, and Yuna had the handle turned before her feet were properly under her.
+She dragged Camille down the corridor by the wrist, half-running in heels with the Dior whipping round her ankles, past a catering station and a security guard who watched them go and decided it was not his problem. Seventy seconds from the red carpet to the door. Yuna had the handle turned before her feet were properly under her.
 
 Camille lifted her onto the marble counter before the door finished swinging shut.
 
@@ -256,7 +256,7 @@ Camille lifted her onto the marble counter before the door finished swinging shu
 
 "I know."
 
-Camille's hand went under the gown, up her thigh, past the stocking and the garter to the bare skin above. There was no underwear. Yuna had made that decision at four in the afternoon and had thought about it roughly every ten minutes since.
+Camille's hand went under the gown, up her thigh, past the stocking and the garter to bare skin. There was no underwear. Yuna had made that decision at four in the afternoon and had thought about it roughly every ten minutes since.
 
 Two fingers pushed into her and her head cracked back against the mirror.
 
@@ -264,85 +264,117 @@ Two fingers pushed into her and her head cracked back against the mirror.
 
 "Quiet."
 
-"I can't ♡… I've been wet since you kissed my head in the limo ♡♡♡… Dohan was RIGHT THERE ♡♡♡♡♡…"
+"I can't ♡… I've been soaked since the limo ♡♡♡… since you kissed my *head* ♡♡♡♡♡… he was sitting right there and I was dripping through the lining ♡♡♡♡♡♡♡…"
 
-Camille covered her mouth with one hand. It didn't accomplish much. The moan came out muffled and desperate instead of loud and desperate, and Yuna kept grinding down onto the fingers like she was trying to climb them.
+Camille put a hand over her mouth, which achieved very little. The noise came out muffled instead of loud, and Yuna rode her hand like she was trying to climb it.
 
-Camille pulled the hand out, dripping, and held it up.
+Then Camille pulled the fingers out, dripping, and held them up.
 
-Yuna took the fingers into her mouth without being asked. She sucked them clean and kept her eyes on Camille's the entire time, which was a thing she had learned to do two months ago and now did automatically.
+Yuna took them into her mouth without being asked, and sucked them clean, and kept her eyes on Camille's the whole way through it.
 
-"Turn around."
+"Turn round."
 
-She turned and put her hands on the marble. The gown got shoved up to her waist. When she raised her eyes she found herself looking at herself — flushed, mascara intact, the same face that had smiled for forty cameras nine minutes ago. Behind that face stood Camille, unzipped, lining the cock up between her thighs.
+She turned and put her palms flat on the marble. The gown came up over her hips.
+
+"Look up."
+
+Yuna looked up. The mirror ran the full width of the wall. There she was in it — hair still perfect, mascara still perfect, forty million won of midnight-blue Dior bunched at her waist, and behind her a woman a foot taller getting a zip down.
+
+"New rule," Camille said. "You're going to tell me what you can see. Every time I ask."
+
+"...What?"
+
+"Out loud. In words." She got a hand on Yuna's hip. "Stop talking and I stop."
+
+"That's not fair—"
+
+"What do you see?"
+
+"...Me."
+
+"Try harder than that."
 
 SCHLURGE!
 
 "NNNGH ♡♡♡♡♡!!!"
 
-It went all the way in on the first stroke.
-
-"Watch," Camille said. "Watch yourself."
-
-So Yuna watched. She watched the diamonds swinging at her ears. She watched her own mouth fall open and stay open. It was a famous mouth; magazines had run features on it. Now there was drool coming off the bottom lip and landing on a bathroom counter, and she could not have closed it if somebody had offered her money.
+It went in to the base on the first stroke and Yuna's knees went out from under her and she caught herself on her forearms.
 
 PLAP! PLAP! PLAP!
 
 "♡♡♡!!! ♡♡♡!!! ♡♡♡!!!"
 
-Camille spread her open with one hand, and in the mirror Yuna could see all of it — the cock going into her, her own pink stretched wide around the shaft, and Camille's thumb tracing slow circles over her asshole with the slick that was running down out of her.
+"What do you see?"
 
-"AH ♡♡♡♡♡!!!"
+"I — ♡♡♡ — I see myself—"
 
-"Sensitive."
+"Doing what?"
 
-"Don't ♡♡♡… don't stop…"
+"Getting — ♡♡♡♡♡ — I'm getting fucked—"
 
-Camille didn't stop, but she didn't push the thumb in either. She just kept circling. Yuna clenched down so hard that Camille grunted, which was the only sound she had made since the door shut.
+"By who?"
+
+"By *you* ♡♡♡♡♡ — by Daddy — Daddy's fucking me in a bathroom while the whole country waits outside ♡♡♡♡♡♡♡!!!"
+
+"Better."
 
 PLAP! PLAP! PLAP! PLAP!
 
-Then a fist closed in her hair and pulled, and her neck arched, and now she was looking at her own throat in the mirror with the pulse jumping in it. Camille's other hand flattened against her stomach and dragged her back onto every stroke. The angle changed. The head started grinding somewhere near the front of her and her legs simply quit.
+Camille reached round and spread her open, and now the mirror had everything in it: the cock going in, Yuna stretched pink and shining around it, her own thighs slick to the stocking-tops. A thumb started circling her asshole with the wet coming down off her.
 
-"Ah ♡♡♡!! Ah ♡♡♡♡♡!! AH ♡♡♡♡♡♡♡!!"
+"AH ♡♡♡♡♡!!! Don't — ♡♡♡ — don't stop—"
 
-Camille held her up with one arm and kept fucking her. The woman in the mirror had stopped being an actress a while ago. She was slack-jawed and rolling her eyes back and her earrings were swinging hard enough to hurt.
+"What do you see?"
 
-"Your husband is downstairs practicing his presenter's smile," Camille said.
+"I see a — ♡♡♡♡♡ — oh god — I see the Nation's Wife with her dress round her waist and her ass being played with ♡♡♡♡♡♡♡ — I see a *slut*, Daddy, I'm a slut, I'm your slut, I'm your filthy Korean slut ♡♡♡♡♡♡♡♡♡!!!"
 
-"I know ♡♡♡♡♡…"
+Camille laughed. Not unkindly. The way you laugh at something delightful.
 
-"While I'm up here splitting his wife open on a counter."
-
-"I KNOW ♡♡♡♡♡♡♡!!!"
+"There she is."
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
-Camille buried herself to the base and stopped moving.
+A fist closed in her hair and pulled, and her neck arched, and the woman in the mirror stopped being anybody Yuna recognised. That face had been on the side of a building in Gangnam since March. It was slack now, mouth open, eyes rolling up, a string of drool swinging off the bottom lip and landing on the marble.
 
-Yuna could feel a heartbeat inside her. She squirmed back against it, trying to get some friction, any friction at all, and Camille's hands locked onto her hips and held her exactly where she was.
+"They're all out there," Camille said, conversational, not slowing. "Two thousand of them. Every one of them thinks they know exactly who you are."
 
-"Daddy ♡♡♡… please…"
+"MMH ♡♡♡♡♡!!!"
 
-"Please what?"
+"And this is what you actually are."
 
-"MOVE—"
+"YES ♡♡♡♡♡♡♡ — yes — yes, this is it, this is me ♡♡♡♡♡♡♡♡♡ — I'm nothing, I'm just a hole, I'm Daddy's hole and they can all keep the rest of it ♡♡♡♡♡♡♡!!!"
 
-Camille moved. Five strokes, hard enough that the sound cracked off the marble like applause.
+"Say it looking at yourself."
 
-PLAP! PLAP! PLAP! PLAP! PLAP!
+Yuna dragged her eyes up. It cost her something. She found her own face in the glass and held it there, drooling, mascara starting to go, and said it again with the woman in the mirror saying it back.
 
-"What would all those cameras say? The Nation's Wife, stuffed full, forty million won of dress around her waist."
+"I'm Daddy's ♡♡♡♡♡ — I'm Daddy's stupid Korean fucktoy and I've never been happier in my LIFE ♡♡♡♡♡♡♡♡♡!!!"
 
-"DADDY ♡♡♡♡♡… DADDY… DADDY ♡♡♡♡♡♡♡!!!"
+That was when Camille stopped being patient.
 
-Yuna came and squirted against the inside of the counter and bit down on her own arm to keep it quiet.
+She got both hands on Yuna's hips and fucked her properly, the counter banging against the wall on every stroke, the wet slap of it going off the marble and coming back doubled. Yuna's forearms went. Her cheek hit the counter. Her fingers scrabbled and found nothing and just splayed there.
+
+PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
+
+"♡♡♡♡♡!!! ♡♡♡♡♡♡♡!!! DADDY ♡♡♡♡♡♡♡♡♡!!!"
+
+"What would they say?" Camille had her by the hair again, holding her head up so she had to keep watching. "The whole country. Their Yuna. Bent over a sink taking every inch of it and asking for more."
+
+"LET THEM ♡♡♡♡♡♡♡ — let them all watch — I don't care, I don't care about any of it — DADDY ♡♡♡♡♡♡♡♡♡♡♡!!!"
+
+She came so hard she squirted against the underside of the counter and had to get her own forearm into her mouth to keep it inside the room.
 
 "MMMPH ♡♡♡♡♡♡♡♡♡♡♡!!!"
 
-Camille pulled out, still hard, and tucked herself away.
+Camille did not stop for it. She fucked her straight through the whole thing, and when Yuna's cunt was still clamping in aftershocks she buried herself to the root and came inside her, hard, one hand splayed flat on the small of Yuna's back to hold her down for it.
 
-"That one was for you. We're coming back later."
+Then she leaned over and put her mouth by Yuna's ear.
+
+"Nine minutes," she said. "You have nine minutes before anyone comes looking."
+
+"...Nine minutes is enough for another one."
+
+"That's what I thought too."
 
 ***
 
