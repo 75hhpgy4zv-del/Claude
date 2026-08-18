@@ -2,9 +2,9 @@
 
 ---
 
-The limo was Dohan's idea, and the idea was optics. Korea's golden couple stepping out of one car into one frame, with forty-five minutes from Gangnam to COEX so the photographers had time to set up.
+The limo was Dohan's idea. He wanted the two of them arriving in the same car and stepping out into the same frame, and he wanted a route long enough that the photographers would be set up by the time it pulled in, so Manager Kim booked forty-five minutes from Gangnam to COEX and a driver who knew not to talk.
 
-Manager Kim booked it. At four in the afternoon Yuna texted to say there'd be a third passenger, and Manager Kim replied *Understood* and asked nothing, because the day she started asking was the day she'd have to know.
+At four in the afternoon Yuna texted to say there would be a third passenger. Manager Kim wrote back *Understood.*
 
 They collected Dohan first. He got in smelling of Sauvage, said "Hey," and went back to his phone.
 
@@ -58,7 +58,7 @@ Then he got his phone out again.
 
 The thing about the dress was that it wasn't the dress she wanted.
 
-Yuna explained this at some length. There had been a problem with the loan, and then a problem with the stylist who had caused the problem with the loan, and the whole thing had ended with somebody calling Paris at two in the morning. She was aware while telling it that it was not an interesting story. She told it anyway, because Camille listened to her the way she listened to everything, which was completely.
+Yuna explained this at some length. There had been a problem with the loan, and then a problem with the stylist who had caused the problem with the loan, and the whole thing had ended with somebody calling Paris at two in the morning. It was not an interesting story and she knew it was not an interesting story, and she told all of it anyway, because Camille had turned in her seat somewhere around the part about the stylist and had not looked away since.
 
 "So it isn't even the one you wanted."
 
@@ -78,7 +78,7 @@ Yuna explained this at some length. There had been a problem with the loan, and 
 
 "Blue photographs better anyway," Dohan said. "It was the right call."
 
-Yuna had been married to him for four years and knew exactly what that sentence was. It was a man finding a door in a conversation and trying the handle.
+Four years of marriage had taught Yuna to recognise that sentence. He had found a gap in the conversation and put something in it, the way you'd put a foot in a closing lift.
 
 Nobody answered him.
 
@@ -106,7 +106,7 @@ Camille laughed too.
 
 In the reflection of his phone screen, Dohan watched his wife laugh at something he hadn't heard.
 
-Somewhere near the river they ran out of things to say, and it turned out not to matter.
+Somewhere near the river they ran out of things to say. Neither of them minded.
 
 Yuna put her head on Camille's shoulder and Camille kissed the top of it, which took half a second.
 
@@ -114,7 +114,7 @@ Then she took Yuna's hand, turned it palm up, and started drawing slow circles o
 
 That was all. She did it for eleven minutes.
 
-If you filmed it you would have a woman holding another woman's hand. By the time they came off the bridge Yuna had lost the thread of her own conversation twice and stopped trying to find it, and was sitting very straight, looking out at a stack of apartment blocks, not moving at all.
+Anyone filming it would have got a woman holding another woman's hand. By the time they came off the bridge Yuna had lost the thread of her own conversation twice, and had given up on picking it back up, and was sitting straight-backed and entirely still, looking out at a stack of apartment blocks in Jamsil without seeing any of them.
 
 "Traffic's light," Dohan said.
 
@@ -130,7 +130,7 @@ Her hand went onto Camille's thigh, mostly because it needed somewhere to be. Sh
 
 Camille put a hand on her knee.
 
-It sat there long enough that Yuna decided it was going to stay. Then it moved, up over the Dior, gathering the fabric as it went, and stopped high on her thigh. From Dohan's seat it was a hand on a knee. From hers it was close enough to feel the heat of the palm through the dress, and she understood that she was going to be dealt with eventually, on somebody else's schedule, and that there was nothing whatsoever she could do to hurry it.
+It sat there long enough that Yuna decided it was going to stay. Then it moved, up over the Dior, gathering the fabric as it went, and stopped high on her thigh. From Dohan's seat it was a hand on a knee. From hers it was high enough that she could feel the heat of the palm coming through two layers of Dior, and it stayed exactly there, and did not go any further, for the rest of the bridge.
 
 She clamped her thighs shut on it.
 
@@ -152,11 +152,11 @@ Dohan looked up. "You okay?"
 
 He looked at her. One beat, then another. Then his eyes went to Camille's hand, which was sitting on the seat between them now, being completely innocent.
 
-Yuna watched her husband decide not to think about it. She could actually see it happen. It took him about a second and a half. Then he went back to his phone and liked a fan post — *Dohan-oppa and Yuna-unnie are GOALS 😍 #gukminbubu* — and she loved him a little, in a distant way, the way you love someone in a photograph.
+Yuna watched her husband decide not to think about it. It took him about a second and a half, and she could see the whole thing cross his face and leave again, and then he went back to his phone and liked a fan post that said *Dohan-oppa and Yuna-unnie are GOALS 😍 #gukminbubu*.
 
 ***
 
-The carpet at COEX ran ninety meters and Yuna had walked it six times since her debut. It had never once gotten shorter.
+The carpet at COEX ran ninety meters. Yuna had walked it six times since her debut and she still did not like it.
 
 Manager Kim was at the car door before it finished opening, talking into her own collar. "We're four minutes down. Dohan-ssi first, then you, then the press line, then—" She watched Camille unfold out of the limo and lost her place. "Then her."
 
@@ -170,7 +170,7 @@ Dohan went out first and was immediately, genuinely excellent at it. He found hi
 
 Then Yuna, and the noise changed pitch.
 
-The fan section was penned behind a barrier on the left and they had made banners. One of them said KANG YUNA MY SEROTONIN, in English, in glitter. She read it on the way past. She always read them. It was the only part of any of this she actually liked.
+The fan section was penned behind a barrier on the left and they had made banners. One of them said KANG YUNA MY SEROTONIN, in English, in glitter, and another one further back had her face printed on it at about four times life size with the eyes slightly wrong. She read them on the way past. She always read them.
 
 The rest was standing on a strip of tape while men shouted instructions.
 
@@ -206,7 +206,7 @@ Manager Kim stopped talking into her collar.
 
 "Coming."
 
-She let go and went and stood next to her husband, and her body arranged itself without being asked: quarter-turn in toward him, weight back onto the rear foot so the hip came forward, one hand flat on his waist, chin down and then out again. They had been photographed in that exact configuration since 2021. He smelled like Sauvage. He always smelled like Sauvage.
+She let go and went and stood next to her husband, and her body arranged itself without being asked: quarter-turn in toward him, weight back onto the rear foot so the hip came forward, one hand flat on his waist, chin down and then out again. They had been photographed in that exact configuration since 2021. Up close he smelled of Sauvage and, underneath it, of the mints he ate before press.
 
 Flash. Flash. Flash.
 
@@ -298,7 +298,7 @@ Camille spread her open with one hand, and in the mirror Yuna could see all of i
 
 "Don't ♡♡♡… don't stop…"
 
-Camille didn't stop, but she didn't push the thumb in either. She just kept circling. Yuna's cunt clenched down so hard that Camille grunted, which was the closest thing to a compliment available in the room.
+Camille didn't stop, but she didn't push the thumb in either. She just kept circling. Yuna clenched down so hard that Camille grunted, which was the only sound she had made since the door shut.
 
 PLAP! PLAP! PLAP! PLAP!
 
