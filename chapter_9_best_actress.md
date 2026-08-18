@@ -1058,7 +1058,27 @@ She pressed her thighs together. Hard. The pressure on her clit sent a bolt thro
 
 He looked at her, and for a moment his face came loose. He was working out that he did not know where his wife had been for most of the evening, and that it had not occurred to him to wonder until just now.
 
-Then a producer said his name and he turned toward it, and it was gone.
+"Yuna-ya." Quietly. Not the pet name he used at events — the other one, the one from before any of this. "Are you—"
+
+She turned and faced him properly, which she had not done all night.
+
+She had it ready. It had been sitting behind her teeth since the limo and it weighed nothing at all, and she was fully prepared to put it down on the floor of the COEX ballroom with a crystal trophy in her hand and four hundred people watching.
+
+"Am I what?"
+
+One second. Two.
+
+"...Are you tired," he said. "You look tired."
+
+"I'm not tired."
+
+"Good. That's good." He was already turning his shoulders out of it. "Don't let them keep you all night."
+
+And that was the whole thing. That was the last door, and he had stood in front of it and chosen the wallpaper.
+
+She watched him go and understood, without any particular drama about it, that he was never going to ask. Not tonight, not next month, not ever. He would keep not asking for as long as she kept not saying, and he would call that a marriage, and he would be able to do it indefinitely.
+
+It should have made her angry. It mostly made her feel weightless.
 
 Camille was across the room. At the bar. Talking to Heejin, who was drunk and delighted. Yuna watched Camille's hands — the fingers wrapped around a whiskey glass. The same fingers that had been inside her three times tonight.
 
