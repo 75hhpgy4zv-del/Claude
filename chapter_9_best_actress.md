@@ -340,6 +340,16 @@ SCHLURGE!
 
 It went in to the base on the first stroke and Yuna's knees went out from under her and she caught herself on her forearms.
 
+There is a thing that happens to her in the first second and she has never been able to describe it to anyone, partly because there is nobody to describe it to.
+
+It is too much. It is always too much. She is not a large woman and there is more of it than there is of her, and the first stroke puts a pressure up under her ribs that she feels in her stomach and somewhere near the base of her throat, and there is a place inside her that is not supposed to be reachable and it arrives there and then arrives there again. It sits exactly on the line where pain would start and does not cross it. Her whole body gets rearranged around the fact of it.
+
+And her head goes quiet.
+
+That is the part. That is the entire reason she is bent over a sink in a building with two thousand people in it. Kang Yuna has spent her adult life running a process — how is this reading, who is watching, what does this room need from me, what does this man need me to be — and it does not switch off in interviews or at dinner or in her own bed or when she is alone in a car. It runs while she sleeps.
+
+It cannot run through this. There is not enough of her left over to run it with. Everything that is normally her is taken up with being too full, and for as long as that lasts she is nobody's wife and nobody's brand and nobody at all, and it is the only rest she gets.
+
 PLAP! PLAP! PLAP!
 
 "♡♡♡!!! ♡♡♡!!! ♡♡♡!!!"
