@@ -290,9 +290,7 @@ The marble counter was cold through the Dior when Camille lifted her onto it. Yu
 
 "The dress—"
 
-"I know."
-
-Camille's hand went under the gown. Up past the stocking-top where the lace bit into her thigh, past the garter strap, onto bare skin that was already hot and damp with sweat. No underwear. Yuna had made that decision at four in the afternoon and the awareness of it had been sitting low in her belly for three hours, a slow constant pulse, her body reminding her every time she shifted in a chair or felt the lining of the dress drag across her.
+Camille gathered the gown up past her hips in two fistfuls and her hand went under it. Up past the stocking-top where the lace bit into her thigh, past the garter strap, onto bare skin that was already hot and damp with sweat. No underwear. Yuna had made that decision at four in the afternoon and the awareness of it had been sitting low in her belly for three hours, a slow constant pulse, her body reminding her every time she shifted in a chair or felt the lining of the dress drag across her.
 
 Two fingers pushed into her and her skull cracked back against the mirror hard enough to rattle it in the frame.
 
