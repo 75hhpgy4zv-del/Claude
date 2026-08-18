@@ -20,7 +20,7 @@ He put his phone face-down on his thigh and sat up straighter, which he did not 
 
 "Dohan-ssi. Thank you for the lift."
 
-"Not my car. Belongs to the network." He laughed. Nobody else did. "Yuna says you teach philosophy."
+"Not my car. Belongs to the network." He laughed. "Yuna says you teach philosophy."
 
 "Western philosophy. At Haneul."
 
@@ -40,7 +40,7 @@ He didn't have anything for that. He blinked, started a sentence, abandoned it.
 
 "That's — yeah. Thanks."
 
-Camille smiled. It was a good smile and it was warm and it did not need him at all.
+Camille smiled at him and turned back to Yuna.
 
 "What was your Yonsei essay on?"
 
@@ -66,7 +66,7 @@ He looked at her. Something passed across his face that might have been irritati
 
 "Your teacher was wrong."
 
-Dohan opened his mouth and nothing came out of it. He'd been complimented, thoroughly and specifically, and he had no idea what to do with it. Camille had given him nowhere to be charming. She'd just been right at him and moved on.
+Dohan opened his mouth and nothing came out of it.
 
 He tried.
 
@@ -84,7 +84,7 @@ Then she said, in the same voice, at the same volume, without turning her head:
 
 It was not the same voice at all.
 
-Dohan heard it. He couldn't have said what changed — the words were fine, the volume was fine, everything about it was fine — but his jaw tightened, slightly, the way a dog's ears go flat.
+Dohan's jaw tightened.
 
 Yuna looked out the window.
 
@@ -92,15 +92,13 @@ Yuna looked out the window.
 
 "That's the plan."
 
-They laughed together. Not at him. Worse than at him — without him, completely, as though he were the partition glass.
+They laughed together. Dohan watched it happen.
 
 "Should I be worried?" Dohan said.
 
-He meant it as a joke.
-
 Nobody picked it up.
 
-"We did an interview in a car once," he said, to Camille, because Camille was the one who should have been listening to him. "Some magazine wanted couple content. Yuna-ya got carsick."
+"We did an interview in a car once," he said, to Camille. "Some magazine wanted couple content. Yuna-ya got carsick."
 
 "I didn't get carsick."
 
@@ -108,7 +106,7 @@ Nobody picked it up.
 
 "I went green because the interviewer asked me what I cook for you."
 
-"See, she does this—" He was talking to Camille again, generous about it, expansive, letting the guest in on the family joke. "She remembers the question wrong because the wrong one's a better story."
+"See, she does this—" He turned back to Camille. "She remembers the question wrong because the wrong one's a better story."
 
 "I remember the question exactly," Yuna said, and did not look at him while she said it.
 
@@ -116,7 +114,7 @@ He laughed anyway.
 
 Then he leaned across the gap between the benches and put his hand on his wife's knee.
 
-She kept talking. She did not slow down, or put her hand over his, or do anything at all about it. She finished her sentence about the stylist. His hand sat there on her knee like something left on a table, and then he took it back.
+She kept talking. She finished her sentence about the stylist. His hand sat there on her knee like something left on a table, and then he took it back.
 
 He got his phone out.
 
@@ -200,7 +198,7 @@ Camille put a hand on her knee. It moved up, over the Dior, gathering the fabric
 
 Then the car hit a pothole.
 
-Camille's fingers jolted against her through the dress and Yuna made a noise. Small but unmistakable. She turned it into a cough about half a second too late.
+Camille's fingers jolted against her through the dress and Yuna made a noise. She turned it into a cough about half a second too late.
 
 Dohan looked up. "You okay?"
 
@@ -210,7 +208,7 @@ Dohan looked up. "You okay?"
 
 "Air conditioning."
 
-He looked at her. One beat. Then his eyes went to Camille's hand, which was sitting on the seat between them now, being completely innocent.
+He looked at her. Then his eyes went to Camille's hand, which was on the seat between them now.
 
 She watched her husband decide not to think about it. The whole thing crossed his face and left again. He went back to his phone and liked a fan post that said *Dohan-oppa and Yuna-unnie are GOALS 😍 #gukminbubu*.
 
@@ -265,8 +263,6 @@ Flash. Flash. Flash.
 Camille put a hand on the small of her bare back.
 
 "Daddy ♡," Yuna said.
-
-She had not decided to say it.
 
 Dohan paused. Half-turned. His brow creased, and then it didn't.
 
@@ -560,9 +556,7 @@ She leaned in. Lips almost touching Camille's ear.
 
 'SHE'S ANSWERING A QUESTION ABOUT COLOUR GRADING—'
 
-Camille glanced down at her. Briefly. The way you check on something amusing happening at your feet.
-
-She was entertained.
+Camille glanced down at her. Briefly.
 
 Yuna stroked her under the tablecloth and whispered into her ear a stream of things she would not have been able to repeat.
 
@@ -586,7 +580,7 @@ Yuna sat with a handful of it.
 
 She wanted it in her mouth. She thought about it long enough that Camille noticed her thinking about it.
 
-Camille's shoulders moved. Silently. Into her wine. Entirely at Yuna's expense.
+Camille's shoulders moved. Silently. Into her wine.
 
 "Go on, then."
 
@@ -894,21 +888,21 @@ The bartender put the whiskey down.
 
 "Green room. He's always in the green room." She turned her glass on the bar. "He comes for the afterparty and the gift bag. He's not a bad man. He's just finished."
 
-Camille looked at her properly then — all at once, the attention arriving undivided — and Dahye, who had been looked at professionally for eleven years, put her drink down.
+Camille looked at her properly then, and Dahye put her drink down.
 
 She put her hand on Camille's forearm.
 
-Camille glanced down at it with frank, uncomplicated interest.
+Camille glanced down at it.
 
-Dahye stopped breathing properly.
+Dahye stopped breathing.
 
 "Camille."
 
 Her hand came off the sleeve like the bar had gone hot.
 
-Camille turned, and everything turned with her — shoulders, eyes, the whole weight of it — and whatever had been on Dahye was somewhere else entirely.
+Camille turned.
 
-"There you are," Camille said, and her voice did something it had not done once in four minutes.
+"There you are," she said.
 
 "They're doing the film block." Yuna put her arm through Camille's. "I'm bored and I want my whiskey."
 
@@ -928,7 +922,7 @@ She took out her phone and typed *who is the tall french woman with yuna-unnie* 
 
 ***
 
-The third time was the funniest.
+The third time was backstage.
 
 Yuna was standing in the wings while a PA ran her countdown. On the monitor beside her, her own face was doing the scene from *Grace* where she cries in the rain.
 
@@ -1092,13 +1086,13 @@ Somewhere in the third row, Heejin put her glass down.
 
 She had to stop again.
 
-Two thousand people watched the Nation's Wife stand at a podium and get hold of herself. They thought they were watching modesty.
+Two thousand people watched the Nation's Wife stand at a podium and get hold of herself.
 
 "So thank you. For being the only person in my life who's ever been there for *me* — not for the brand, not for the schedule, not for what I'm useful for. Just me." Her voice went. She let it. "I hope you know I'd do it back. I'd do it back for the rest of my life."
 
 The camera on rig four found Dohan in the second section.
 
-It found him beautifully. He had the expression assembled — the modest downward look, the small proud shake of the head, the hand touching his own chest. Two thousand people made the sound a room makes when it decides it has seen love, and the fan section screamed, and somewhere in the middle blocks a woman was actually crying.
+He had the expression assembled — the modest downward look, the small proud shake of the head, the hand touching his own chest. Two thousand people made the sound a room makes when it decides it has seen love, and the fan section screamed, and somewhere in the middle blocks a woman was actually crying.
 
 The shot ran nine seconds. It would be the most-shared clip of the night.
 
@@ -1140,7 +1134,7 @@ She pressed her thighs together. The pressure on her clit sent a bolt through he
 
 "Just the heels. Long night."
 
-He looked at her, and for a moment his face came loose. He was working out that he did not know where his wife had been for most of the evening, and that it had not occurred to him to wonder until just now.
+He looked at her, and for a moment his face came loose.
 
 "Yuna-ya." Quietly. Not the pet name from events. The one from before any of this. "Are you—"
 
