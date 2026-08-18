@@ -40,21 +40,19 @@ He didn't have anything for that. He blinked, started a sentence, abandoned it.
 
 "That's — yeah. Thanks."
 
-Camille smiled at him and turned back to Yuna.
-
 "What was your Yonsei essay on?"
 
 "I'm sorry?"
 
 "The application essay. They still did those in — what year would it have been?"
 
-"2009. I don't remember."
+"2009." He shifted. "I don't remember."
 
 "You remember."
 
-He looked at her. Something passed across his face that might have been irritation.
+Something crossed his face that might have been irritation.
 
-"It was about — I did it on Confucius. The role thing. How you're a different person depending on who you're with."
+"I did it on Confucius. The role thing. How you're a different person depending on who you're with."
 
 "Rectification of names."
 
@@ -68,37 +66,79 @@ He looked at her. Something passed across his face that might have been irritati
 
 Dohan opened his mouth and nothing came out of it.
 
-He tried.
+"So how are you finding us?" he tried. "Korea, I mean. The food. Everyone says the food."
 
-"So how are you finding us? Korea, I mean. The food. Everyone says the food."
+Camille looked at Yuna.
 
 "The people."
 
 "Ah—" Hand on chest. "Don't make me emotional. Red carpet in forty minutes."
 
-He was looking at Camille while he said it. Camille was looking at Yuna.
-
-Then she said, in the same voice, at the same volume, without turning her head:
+He was looking at Camille while he said it. Camille was looking at Yuna. Then she turned in the seat — brought her knee up onto the leather so she was facing Yuna now — and the geometry of the car changed. Dohan was on the other bench. The distance had grown by a foot in no direction at all.
 
 "You look incredible."
 
-It was not the same voice at all.
+Lower than the voice she'd used on Dohan. The consonants softer. It went through Yuna's stomach and settled below it.
 
-Dohan's jaw tightened.
+"You—" Her mouth was doing something she hadn't asked it to. "You're going to get me in trouble."
 
-Yuna looked out the window.
+"Am I."
 
-"You look like you're going to get me in trouble tonight."
-
-"That's the plan."
-
-They laughed together. Dohan watched it happen.
+Not a question. Yuna's thigh was touching Camille's knee where she'd turned, and the heat of it came through both layers of fabric and sat there, and she did not move away from it. She could smell the vetiver. She could smell the thing underneath the vetiver that was just Camille, just skin, and her whole body was leaning toward it like a plant toward a window.
 
 "Should I be worried?" Dohan said.
 
 Nobody picked it up.
 
-"We did an interview in a car once," he said, to Camille. "Some magazine wanted couple content. Yuna-ya got carsick."
+Camille reached over and touched the strap of the Dior at Yuna's shoulder. One finger under the fabric, straightening it. Her knuckle dragged across collarbone and Yuna's breath stopped.
+
+"Strap was twisted."
+
+"No it wasn't."
+
+"Mm."
+
+Her hand came down and landed on Yuna's knee. Over the gown. Rested there. Yuna could feel every finger through the silk like a small, separate fire.
+
+"Is this the one you wanted?"
+
+"Third choice." Yuna was watching Camille's hand. "The first one had a slit."
+
+"How high?"
+
+"Here." She drew a line on her own thigh with one finger. High. Higher than she needed to draw it. She was looking at Camille while she did it and her pulse was sitting in her throat.
+
+"And they said no."
+
+"Manager Kim said the fan cafés would have opinions about my leg. There's a thread. Forty pages."
+
+"About your leg."
+
+Camille's thumb moved. One slow stroke across the top of Yuna's knee through the Dior. That was all. Yuna's hand closed on the seat leather and her thighs pressed together under the gown and the lining was already damp and she had twenty-five minutes of car left.
+
+"Blue photographs better anyway," Dohan said. "That's what I told her."
+
+Neither of them turned.
+
+"What do you want tonight?" Camille said.
+
+"To win."
+
+"Just that?"
+
+Yuna looked at Camille's mouth. She'd been doing it since the bar in Mapo-gu — looking at her mouth when she was supposed to be looking at her eyes — and every time she caught herself she felt a hot flush in her chest that was getting harder to put away.
+
+"I want to deserve it."
+
+"You do."
+
+"You haven't seen it."
+
+"I don't need to."
+
+'Shut up. Shut up or I am going to climb into your lap in front of my husband.'
+
+"We did an interview in a car once," Dohan said, louder than before. "Some magazine wanted couple content. Yuna-ya got carsick."
 
 "I didn't get carsick."
 
@@ -106,67 +146,25 @@ Nobody picked it up.
 
 "I went green because the interviewer asked me what I cook for you."
 
-"See, she does this—" He turned back to Camille. "She remembers the question wrong because the wrong one's a better story."
+"See, she does this—" He turned to Camille. "She remembers the question wrong because the wrong one's a better story."
 
-"I remember the question exactly," Yuna said, and did not look at him while she said it.
+"I remember the question exactly," Yuna said. She was holding Camille's hand under the fold of the gown and she did not look at him while she said it.
 
 He laughed anyway.
 
 Then he leaned across the gap between the benches and put his hand on his wife's knee.
 
-She kept talking. She finished her sentence about the stylist. His hand sat there on her knee like something left on a table, and then he took it back.
+She kept talking. She was telling Camille about the schedule — who she had to thank, the walk to the stage — and his hand sat there on her knee like something left on a table. Camille's hand was on the other knee. The difference between the two was something she felt in every nerve ending she had, and then he took his hand back.
 
 He got his phone out.
 
-'Nobody asked him about the seating. There had been a plan for tonight — his — and the plan had two people in a car, and now there was a third and she'd been in it twelve minutes and had somehow ended up in the middle of everything.'
+'Nobody asked him about the seating. There had been a plan for tonight — his — and the plan had two people in a car, and now there was a third and she'd been in it fifteen minutes and had somehow ended up in the middle of everything.'
 
-He thought about mentioning the schedule. He thought about how tall she was, which he had now thought about four times.
+He thought about how tall she was, which he had now thought about four times.
 
 He scrolled.
 
-The thing about the dress was that it wasn't the dress she wanted.
-
-Yuna explained this at some length. There had been a problem with the loan, and then the stylist who had caused the problem with the loan, and the whole thing had ended with somebody calling Paris at two in the morning. She told all of it because Camille had turned in her seat somewhere around the part about the stylist and had not looked away since.
-
-"So it isn't even the one you wanted."
-
-"It's the third one I wanted."
-
-"It's a good third."
-
-"It's a very good third." She smoothed the skirt over her knee. "The first one had a slit up to about here. Manager Kim said the fan cafés would have opinions."
-
-"About your leg."
-
-"About my leg. There's a thread. Forty pages."
-
-"About your leg."
-
-"You keep saying it like it's going to stop being true."
-
-"Blue photographs better anyway," Dohan said. "That's what I told her."
-
-Yuna gave it four seconds.
-
-"Did you finish the book?"
-
-"Tuesday. Then I read the last forty pages again on Wednesday and I was angry until about an hour ago."
-
-"Good."
-
-"Not good. You gave me a book that made me angry."
-
-"You said you wanted something that wasn't a script."
-
-"I wanted something nice."
-
-"You did not want something nice." Camille was smiling out the window. "You said — and I'm quoting — that you wanted something that would do damage."
-
-Yuna laughed. Not the one she used on camera. The one that crinkled her nose and opened her mouth too wide.
-
-Camille laughed too.
-
-In the reflection of his phone screen, Dohan watched his wife laugh at something he hadn't heard.
+In the reflection of his phone screen, Dohan watched his wife lean against a woman she'd known for two months and close her eyes.
 
 Somewhere near the river they ran out of things to say. Neither of them minded.
 
