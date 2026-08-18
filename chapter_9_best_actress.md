@@ -558,11 +558,11 @@ Under the tablecloth, Camille's hand had been resting on her knee since the ligh
 
 The break between the drama categories and the film categories ran fifteen minutes.
 
-Camille put a hand on the small of Yuna's bare back and steered her out of the room, and Yuna went, because she would have followed that hand into traffic. They went through a side door and down a hallway with her heels clicking on concrete, and the ceremony got quieter behind them until it was only a warm mumble through the walls.
+Camille put a hand on the small of Yuna's bare back and steered her out through a side door, and Yuna went without asking where they were going.
 
-The service corridor was dim and smelled like catering trays. There was a rack of folding chairs against one wall. Camille pressed her into the other one.
+The service corridor was dim and smelled of catering trays. There was a rack of folding chairs against one wall. Camille put her into the other one.
 
-The concrete was cold on her bare back and Yuna gasped.
+The concrete was cold on her bare back and she gasped.
 
 "Someone could come—"
 
@@ -572,57 +572,119 @@ The concrete was cold on her bare back and Yuna gasped.
 
 "Yes."
 
-"We have maybe ten—"
+"We've got maybe ten minutes before somebody—"
 
 "Then stop talking."
 
-Camille lifted her one-armed, and Yuna's legs went around her waist with her heels hooked together at the back. The cock pressed up against her, hot through the open zipper, and then it didn't go in. It slid. Camille rolled her hips and dragged the whole length through her folds, and the head caught her clit on the way past.
+Camille lifted her one-armed and Yuna's legs went round her waist, heels hooked together at the back, and the cock pressed up hot against her through the open zip.
 
-"Nnh ♡♡♡♡♡…"
+Then Camille stopped.
 
-She did it again. And again. Slow and unhurried, nudging just far enough into the entrance to spread her open before pulling away.
+Through the wall, muffled and flattened by the concrete, a presenter was reading out the nominees for Best Director.
 
-Through the wall, a presenter was reading the nominees for Best Director.
+"New rule," Camille said.
 
-In the corridor, Yuna was making enough of a mess that it ran down the shaft and dripped onto the floor.
+"...No."
 
-"Daddy ♡♡♡… put it in…"
+"You'll enjoy this one."
 
-"The Nation's Wife. Begging in a service corridor."
+"I won't. I already know I won't."
 
-"YES ♡♡♡♡♡… I'm begging ♡♡♡… please—"
+"I move when the room's loud." She shifted her grip and Yuna's whole weight went with it, an inch, and no further. "Applause. Laughing. Music. When they're quiet, I stop."
+
+Yuna made a noise with nothing in it.
+
+"That's not — you can't—"
+
+"I'd listen carefully, if I were you."
+
+Through the wall the presenter reached the third nominee. The hall was doing what halls do for nominations, which is nothing at all.
+
+Camille did not move.
+
+"Please ♡♡♡—"
+
+"They're quiet."
+
+"They're always quiet for the nominees ♡♡♡ — it takes thirty *seconds*, Daddy, please—"
+
+"Then it takes thirty seconds."
+
+Yuna started to shake. Not from effort. She had her heels locked at the small of Camille's back and she was trying to find leverage against a wall that offered none, and the head was sitting just inside her and going absolutely nowhere.
+
+*"...and the Baeksang for Best Director goes to—"*
+
+The room came apart.
 
 SCHLURGE!
 
 "NNH ♡♡♡♡♡!!!"
 
-Through the wall came applause. In the corridor, Yuna buried a scream in Camille's shoulder.
-
-PLAP! PLAP! PLAP!
-
-The wall gave Camille leverage to fuck upward, so every stroke lifted Yuna off her own weight and dropped her back down onto it. Her heels scraped Camille's back. Her face stayed jammed into the collar of the suit and her moans came out as vibrations against the fabric. Anyone within thirty feet could hear what they were doing, and Yuna discovered that she did not care about that at all.
-
-"Mmph ♡♡♡… mmph ♡♡♡♡♡…"
-
 PLAP! PLAP! PLAP! PLAP!
 
-Through the wall: *"Song Jaeho! Congratulations!"*
-
-Camille slowed down and started taking her long. Almost all the way out, until Yuna's cunt was gripping the ridge and trying to keep it, and then all the way back in.
-
-"But I do," Camille said into her ear. "I think about you constantly. When you're on his arm. When you're on this cock. When you're on that stage."
-
-"Daddy ♡♡♡♡♡♡♡…"
-
-"Because you're mine. Not his. Not the brand's. Not Korea's."
-
-"YOURS ♡♡♡♡♡♡♡♡♡!!!"
+She got her mouth into Camille's shoulder and screamed into the suit while two thousand people applauded Song Jaeho through eight inches of concrete.
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
-The audience laughed at something the comedian said, and the laughter came through the concrete and mixed with the wet slap of Camille's hips. Yuna bit down on Camille's shoulder hard enough to leave a bruise that would still be there in the morning, and came without making a sound.
+Then the applause began to thin, and Camille slowed with it, stroke by stroke, matching it down.
 
-Camille went straight through it. She did not slow down for it, or acknowledge it, or wait to see whether Yuna had anything left, because whatever governor other people had, she had never been fitted with one. She fucked her against the concrete until Yuna's heels lost the grip behind her back and then she held her up by the thighs and kept fucking her.
+And stopped.
+
+"NO — ♡♡♡ — no, no, he hasn't even got to the STAGE yet—"
+
+"He's nearly there."
+
+"He's *sixty*, he walks slowly, give me—"
+
+"Ssh."
+
+Through the wall, faint and tinny, Song Jaeho began thanking his producers.
+
+Yuna put her forehead on Camille's shoulder and breathed like she had run somewhere.
+
+"I hate you ♡."
+
+"Mm."
+
+"I hate you so much. I'm going to sit through his entire speech like this."
+
+"You are."
+
+"He thanks his *mother*, Camille. Every year. He does the thing where he cries, and then apologises for crying, and then cries about apologising—"
+
+"Then you'd better hope somebody laughs."
+
+A hundred feet away Song Jaeho said something self-deprecating about his first film, and the room gave him a warm, generous, four-second laugh.
+
+PLAP! PLAP! PLAP!
+
+"♡♡♡♡♡!!! ♡♡♡♡♡♡♡!!!"
+
+And stopped.
+
+"You're — ♡♡♡ — you're *enjoying* this—"
+
+"Enormously."
+
+Yuna started talking then and did not really stop. It came out of her in a low, fast, wrecked stream against Camille's collar, in the gaps and under the applause and all through the quiet parts, and afterwards she could not have repeated most of it.
+
+"Fuck the speech ♡♡♡ — fuck Song Jaeho — my husband's out there ♡♡♡♡♡ — table four, clapping, doing the face he does in case the camera cuts to him — and I'm back here with my dress round my waist ♡♡♡♡♡♡♡—"
+
+"Say it properly."
+
+"I'm his *wife* ♡♡♡♡♡ — I'm the Nation's Wife and I'm getting split open in a catering corridor a hundred feet from his chair ♡♡♡♡♡♡♡ — I'm Daddy's stupid Korean slut and he's out there CLAPPING ♡♡♡♡♡♡♡♡♡!!!"
+
+The hall applauded Song Jaeho off the stage.
+
+PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
+
+"♡♡♡♡♡♡♡!!! DADDY ♡♡♡♡♡♡♡♡♡!!!"
+
+The comedian came back on and made a joke about the orchestra budget, and the room laughed properly, a big one, six or seven seconds, and Camille used every part of it.
+
+Yuna bit down on her shoulder hard enough to leave a bruise that would still be there in the morning, and came without making a sound.
+
+Camille went straight through it. She did not slow down, or acknowledge it, or check whether there was anything left in her. Yuna's heels lost their grip and slid, and Camille got both hands under her thighs and held her up and carried on.
 
 "Daddy ♡♡♡ — I can't — I can't go again, I can't—"
 
@@ -632,11 +694,19 @@ Camille went straight through it. She did not slow down for it, or acknowledge i
 
 So she didn't.
 
-Camille came inside her a minute later, hard, with her forehead against the wall beside Yuna's ear, and stayed there afterwards breathing while the ceremony went on through the concrete.
+Through the wall, the hall went quiet for the next category.
+
+Camille kept moving.
+
+"You stopped for — ♡♡♡ — you stopped for the nominees *before*—"
+
+"I've gone off the rule."
+
+She came inside her a minute later with her forehead against the concrete beside Yuna's ear, and stayed there afterwards, breathing, while the ceremony carried on through the wall.
 
 Then she set her down. Yuna's legs barely took it.
 
-"We're going to be so late," Yuna said.
+"We're going to be so late."
 
 "Mm."
 
@@ -946,11 +1016,17 @@ Camille stopped. Entirely. Buried and motionless, like someone waiting for a bus
 
 "You said it two seconds late and it sounded like you were being strangled." Camille started again, slower, which was worse in every way. "Again."
 
-'She's enjoying this. She is having the time of her life back here.'
+"You're going to make me say it wrong ♡♡♡ — and he's going to come over here ♡♡♡♡♡ — he's going to walk over and find the Best Actress nominee bent over a light rack with—"
+
+"With what?"
+
+"With Daddy's cock in her ♡♡♡♡♡♡♡ — all of it, in a corridor, forty feet from a man with a clipboard ♡♡♡♡♡♡♡!!!"
+
+"Mm. Quieter."
 
 PLAP! PLAP! PLAP! PLAP!
 
-On the monitor, Yuna accepted a bouquet of roses with tremendous grace.
+On the monitor, six feet away, Yuna accepted a bouquet of roses with tremendous grace.
 
 Behind the stage lights, Yuna's mascara had begun its descent.
 
@@ -968,7 +1044,17 @@ Behind the stage lights, Yuna's mascara had begun its descent.
 
 "MMHH ♡♡♡♡♡♡♡!!"
 
-"You'll remember it. You have a good memory."
+"You'll remember it. You've got a good memory." A pause, filled entirely with the sound of what she was doing. "Although you dropped a line at the KBS awards."
+
+"That was — ♡♡♡ — that was THREE YEARS AGO—"
+
+"You dropped a line."
+
+On the monitor the rain scene began, and two thousand people out past the curtain settled in to watch Kang Yuna's face come apart across the most admired thirty seconds of Korean television broadcast last year.
+
+Yuna watched it from the side, in profile, with her cheek on a wall and mascara on her chin.
+
+'That is me. And this is also me.'
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
