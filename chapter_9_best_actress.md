@@ -14,35 +14,47 @@ Dohan looked up.
 
 "Ah," he said. "The professor."
 
-"Dohan-ssi."
+He said it warmly. He was good at this — he had been getting into cars with strangers since he was nineteen and he had a whole system for it.
 
-They shook hands.
+"Dohan-ssi. Thank you for the lift."
 
-"Yuna says you teach philosophy."
+"It's not my car, it belongs to the network." He laughed at his own joke, which he always did, and which Yuna had stopped finding endearing somewhere in the second year. "Yuna says you teach philosophy."
 
 "Western philosophy. At Haneul."
 
-"I nearly did philosophy. Yonsei offered me a place."
+"Haneul's good. Small, but good. My cousin's daughter looked at Haneul." He shifted round in the seat to face her properly, which was more than he did for most people. "I nearly did philosophy, you know. Yonsei offered me a place. My mother still brings it up at New Year."
 
 "What happened?"
 
-"Money." He laughed. "And the lifestyle. Philosophy seemed—"
+"What happened is that I got scouted outside a Baskin-Robbins in Apgujeong and I haven't had a quiet week since." He grinned. "It was the money. I'd love to tell you something more interesting than that."
 
-"Lonely?"
+"That is interesting."
 
-"Quiet." He put the phone face down on his knee. "How are you finding Korea?"
+"You're being polite."
+
+"Not especially. Most people lie about it."
+
+Dohan laughed — properly, surprised out of him — and for about four seconds the inside of the car was a pleasant place to be.
+
+"So how are you finding us? Korea, I mean."
 
 "I love it."
 
-"The food?"
+"The food. Everyone says the food."
 
 "The people."
 
-"Ah. Yes. Koreans are very warm."
+"Ah—" He put a hand flat on his chest. "Now you're going to make me emotional and I've got a red carpet in forty minutes."
 
-Camille turned to Yuna and stopped attending to him entirely.
+Camille smiled at him. She had a good smile and she gave him the whole of it.
+
+Then she turned her head and looked at Yuna and said, in the same pleasant voice she had been using for the last two minutes:
 
 "You look incredible."
+
+It was not the same voice at all.
+
+Dohan heard it happen. He could not have told anyone what he had heard — the words were nothing, he could have repeated them back word for word and they would have sounded like a compliment from a colleague — but the pressure in the car had changed, the way it changes when two people who live together start discussing something small.
 
 Yuna looked out of the window for a moment before she trusted herself to answer.
 
@@ -52,9 +64,11 @@ Yuna looked out of the window for a moment before she trusted herself to answer.
 
 Yuna laughed. Not the one she used on camera — this one was loud and it crinkled her nose and opened her mouth too wide. Camille laughed at her laughing. Between them they filled the car with it.
 
-Dohan sat opposite and rearranged his mouth twice.
+"Trouble," Dohan said, pleasantly. "Should I be worried?"
 
-Then he got his phone out again.
+Nobody picked it up.
+
+He left it a moment longer than was comfortable, in case one of them was going to, and then he got his phone out.
 
 The thing about the dress was that it wasn't the dress she wanted.
 
