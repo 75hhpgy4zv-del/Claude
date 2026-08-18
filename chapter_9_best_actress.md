@@ -86,11 +86,13 @@ Nobody picked it up.
 
 Dohan laughed anyway.
 
-Then he leaned across the gap between the benches and put his hand on her knee — the outside one, the one nearest him — and left it there for a second and took it back. A husband's hand. Entirely for show, and there was nobody in the car it could have been for except the two women who had both watched him do it.
+Then he leaned across the gap between the benches and put his hand on his wife's knee.
 
-Neither of them said anything about that either.
+She kept talking. She did not stop, or slow down, or put her hand over his, or do any of the six or seven things a person does when someone touches them. She finished her sentence about the stylist. His hand sat there on her knee for a couple of seconds like something left on a table, and then he took it back.
 
-He sat back. He looked at the two of them on the opposite bench, at the eight inches of upholstery between his knee and his wife's, and at the zero inches between his wife and the professor.
+He was aware, sitting back into the leather, that he had just done something slightly ridiculous, and he could not have said why it was ridiculous, and he was not going to look at it any harder than that.
+
+What he did instead was get annoyed about the seating. Nobody had asked him about the seating. There had been a plan for tonight, a good one, his, and the plan had involved two people in a car, and now there was a third and she had been in it for eleven minutes and had somehow ended up in the middle of everything. He thought about mentioning the schedule. He thought about how tall she was, which he had now thought about four times.
 
 Then he got his phone out.
 
