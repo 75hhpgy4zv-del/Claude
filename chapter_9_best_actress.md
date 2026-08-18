@@ -348,11 +348,13 @@ PLAP! PLAP! PLAP!
 
 She tried to focus on the mirror. The woman in it had her mouth open and her eyes half-rolled and a string of saliva connecting her lower lip to the marble countertop. Behind her Camille's hips were moving in long, deliberate strokes that pushed Yuna forward on the counter each time and dragged her back by the hip each time, and the wet sounds of it were filling the bathroom, thick and rhythmic and grotesquely loud.
 
-"I — ♡♡♡ — I don't want it to stop—"
+"♡♡♡ — don't stop—"
 
 "That's not what I asked."
 
-"Someone who — ♡♡♡♡♡ — who doesn't want to leave this room, ever, someone who'd stay here forever ♡♡♡♡♡!!!"
+Camille slowed. Nearly stopped. The cock held inside her, motionless, and the stillness was worse.
+
+"Someone who — ♡♡♡ — doesn't want to leave ♡♡♡♡♡!!!"
 
 "Better."
 
@@ -360,11 +362,13 @@ PLAP! PLAP! PLAP! PLAP!
 
 Camille reached around with one hand and spread her open from the front so the mirror caught everything — the cock going in, the pink stretched rim of her clinging to the shaft on every outstroke, the slick mess of her running down her inner thighs and soaking into the stocking-tops. With her other hand she ran a thumb down through the wetness pooling beneath Yuna's ass and pressed it against her asshole, circling slowly, not pushing in, just making her aware of it.
 
-"AH ♡♡♡♡♡!!! Don't — ♡♡♡ — don't stop—"
+"♡♡♡♡♡!!! Daddy — ♡♡♡ — please—"
+
+Camille stopped. Buried. Held. Yuna's body clenched around it in helpless little spasms and the only sound in the room was the wet mess of her dripping onto the marble.
 
 "What do you see?"
 
-"I see — ♡♡♡♡♡ — I see someone who wants to give everything up ♡♡♡♡♡♡♡ — the career and the husband and all of it — I'd trade it all, I'd give up everything I have for this, DADDY ♡♡♡♡♡♡♡♡♡ — I'm yours, I'm Daddy's stupid Korean fucktoy and I'd trade every award on that stage ♡♡♡♡♡♡♡!!!"
+"Yours ♡♡♡♡♡♡♡ — Daddy's stupid Korean fucktoy — I'd trade every award on that stage ♡♡♡♡♡♡♡!!!"
 
 Camille laughed. Low, warm, genuinely delighted.
 
@@ -372,33 +376,45 @@ Camille laughed. Low, warm, genuinely delighted.
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
-A fist closed in her hair and pulled her head up off the counter, and the woman in the mirror was no longer anyone Yuna recognised. That face had been on the side of a building in Gangnam since March, sixty feet tall over the Apgujeong intersection, selling skincare to four million commuters. It was slack now, mouth hanging open, mascara beginning to smear under the eyes, a long string of drool swinging off her bottom lip and landing on the marble in a wet spot that spread slowly outward. Her pupils were blown so wide the brown was almost gone.
+A fist closed in her hair and pulled her head up off the counter, and the woman in the mirror was no longer anyone Yuna recognised. That face had been on the side of a building in Gangnam since March, sixty feet tall over the Apgujeong intersection, selling skincare to four million commuters. It was slack now, mouth hanging open, mascara beginning to smear under the eyes, a long string of drool swinging off her bottom lip. Her pupils were blown so wide the brown was almost gone.
 
 "Say it looking at yourself."
 
-It cost her something to hold her own gaze. The woman in the mirror was looking back at her with an expression of total, abject, ruined surrender, and she had to watch herself say the words while that face said them back.
+It cost her something to hold her own gaze.
 
-"I'm Daddy's ♡♡♡♡♡ — I'm Daddy's and I've never wanted anything this much in my life and I'd do this every day forever and never get tired of it ♡♡♡♡♡♡♡♡♡!!!"
+"I'm Daddy's ♡♡♡♡♡ — every day forever ♡♡♡♡♡♡♡♡♡!!!"
 
 That was when Camille stopped being patient.
 
-Both hands locked onto her hips, fingers digging in hard enough to leave bruises she would find in the shower tomorrow, and the pace doubled. The counter banged against the wall on every stroke, a rhythmic concussive thud that someone in the corridor could absolutely hear, and Yuna's forearms gave out and her cheek hit the marble and her fingers scrabbled and splayed and found nothing to hold onto. The wet slap of skin on skin echoed off the tile and came back layered on itself, filling the small room with the sound of what was happening to her, and her whole body was jolting forward with each thrust, her breasts crushed against the cold stone through the bunched-up Dior, her toes barely touching the floor in the heels.
+The rhythm changed. Yuna felt it in the first stroke — the measured precision gone, replaced by something with weight behind it, something that was no longer for her. Both hands locked onto her hips, fingers digging in hard enough to leave bruises she would find in the shower tomorrow, and the pace went from deliberate to taking. Each thrust drove her into the counter with a concussive thud that rattled the mirror and someone in the corridor could absolutely hear it.
 
 PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
 
 "♡♡♡♡♡!!! DADDY ♡♡♡♡♡♡♡♡♡!!!"
 
-She came so hard her vision whited out. Her cunt clamped down in waves and she squirted against the underside of the counter, a hot rush that ran down her thighs and pooled in the tops of her stockings, and she got her own forearm into her mouth and bit down to keep the scream inside the room and tasted the salt of her own skin and kept coming, kept clenching, her whole body seizing in long rolling contractions that she could feel in her stomach and her chest.
+Yuna's forearms gave out and her cheek hit the marble and her fingers scrabbled and found nothing. Her whole body jolting forward with each thrust, breasts crushed against the cold stone through the bunched-up Dior, her toes barely touching the floor. The wet slap of skin on skin echoed off the tile and came back layered on itself, filling the room.
 
-Camille did not stop. She fucked her straight through the orgasm without slowing, and every thrust during it was too much, every nerve ending screaming, her clit so swollen and sensitive that the indirect pressure of the cock moving inside her sent shocks through her that made her legs kick, and she was making sounds into her own forearm that were not words in any language.
+She came so hard her vision whited out. Her cunt clamped down in waves and she squirted against the underside of the counter, a hot rush that ran down her thighs and pooled in the tops of her stockings, and she got her own forearm into her mouth and bit down to keep the scream inside the room and kept coming, her whole body seizing in long rolling contractions she could feel in her stomach and her chest.
 
-Then Camille buried herself to the root and held there and came inside her.
+Camille did not stop. She fucked her straight through the orgasm without slowing, every thrust during it too much, every nerve ending screaming, her clit so swollen that the indirect pressure of the cock sent shocks through her that made her legs kick.
 
-Yuna felt it. She felt the cock pulse and swell and the first thick rope of cum hit deep inside her and the heat of it spread outward through her pelvis, and Camille's hand was splayed flat on the small of her back, pressing her hips down against the counter so she couldn't move, couldn't do anything except lie there and take it, and she felt herself being filled, felt the cum pooling inside her where there was no room for it, felt it begin to leak out around the shaft in a slow warm trickle that ran down across her clit and dripped onto the marble floor.
+And then the pace changed again.
 
-Camille leaned over and put her mouth against Yuna's ear. She was breathing hard. It was the first time all night Yuna had heard her breathing hard.
+Shorter strokes. Harder. Camille's hips grinding forward at the bottom of each one like she was trying to get somewhere that didn't exist, and her hands on Yuna's hips had gone from holding to gripping — fingertips white in the hollows above her hipbones, pulling Yuna back onto every thrust. Her breathing was different now. Not the low easy voice that had been running the mirror game. Just air through teeth, hard and rhythmic and getting faster.
 
-"Nine minutes," she said. "Before anyone comes looking."
+PLAP! PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
+
+Yuna could feel it — not in herself this time. In Camille. The cock swelling inside her. The thrusts getting shorter. The grip going bruise-tight. She was being used — her body was the thing Camille was going to finish inside — and the realisation hit her like a second orgasm and she clenched down and pushed back and wanted it.
+
+"Daddy ♡♡♡ — use me — take it — ♡♡♡♡♡—"
+
+Camille's hand left her hip and slammed flat on the marble next to Yuna's head. Her whole body drove forward — one, two, three, each one harder and shorter, her hips snapping in with the full weight of her behind them.
+
+She buried herself to the root and her hips locked against Yuna's ass and the sound she made was low and guttural and had nothing to do with composure. Yuna felt every pulse — the cock jerking inside her, swelling with each one, thick ropes of cum flooding her so deep the heat of it spread through her pelvis and up into her ribs. Camille's body was rigid against her back, every muscle locked, hips grinding in with small involuntary movements that pushed the cum deeper. Her hand on the marble was white-knuckled. She stayed buried and kept coming, the pulses strong enough to count, and with each one Yuna felt fuller, wetter, more owned.
+
+Camille's forehead dropped against the back of Yuna's neck. Her breathing came in short hard bursts through her nose. Then the grip eased. She pulled back an inch and pushed in again, lazy, and Yuna whimpered around it.
+
+"Nine minutes," she said. Lower than before. "Before anyone comes looking."
 
 Yuna lay on the counter with her cheek in a puddle of her own drool and cum leaking out of her and the taste of her own arm in her mouth and the Dior bunched at her waist like she'd been mugged.
 
@@ -428,9 +444,13 @@ Over the girl's shoulder, Camille leaned against the wall with her arms crossed 
 
 "I feel perfect ♡."
 
-In the stairwell, out of sight, Yuna grabbed Camille's hand and shoved it between her legs. She ground against the palm through the gown.
+In the stairwell, out of sight, Yuna grabbed Camille's hand and shoved it between her legs.
 
-Camille backed her into the handrail and gave it to her — two fingers, the heel of her palm — and Yuna came in under a minute with her forehead on Camille's collarbone and her fist in the lapel of the suit.
+She was still wet from the bathroom. Camille's cum was leaking slowly down her thighs into the ruined stockings, and through the gown she could feel the slick heat of herself and she ground against Camille's palm with her hips already moving.
+
+Camille backed her into the handrail. The metal bar caught her across the small of her back and Camille's body pinned her there — a thigh between hers, one hand braced on the railing behind Yuna's hip — and two fingers went in through the slit of the gown without ceremony. The heel of her palm sat on Yuna's clit and Yuna's hips did the rest, rolling in tight desperate circles, riding the hand, her breath coming in short sharp bursts through her nose. Her cunt was swollen and oversensitive from the bathroom and the fingers inside her pressed against the ache and made it bloom into something hot and urgent and she bit down on Camille's lapel to keep quiet.
+
+The suit smelled like vetiver and sex and underneath it the warm clean scent of Camille's skin and she breathed it in and her cunt clenched around the fingers and she came — hard, fast, almost angry — her whole body shaking against the handrail with her fist white-knuckled in the suit and her thighs clamped around Camille's wrist and Camille didn't stop moving her hand until the last contraction had wrung itself out.
 
 "I can't stop."
 
@@ -542,9 +562,9 @@ That was worse. That was so much worse.
 
 She got her hand around it and nearly lost her grip on her own face. Heavy. Hot. Already slick at the tip. It did not fit in her hand and never had.
 
-She leaned in. Lips almost touching Camille's ear.
+She leaned in. Lips against Camille's ear.
 
-"Daddy ♡… more, I want more, I want to put my mouth on it right here ♡♡♡…"
+"Daddy ♡… I want to put my mouth on it right here ♡♡♡… under the table, on my knees, I don't care who sees ♡♡♡…"
 
 "Mm." And then, to the director: "The interiors were warmer in the first two episodes. It changes in four."
 
@@ -552,9 +572,13 @@ She leaned in. Lips almost touching Camille's ear.
 
 'SHE'S ANSWERING A QUESTION ABOUT COLOUR GRADING—'
 
-Camille glanced down at her. Briefly.
+Camille glanced down at her. One eyebrow. Then back to the director.
 
-Yuna stroked her under the tablecloth and whispered into her ear a stream of things she would not have been able to repeat.
+Yuna's hand worked her under the tablecloth — long slow strokes, her thumb circling the head on every pass — and she put her mouth back against Camille's ear.
+
+"I can feel how hard you are ♡♡♡… you've been like this since the bathroom… Daddy, I want it back inside me so bad I can't sit still ♡♡♡♡♡…"
+
+Camille's hand found Yuna's bare thigh under the table and squeezed. Once. A warning or a reward.
 
 "Yuna-ya." Heejin, across the table. "Your director asked you something."
 
@@ -570,7 +594,9 @@ Camille reached over, unhurried, and moved her napkin into her lap.
 
 "Excuse me," she said pleasantly.
 
-Then she came — into the napkin and over Yuna's fingers, in long thick pulses, without changing her expression — while Heejin explained to the producer what was wrong with a man and a laptop doing the orchestra.
+Yuna felt it before she saw it — the cock swelling in her grip, getting thicker, the pulse of it quickening against her palm. Camille's thigh went rigid under Yuna's forearm. That was the only tell. Her face didn't change. Her posture didn't shift. She picked up her wine and took a sip.
+
+She came into the napkin in long thick pulses that Yuna felt travel the full length of the shaft, hot over her fingers, and the cock jerked in her grip with each one. The volume of it soaked through the napkin and ran between her fingers, thick and slick, and she could smell it under the table — salt and musk and Camille — and Camille's expression had not moved one millimetre. Heejin was explaining to the producer what was wrong with a man and a laptop doing the orchestra.
 
 Yuna sat with a handful of it.
 
@@ -808,7 +834,17 @@ Camille gripped her hip with one hand and her throat with the other and slammed 
 
 "YOURS ♡♡♡♡♡♡♡♡♡!!!"
 
-Camille buried herself to the root and came inside her ass, and Yuna felt every pulse of it — thick, hot, flooding her, filling her until it had nowhere to go and started leaking out around the shaft in a warm trickle that ran down across her taint and dripped off her cunt. She came at the same time, untouched, her cunt contracting in hard spasms around nothing while her ass milked the cock, and the two orgasms overlapped into something that whited out her vision and her hearing and left her sagging against the concrete with her legs shaking so badly she couldn't have stood on her own.
+The hand on her throat tightened. Not squeezing — holding. Locking her in place. Camille folded over her, pressing her flat against the wall with the full weight of her body, and the strokes went from brutal to something past brutal — short, savage, her hips snapping forward with her jaw set and her breathing gone to grunts through her teeth. Each thrust burying the cock to the root and grinding in before pulling back and slamming home.
+
+PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
+
+Yuna could feel it building in her. The cock swelling thicker in her ass, the grip on her hip grinding her hipbone into the concrete, each thrust landing with a purpose that had nothing to do with teasing. Camille was chasing it — her body behind hers was a wall of muscle and heat and intent — and Yuna pushed back into every stroke and clenched down and wanted to be the thing that dragged it out of her.
+
+"Daddy ♡♡♡ — do it — ♡♡♡♡♡ — fill me up—"
+
+Camille drove in one last time and her hips locked and the hand on Yuna's throat pulled her back hard against her chest. The sound she made was low and animal and it echoed down the corridor. She came inside Yuna's ass in long thick pulses that Yuna felt deep in her stomach — the cock jerking and swelling with each one, cum flooding her, hot and thick, pooling inside her where there was no room. Camille's hips kept grinding in with small hard movements, each one wringing out another pulse, each one pushing the cum deeper, and her breathing came in ragged bursts against the back of Yuna's neck and she stayed buried and kept going until Yuna could feel it overflowing, leaking out around the shaft in a warm trickle that ran down across her taint and dripped off her cunt.
+
+Yuna came at the same time, untouched, her cunt contracting in hard spasms around nothing while her ass milked the cock. The two orgasms overlapped into something that whited out her vision and her hearing and left her sagging against the concrete with her legs shaking so badly she couldn't have stood on her own.
 
 Camille pulled out slowly and Yuna felt the gape — wide, throbbing, open to the air — and the cum pouring out of her in a thick stream down the insides of both thighs, and she clenched down on the emptiness and it would not close, not all the way, and she pressed her forehead against the concrete and breathed.
 
@@ -1072,9 +1108,21 @@ The PA, forty feet away, was on his knees taping a cable to the floor and had he
 
 PLAP! PLAP! PLAP! PLAP! PLAP!
 
+Camille's pace changed. The long grinding strokes were gone. What replaced them was shorter, harder, less measured — her hips driving forward with the full weight of her body behind every thrust, and her arm hooked around Yuna's waist and hauled her back onto every stroke, lifting her heels off the floor. The sound coming out of Camille was different from anything she'd made all night. Not words. Not the low amused voice that had been running games and countdowns for four hours. Just breath, hard and raw through her teeth, the sound of a body that had spent the whole night taking and was going to take one more time.
+
+PLAP! PLAP! PLAP! PLAP! PLAP! PLAP! PLAP!
+
 "Nnh ♡♡♡♡♡♡♡… DADDY ♡♡♡♡♡♡♡♡♡♡♡!!!"
 
-"Come for me," Camille said, low and wrecked and urgent, and came, deep, and Yuna came with her, silently, hard enough to soak the floor. She felt her ass clench around the cock in waves and the cum flood into her and something inside her prolapse outward and she did not care. She did not care about any of it.
+This was different. This was four hours of it — the limo, the bathroom, the corridor, the table, every room in this building — and Camille's body was done being patient. Yuna could feel the cock swelling inside her ass, could feel the thrusts getting shorter and harder and less precise, could feel the grip on her waist go bruise-tight, and she knew what was coming and she wanted it so badly her cunt clenched around nothing and her eyes rolled back.
+
+"Come for me." Low. Ragged. The last command she had in her before the rest of her caught up.
+
+Camille's arm locked around her waist and her hips slammed forward and held and her whole body went rigid — shoulders to calves, every muscle locked — and the sound she made was guttural and raw and loud enough that the PA should have heard it and didn't. The cock jerked inside Yuna's ass and the first pulse of cum hit so deep she felt it in her chest and she came at the same time, untouched, silently, hard enough to soak the floor. Her ass clenched around the cock in waves and each wave pulled another pulse out of Camille — thick, hot, flooding her — and Camille's hips kept grinding in with small savage movements, wringing out every last one, and Yuna felt something inside her prolapse outward and she did not care.
+
+Camille held there. Her forehead pressed against the wall above Yuna's head. Her arm around Yuna's waist was shaking and the cock was still pulsing inside her, slower now, the last of it, and Yuna could feel the cum overflowing — thick warm streams running down both thighs and dripping off her and pooling on the floor between her heels.
+
+She did not care about any of it.
 
 Through the wall: *"Kang Yuna, Grace."*
 
