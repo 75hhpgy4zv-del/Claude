@@ -734,7 +734,7 @@ PLAP! PLAP! PLAP!
 
 Three strokes, each one bottoming out so hard she felt it in her cervix, and then silence from the hall and Camille stopped dead with the cock buried to the root and Yuna could have screamed.
 
-"You feel incredible." Not strained. Conversational. A woman remarking on a sunset. "Every time I stop, your whole body tries to fuck itself onto me. You can't even help it."
+"Every time I stop, your whole body tries to fuck itself onto me." Amused. Observational. "You can't even help it."
 
 "Daddy ♡♡♡ — I want to go home with you and never come back ♡♡♡♡♡ — I'd quit everything, I don't want anything except this, I'd wake up and the first thing I'd do is get on my knees and put this in my mouth and I'd keep it there until you told me to stop ♡♡♡♡♡♡♡—"
 
@@ -774,13 +774,13 @@ Camille kept moving.
 
 She set Yuna down and pulled out and Yuna whined, actually whined, like a dog being shut out of a room, the sound of a woman who cannot tolerate emptiness.
 
-"Listen to that sound." Camille's voice had gone thick with something that wasn't patience. She ran the head of her cock down through the wet mess between Yuna's thighs, dragging it across her clit, and Yuna's legs almost gave out. "You can't even handle being empty for five seconds."
+"Listen to that sound." She ran the head of her cock down through the wet mess between Yuna's thighs, dragging it across her clit, and Yuna's legs almost gave out. "You can't even handle being empty for five seconds."
 
 "Turn around."
 
 Yuna turned and pressed her face into the concrete. Camille gathered the gown up past her waist. Her ass was already a mess — slick with arousal and cum from the bathroom still leaking out of her, the skin of her inner thighs glazed with it. Camille ran a thumb through the wet, gathered it, pressed it against her asshole, circling.
 
-"I've been thinking about this since the table." Hunger now. Real hunger. The first crack in her composure all night. "Watching you sit there in that dress with my cum inside you. Squirming every time you shifted."
+"You've been clenching since you sat down." A thumb pressed in, testing. "I could see it from across the table."
 
 "DADDY ♡♡♡♡♡ — yes — god, yes, please, I need it there, I've been thinking about it since the bathroom, I need you to break me open ♡♡♡♡♡♡♡—"
 
@@ -808,11 +808,11 @@ Camille gripped her hip with one hand and her throat with the other and slammed 
 
 "DADDY ♡♡♡♡♡♡♡♡♡ — I'm yours — I'm yours forever — I'd crawl for it, I'd do anything ♡♡♡♡♡♡♡!!!"
 
-"I know you would." Camille's mouth was against her ear and her breathing had gone ragged and for the first time all night she sounded like a woman who was about to lose something. "Mine. All of you. Every hole. Every thought. Say it again."
+"I know." Camille's mouth was against her ear. "Mine. All of you. Every hole. Every thought. Say it again."
 
 "YOURS ♡♡♡♡♡♡♡♡♡!!!"
 
-Camille came inside her ass with a sound against her ear that was not low and was not controlled, and Yuna felt every pulse of it — thick, hot, flooding her, filling her until it had nowhere to go and started leaking out around the shaft in a warm trickle that ran down across her taint and dripped off her cunt. She came at the same time, untouched, her cunt contracting in hard spasms around nothing while her ass milked the cock, and the two orgasms overlapped into something that whited out her vision and her hearing and left her sagging against the concrete with her legs shaking so badly she couldn't have stood on her own.
+Camille buried herself to the root and came inside her ass, and Yuna felt every pulse of it — thick, hot, flooding her, filling her until it had nowhere to go and started leaking out around the shaft in a warm trickle that ran down across her taint and dripped off her cunt. She came at the same time, untouched, her cunt contracting in hard spasms around nothing while her ass milked the cock, and the two orgasms overlapped into something that whited out her vision and her hearing and left her sagging against the concrete with her legs shaking so badly she couldn't have stood on her own.
 
 Camille pulled out slowly and Yuna felt the gape — wide, throbbing, open to the air — and the cum pouring out of her in a thick stream down the insides of both thighs, and she clenched down on the emptiness and it would not close, not all the way, and she pressed her forehead against the concrete and breathed.
 
@@ -986,7 +986,7 @@ She considered this for no time at all.
 
 "Thank you!" Yuna called.
 
-"Good girl." And there it was in her voice — not patience, not control. Want. The same want she'd had in the corridor, the same want she'd had in the bathroom. She couldn't stop either. She didn't want to stop. "I've been watching you from the wings for twenty minutes and I have been going out of my mind."
+"Good girl."
 
 Camille spun her around. The gown went up. A thumb found her asshole, still loose and slick from the corridor, and pressed in, testing.
 
@@ -1038,7 +1038,7 @@ Behind the stage lights, her mascara had begun its descent.
 
 Camille got a fist in her hair. She bottomed out and ground in, stirring rather than thrusting, and Yuna's legs resigned. The gape from the corridor meant she could take the full stroke without resistance and every thrust landed at a depth that made her vision white out.
 
-"I can't get enough of you." Camille said it into her hair like a confession. Then, conversational: "Was that on the speech? The one you rewrote at the bar on Tuesday?"
+"Was that on the speech?" Conversational. "The one you rewrote at the bar on Tuesday?"
 
 'She is not asking me about my speech. She is not asking me about my SPEECH—'
 
