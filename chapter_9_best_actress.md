@@ -380,7 +380,7 @@ A fist closed in her hair and pulled her head up off the counter, and the woman 
 
 "Say it looking at yourself."
 
-It cost her something to hold her own gaze.
+She looked up and the mirror hit her like a slap. 'That's me. That woman with drool on her chin and her eyes gone is me.' Her cunt clenched so hard around the cock that her whole body shuddered and a sound came out of her that she didn't recognise.
 
 "I'm Daddy's ♡♡♡♡♡ — every day forever ♡♡♡♡♡♡♡♡♡!!!"
 
@@ -418,7 +418,7 @@ Camille's forehead dropped against the back of Yuna's neck. Her breathing came i
 
 Yuna lay on the counter with her cheek in a puddle of her own drool and cum leaking out of her and the taste of her own arm in her mouth and the Dior bunched at her waist like she'd been mugged.
 
-"...Nine minutes is enough for another one."
+"Hah… hah… more ♡♡♡…"
 
 "That's what I thought."
 
