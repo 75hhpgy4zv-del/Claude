@@ -138,23 +138,19 @@ Yuna looked at Camille's mouth. She'd been doing it since the bar in Mapo-gu —
 
 'Shut up. Shut up or I am going to climb into your lap in front of my husband.'
 
-"We did an interview in a car once," Dohan said, louder than before. "Some magazine wanted couple content. Yuna-ya got carsick."
+"Yuna-ya." Dohan, louder than before. "We should talk about the afterparty."
 
-"I didn't get carsick."
+"Manager Kim has it."
 
-"You went green."
+"I know, but the PD wants—"
 
-"I went green because the interviewer asked me what I cook for you."
+"She has it."
 
-"See, she does this—" He turned to Camille. "She remembers the question wrong because the wrong one's a better story."
-
-"I remember the question exactly," Yuna said. She was holding Camille's hand under the fold of the gown and she did not look at him while she said it.
-
-He laughed anyway.
+She said it without turning. Her hand was in Camille's under the fold of the gown.
 
 Then he leaned across the gap between the benches and put his hand on his wife's knee.
 
-She kept talking. She was telling Camille about the schedule — who she had to thank, the walk to the stage — and his hand sat there on her knee and she felt nothing. Just pressure in a location. Camille's hand was on the other knee and her whole body was humming from it, and then he took his hand back.
+She kept talking — telling Camille about the walk to the stage, the step, the four people she'd have to hug — and his hand sat there on her knee and she felt nothing. Just pressure in a location. Camille's hand was on the other knee and her whole body was humming from it, and then he took his hand back.
 
 He got his phone out.
 
