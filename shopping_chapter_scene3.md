@@ -110,11 +110,11 @@ The sensation was raw. Nothing between them — no lingerie, no costume, just Yu
 
 Her cunt was swollen from the day — from La Maison, from HYPE HAUS — and every stroke felt amplified. Raw nerve endings screaming. The stretch that used to make her gasp now made her sob because her body knew this cock, had memorized its shape, and was welcoming it home with every muscle she had.
 
-"I'm — Daddy's — Korean — doll — ♡ — wearing — halmeoni's — dress — getting — FUCKED — ♡♡♡ — by — big — white — cock — ♡♡♡♡♡—"
+"The — silk — ♡ — I can — feel — the SILK — ♡♡♡ — it's — sliding — every time — you — THRUST — ♡ — cold — silk — and — hot — cock — and I — can't — ♡♡♡♡♡—"
 
-"Say it louder."
+"Leave the skirt on."
 
-"DADDY'S KOREAN DOLL — ♡♡♡ — I'm — Korea's — biggest — slut — in Korea's — most — traditional — dress — and I — LOVE IT — ♡♡♡♡♡—"
+"YES — ♡ — don't — take it — off — fuck me — IN IT — ♡♡♡ — I want — to feel — the silk — on my — legs — while you're — INSIDE — me — ♡♡♡♡♡—"
 
 Camille's hips accelerated. Her grip on the chima shifted — gathering more silk, winding it around her fist like a rein, using it to pull Yuna onto each thrust. The silk tightened against Yuna's hip like a belt and the friction of it against her skin added another layer to the overload.
 
@@ -126,15 +126,15 @@ Camille's hips accelerated. Her grip on the chima shifted — gathering more sil
 
 "It means — ♡ — I'm — not — Korea's — anymore — ♡♡♡ — I'm — yours — the dress — is just — wrapping — paper — ♡ — and the — present — inside — is — DADDY'S — ♡♡♡♡♡—"
 
-The self-degradation hit different here. In La Maison it had been playful — dress-up and fantasy. In HYPE HAUS it had been bratty — demanding, teasing. Here it was something else. Something that burned. She was wearing the symbol of her heritage and desecrating it with every thrust and the burning made her cunt clench tighter and her moans go louder and the feedback loop spiraled.
+Something burned. Not shame — something past shame, on the other side of it. The silk sliding against her skin as Camille fucked her was unbearable in the best way. Every thrust made the chima whisper against her thighs and the whisper sounded like her grandmother's voice and her grandmother's voice made her cunt clench and the clenching—
 
-Korean woman in Korean dress being owned by a white woman's cock. The more Korean the dress made her look, the filthier it felt. The filthier it felt, the harder she came. The harder she came, the more she degraded herself. The more she degraded herself—
+She stopped thinking. Couldn't think. The sensation was too much.
 
-"I'm — nothing — without — this — cock — ♡ — Korea — gave me — my face — and my — body — and I'm — giving — it all — to Daddy — ♡♡♡ — every — inch — of my — Korean — body — belongs — to — ♡♡♡♡♡—"
+"Harder — ♡ — HARDER — ♡♡♡ — I want — to FEEL it — tomorrow — ♡ — I want — to sit — on set — Monday — and — ACHE — and know — WHY — ♡♡♡♡♡—"
 
 An orgasm ripped through her standing up. Her knees gave out and the only things holding her upright were Camille's hand on her throat and the cock inside her. She squirted down both legs — soaking the chima's hem, splashing on the floor, her body convulsing around the shaft while the silk clung to her wet skin.
 
-"Daddy — ♡ — I'm — I'm — Korea's — bleached — Korean — fucktoy — ♡♡♡ — and I'd — I'd tell — everyone — if you — let me — I'd — stand on — Gwanghwamun — and — SCREAM IT — ♡♡♡♡♡—"
+"Daddy — ♡ — I'd — I'd tell — everyone — ♡♡♡ — I'd — stand on — Gwanghwamun — in this — dress — and tell — them — what I — really — AM — ♡♡♡♡♡—"
 
 Camille held her through it. Didn't stop thrusting. Fucked her through the orgasm and out the other side, and the sensitivity was blinding — every nerve overloaded, every stroke a full-body shock.
 
@@ -172,7 +172,7 @@ She came from it. A small, sharp orgasm that made her legs kick and her throat s
 
 Yuna gasped — a wet, sputtering, choking gasp — and immediately opened her mouth for more.
 
-"More — please — Daddy — use — my — throat — use — your — Korean — doll's — throat — ♡♡♡—"
+"More — please — Daddy — deeper — I can — take — more — I NEED — more — ♡♡♡—"
 
 "Your throat can wait." Camille wiped her cock across Yuna's face — a slow smear from cheekbone to chin, leaving a wet trail of drool and precum across the hanbok-framed portrait. Yuna turned her head trying to catch it with her mouth. Missed. Whimpered.
 
@@ -184,13 +184,13 @@ She pushed back into Yuna's cunt and Yuna arched off the bench hard enough that 
 
 Three strokes. Deep. Slow. Each one stirring Yuna's already-battered cunt, the cock coated in her spit from the throatfuck, mixing with her wetness. Camille watched Yuna's face as she fucked her — watched the micro-expressions, the lip-biting, the brow creasing when the head pressed against her cervix.
 
-"My Korean doll. Throat and cunt. What's left?"
+"The top stays on." Camille retied the jeogori — pulled the silk taut across Yuna's chest, the ties firm against her ribs. Proprietary. Dressing her up to keep fucking her. "My Korean doll. Throat and cunt. What's left?"
 
 "My — ♡ — my ass — Daddy — ♡♡♡—"
 
 She pulled out and the head pressed against Yuna's ass.
 
-"Both holes today," Yuna panted. Not a question. A demand. Bratty and greedy and the self-degradation making her bold. "Both holes in the hanbok. I want Daddy's cum in my ass while I'm wearing halmeoni's dress. I want to desecrate this — ♡ — every — traditional — thing — I am — ♡♡♡—"
+"Both," Yuna panted. Not a question. A demand. "I need it in both today. My ass is — it's been empty since Hongdae and it's ACHING for you — please — ♡ — I need to feel you there — I need to be FULL — ♡♡♡—"
 
 Camille pushed into her ass.
 
@@ -198,13 +198,13 @@ Slow. The head pressed against her opening — still loose from HYPE HAUS, still
 
 The jeogori ties came loose from Yuna's twisting. The jacket fell open and her breasts were exposed — bare, nipples hard, swaying as Camille began to thrust. She was half in hanbok and half naked and the cock was in her ass and the crimson silk was bunched around her waist and she was a mess of traditional and profane.
 
-'Halmeoni wore this dress to pray. I'm wearing it to get my ass fucked. And I'd do it again. I'd do it tomorrow. I'd wear hanbok to Seollal dinner and let Daddy fuck me under the table while my parents served tteokguk.'
+'The silk is going to be ruined. This thousand-dollar chima is going to have cum stains on it. And I want that. I want it stained. I want to look at it hanging in my closet and know what happened in it.'
 
-"Oh — OH — DADDY — ♡♡♡ — my — ass — in the — hanbok — ♡ — I'm getting — my ass — fucked — in — Korean — dress — ♡♡♡♡♡—"
+"Oh — OH — DADDY — ♡♡♡ — so — DEEP — ♡ — I can — feel you — in my — STOMACH — from — back here — ♡♡♡♡♡—"
 
-The sensation of the cock in her ass while her cunt ached empty was maddening. She wanted both holes filled. She wanted three of Camille. She wanted to be sealed shut and filled permanently and walk around Seoul full of cock like a sleeve.
+The sensation of the cock in her ass while her cunt ached empty was maddening. Two different kinds of empty and full — her ass stretched tight around the shaft, her cunt clenching on nothing, dripping onto the bench. She wanted both. She wanted to be sealed shut and kept that way.
 
-'I want to be used up. Completely. I want there to be nothing left of me except the parts Daddy uses.'
+'My cunt is jealous. My ass has Daddy's cock and my cunt is jealous and empty and dripping and I can feel both at the same time and it's driving me insane.'
 
 Camille gripped the silk in one hand and Yuna's hip in the other and fucked her ass on the wooden bench with mechanical precision. Not savage — methodical. Each stroke the exact same depth, the exact same angle, hitting the same cluster of nerves until Yuna's vision tunneled and her moans went from words to sounds to nothing at all.
 
@@ -222,15 +222,15 @@ The sensation radiated outward from her core. Not just her ass — her cunt, her
 
 She rode Camille's cock with it in her ass. Cowgirl anal. The crimson chima spread around them like a puddle of blood. The silk rose and fell with each motion. Her open jeogori framed her breasts. She was a traditional Korean woman riding a white cock in her ass in a hanbok concept store and the image was so loaded, so blasphemous, so perfectly wrong that her cunt gushed without being touched.
 
-"Daddy's — ♡ — Korean — doll — ♡♡♡ — riding — Daddy's — cock — in — my — ass — ♡ — in — my — hanbok — ♡♡♡ — this is — what — I — was — made — for — ♡♡♡♡♡—"
+"♡♡♡ — so — FULL — ♡ — gravity — is — pushing — me — DOWN — ♡♡♡ — I can — feel — every — INCH — deeper — than — before — ♡♡♡♡♡—"
 
 She rode harder. The silk flew. Camille's hands went under the chima and gripped her ass — spreading her cheeks wider, pulling her down harder onto the cock. The wet sounds were louder than the ambient music from the tea house below. Each downstroke made a sound that was half-impact, half-squelch — cum from her cunt leaking onto the cock in her ass, mixing, everything slippery and obscene.
 
-"Daddy — ♡ — can you — feel — how — loose — my ass — is getting — ♡♡♡ — you're — training — me — ♡ — every — time — I — take — more — ♡♡♡ — soon — I'll — take it — all — in one — stroke — just — SLAM — ♡♡♡♡♡—"
+"Daddy — ♡ — it's — pressing — against — ♡♡♡ — everything — from — BEHIND — ♡ — my cunt — is — clenching — and — nothing's — even — IN it — ♡♡♡ — just — from — the — PRESSURE — through — the wall — ♡♡♡♡♡—"
 
-'My ancestors are spinning in their graves. Every Korean grandmother who ever lived is looking down at me riding a white woman's cock in my ass in a hanbok and I. Don't. Care. I would do this at Gyeongbokgung during Chuseok. I would do this at my grandmother's funeral. I am beyond shame. I am beyond Korea. I am Daddy's.'
+'I'm going to come from my ass. Again. This is the third store and Daddy is going to make me come from a cock in my ass while I ride her in a hanbok and I'm never going to be normal again. I don't want to be normal again.'
 
-"I — can't — ♡ — I'm gonna — cum — from — my — ass — again — ♡♡♡ — Daddy — I'm — CUMMING — ♡♡♡♡♡—"
+"I — ♡ — Daddy — something's — building — ♡♡♡ — from — DEEP — ♡ — I'm — gonna — I'm — ♡♡♡ — DADDY — ♡♡♡♡♡—"
 
 Her orgasm hit like a seizure. Her whole body locked. Her ass clenched around the cock so hard Camille grunted. Squirt soaked through the crimson silk and spread in a dark stain across the chima and Yuna screamed — not moaned, SCREAMED — and it echoed off the walls.
 
@@ -256,7 +256,7 @@ She came in Yuna's ass.
 
 Deep. Thick. Yuna felt it — the pulse, the flood, the hot rush filling her in a place that made every nerve ending fire at once. Camille's cock twitched inside her for a long time — ten seconds, fifteen — pumping cum into her ass while the crimson silk settled around them like the aftermath of something ceremonial.
 
-"Thank — you — ♡♡♡ — Daddy — ♡ — thank you — for — ♡ — bleaching — your — Korean — doll — ♡♡♡♡♡—"
+"I felt — ♡♡♡ — every — pulse — Daddy — ♡ — so deep — so — HOT — I can — feel it — inside — me — still — ♡♡♡♡♡—"
 
 Camille exhaled. Long. Slow. Her hands on Yuna's hips loosened.
 
