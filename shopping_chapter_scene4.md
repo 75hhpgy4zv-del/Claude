@@ -164,7 +164,7 @@ The Daddy broke through the roleplay. Camille's grip on the tie tightened.
 
 "And what are you?"
 
-"A slut — ♡ — sensei's — slut — Daddy's — Korean — schoolgirl — slut — ♡♡♡ — I'm — the one — who — stays — after — class — ♡ — and — takes — it — in — every — hole — ♡♡♡♡♡—"
+"A slut — ♡ — sensei's — slut — Daddy's — schoolgirl — slut — ♡♡♡ — the one — who — stays — after — class — ♡ — and — takes — it — in — every — hole — ♡♡♡♡♡—"
 
 Her orgasm crashed through her like a train. Full-body convulsion — her legs locking straight, her back arching against Camille's chest, her cunt clamping down on the cock in rhythmic contractions so strong they pushed Camille back an inch. She squirted through the knee socks — the white cotton darkening with wet, the spray hitting the shelf and running down to the floor. The tie went tight against her throat and she couldn't breathe and she came and came and came.
 
@@ -236,7 +236,7 @@ She rode.
 
 Not desperate — deliberate. Service. Up and down in a rhythm that matched the lo-fi beat from the speakers. The maid apron bounced with each stroke. Her breasts — barely contained by the satin cups — threatened to spill free with each downward slam.
 
-"Yes — ♡ — Master — ♡♡♡ — I'm — your — maid — ♡ — I live — to — serve — your — cock — ♡♡♡ — it's — my — job — my — only — job — ♡♡♡♡♡—"
+"Yes — ♡ — Master — ♡♡♡ — I'm — your — maid — ♡ — I can — feel — you — so — DEEP — ♡♡♡ — every — time — I — come — DOWN — ♡♡♡♡♡—"
 
 "You're good at your job."
 
@@ -352,7 +352,7 @@ PLAP PLAP PLAP—
 
 Each upstroke lifted her body and each downstroke drove the air from her lungs. She was being bounced. Not riding — being bounced. The distinction mattered. In cowgirl she controlled the pace. Here she controlled nothing. Camille's arms did all the work — lifting, dropping, driving the cock up into her with the full power of a six-foot-two body that trained every day. The impact rattled Yuna's teeth. Her cunt was making sounds — obscene, wet, undeniable sounds with each stroke — SCHLURGE, SCHLURGE — leftover cum from the maid round churning around the cock, mixing with her own arousal, frothing at the seal of her stretched entrance and dripping down Camille's shaft in thick strings.
 
-"Daddy — ♡ — you're — so — ♡♡♡ — STRONG — ♡ — you're — carrying — me — like — a — TOY — ♡♡♡ — I'm — just — a — bunny — toy — for — Daddy — ♡♡♡♡♡—"
+"Daddy — ♡ — I can't — ♡♡♡ — I can't — touch — the FLOOR — ♡ — there's — nothing — under me — except — COCK — ♡♡♡ — just — floating — on — it — ♡♡♡♡♡—"
 
 The angle hit something new. She was tilted forward by gravity and the cock pressed against her front wall with every upstroke and the sensation made her vision strobe — actual visual distortion, the room pulsing white at the edges — and her toes curled and her moans went from words to sounds.
 
@@ -362,7 +362,7 @@ Camille bounced her. Like a toy. Just lifted her by the hips and dropped her ont
 
 PLAP PLAP PLAP PLAP—
 
-"I — can't — ♡♡♡ — you're — bouncing — me — on — your — cock — like — a TOY — ♡ — I'm — your — bunny — TOY — ♡♡♡♡♡—"
+"I — can't — ♡♡♡ — every — DROP — drives — the — air — OUT — ♡ — so — DEEP — when — I — land — ♡♡♡♡♡—"
 
 Camille carried her to the daybed. Didn't pull out — just walked with Yuna impaled on her cock, each step bouncing her deeper, the bunny ears swaying. Laid her face-down on the mattress. Followed her down.
 
@@ -392,7 +392,7 @@ The sensation was different from vaginal prone bone. Sharper. More specific. Eve
 
 She could hear herself. The sounds coming out of her mouth were not English and not Korean and not any language — just raw desperate animal sounds muffled by the pillow. Her ass was being fucked by a twelve-inch cock while she wore bunny ears and wrist cuffs and she was so far beyond dignity that she couldn't even see it from here.
 
-'I'm a bunny getting fucked in the ass. I'm a bunny getting fucked in the ass. I'm — ♡♡♡ — I'm — Daddy's — bunny — getting — fucked — in — the — ASS — and I'm going to come from it. Again. The third time today a cock in my ass is going to make me come. Dohan could never. No one could ever. Only Daddy. Only this cock.'
+'I'm a bunny getting fucked in the ass. I'm — ♡♡♡ — Daddy's — bunny — getting — fucked — in — the — ASS — and I'm going to come from it. Again. The third time today a cock in my ass is going to make me come. Dohan could never. No one could ever. Only Daddy. Only this cock.'
 
 Camille's hand found the back of her neck. Pressed her into the pillow. The ears bent but stayed on. Her hips accelerated — prone bone anal at full speed — and the daybed started banging against the wall.
 
@@ -468,17 +468,17 @@ The cat ears jingled. The bell on the headband rang with each slow stroke like a
 
 Up. The slow reveal of the shaft — glistening, coated in her arousal and the remnants of Camille's last load — emerging inch by inch. Down. The slow disappearance. Her cunt swallowing the cock back up like it was starving. Each descent bottoming out with a quiet wet sound — not PLAP, not yet, too slow for that — just a soft squelch of flesh seating fully into flesh.
 
-"Daddy — ♡ — can you — feel — how slow — I'm going — ♡♡♡ — I want — to feel — every — single — inch — ♡ — I want — to memorize — your cock — with my — cunt — ♡♡♡♡♡—"
+"Daddy — ♡ — every — inch — ♡♡♡ — I can — feel — every — RIDGE — ♡ — dragging — against — my — walls — so — slow — ♡♡♡♡♡—"
 
 Camille's hands went to Yuna's hips. Her thumbs pressed into the bruises from HYPE HAUS and Insadong — purple now, tender, mapping the day's use — and Yuna hissed and the pain mixed with the pleasure and she rode harder. Not much. Just a fraction faster. Still deliberate. Still savoring.
 
-"Daddy — ♡ — I'm — your — kitty — ♡♡♡ — I'm — your — little — Korean — kitty — cat — ♡ — pet me — ♡ — fuck me — ♡ — keep me — forever — ♡♡♡♡♡—"
+"Daddy — ♡ — I'm — yours — ♡♡♡ — pet me — ♡ — fuck me — ♡ — keep me — forever — ♡♡♡♡♡—"
 
 The pace built. Yuna's hands on Camille's chest — she could feel Camille's heart pounding under her palms. Fast. Faster than a woman in control should allow. The only sign of how much holding back through two costumes had cost her. Her hips rolled. The cock stirred her insides. She could feel everything — every inch, every pulse, every throb of Camille's heartbeat transmitted through the shaft into her walls.
 
-"I — ♡ — gave up — my country — today — ♡♡♡ — in the — hanbok — store — ♡ — I gave up — Korea — and I — don't — miss it — ♡♡♡ — I don't — miss — anything — except — the time — I spent — without — this — cock — inside — me — ♡♡♡♡♡—"
+"I — ♡ — can feel — you — THROBBING — ♡♡♡ — inside — me — ♡ — when I — go — this — slow — I can — feel — your — heartbeat — in — my — cunt — ♡♡♡♡♡—"
 
-"I — ♡ — would give — up — everything — ♡♡♡ — Dohan — my career — my family — the BAFTA — ♡ — I would — trade — every — award — for one — more — day — like this — ♡♡♡♡♡—"
+"I — ♡ — need — this — ♡♡♡ — I need — this — every — DAY — ♡ — I can't — go — back — to — not — having — this — ♡♡♡♡♡—"
 
 The English started to go.
 
@@ -526,7 +526,7 @@ One stroke. All twelve inches. Straight down. Gravity and Camille's weight and t
 
 Folded in half. Knees at her ears. The cat ears crushed against the pillow, the bell ringing one last time before it was muffled by fabric. Camille's full weight on top of her. Pinned. Impaled. The deepest angle possible in the most vulnerable position and completely at the mercy of a woman who had stopped having mercy three costumes ago.
 
-"DADDY — ♡♡♡♡♡ — YES — ♡♡♡♡♡♡♡ — BREED — ME — ♡♡♡♡♡♡♡♡♡♡ — BREED — YOUR — KOREAN — KITTY — ♡♡♡♡♡♡♡♡♡♡♡♡—"
+"DADDY — ♡♡♡♡♡ — YES — ♡♡♡♡♡♡♡ — BREED — ME — ♡♡♡♡♡♡♡♡♡♡ — BREED — ME — BREED — ME — ♡♡♡♡♡♡♡♡♡♡♡♡—"
 
 PLAP PLAP PLAP PLAP—
 
@@ -534,7 +534,7 @@ The thrusts were savage. The daybed frame hit the wall with each one. The sound 
 
 SCHLURGE PLAP SCHLURGE PLAP—
 
-"Kitty — ♡ — cunny — full — ♡♡♡ — so full — ♡ — Daddy — tummy — ♡♡♡ — kitty — feel — Daddy — in — tummy — ♡♡♡♡♡—"
+"Cunny — ♡ — full — ♡♡♡ — so full — ♡ — Daddy — tummy — ♡♡♡ — feel — Daddy — in — tummy — ♡♡♡♡♡—"
 
 Camille pulled out. Yuna screamed at the emptiness. The cock pressed against her ass.
 
@@ -556,7 +556,7 @@ Camille pulled out of her ass and drove into her cunt. Three strokes — fast, h
 
 Pulled out. Into her ass. Two strokes. The reverse — wet heat to tight heat, the stretch sharper, deeper, her ring clamping down and then surrendering, the cock pushing through the resistance into that deep pressure that made her see colors. Out. Cunt. Five strokes — long enough for her body to recalibrate, long enough for the sensation to normalize — and then out again. Ass. Each transition made Yuna's body spasm — her nervous system couldn't adapt fast enough, couldn't calibrate, every switch was a new first thrust. Her brain tried to anticipate and couldn't. Cunt. Ass. Cunt. Which one was next? Both holes aching, both gaping when empty, both clenching when filled. She'd been reduced to two holes and a bell.
 
-"DADDY — ♡♡♡ — EVERY — HOLE — ♡♡♡ — USE — EVERY — HOLE — ♡♡♡♡♡ — I'M — YOURS — EVERY — INCH — EVERY — HOLE — EVERY — THOUGHT — ♡♡♡♡♡♡♡—"
+"DADDY — ♡♡♡ — BOTH — ♡♡♡ — YOURS — ♡♡♡♡♡ — ALL — OF — ME — YOURS — ♡♡♡♡♡♡♡—"
 
 PLAP PLAP PLAP — cunt. PLAP PLAP — ass. The sounds were different. Wetter from the front, sharper from the back. Camille switched without warning, without pattern, keeping Yuna's body in a constant state of shock. Three hard strokes into her cunt that made her g-spot light up — then out, the head dragging across her perineum — and into her ass where the angle and the tightness made Camille drive slower, harder, each stroke deliberate and devastating.
 
