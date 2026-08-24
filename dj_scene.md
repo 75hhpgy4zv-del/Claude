@@ -1,0 +1,375 @@
+# The Set
+
+The invite came through Minjun, who did sound for Yuna's last film and who ran a Tuesday night at a basement venue in Itaewon that didn't have a sign. He'd seen a video — somebody's phone, 2014, Camille behind a pair of CDJs in what looked like a parking garage in Lyon, headphones around her neck, one hand on the mixer and the other holding a cigarette, and the crowd was moving in a way that meant the person behind the decks knew exactly what she was doing.
+
+"You DJ?" he'd asked, incredulous, at a wrap party.
+
+"I used to." She said it the way she said everything — like it was barely worth the breath. "Gap year. Before uni."
+
+"What kind of stuff?"
+
+"Whatever kept them moving."
+
+That had been three weeks ago. Minjun had texted the next day. Guest set? Tuesday? Ninety minutes? The crowd's good, the system's good, the booth has Pioneer decks.
+
+Camille had said yes before reading the full message.
+
+Yuna found out because Camille mentioned it while making coffee, the way she mentioned everything — as a fact that had already been decided, offered for acknowledgment, not input.
+
+"I'm DJing Tuesday."
+
+Yuna looked up from her script. "Where?"
+
+"Itaewon. Some basement. Minjun's night."
+
+"I'm coming."
+
+"It's a Tuesday."
+
+"I have the night off."
+
+The speed of the answer. Camille looked at her over the rim of the cup and Yuna held the look and neither of them said what they both knew, which was that the night off had nothing to do with it.
+
+---
+
+The club was called nothing. It had no sign, no website, no line. You went down a set of concrete stairs behind a chicken shop on a street that smelled like rain and grease, and at the bottom there was a steel door and behind the steel door there was a room that held maybe four hundred people and felt like the inside of a speaker. The ceiling was low. The walls were raw concrete. LED strips ran along the floor in blue-purple and the fog machine gave everything a haze that sat at shoulder height, so the room looked like it was sinking into its own atmosphere. The booth was on a low stage at the far wall — a solid wooden front panel, waist-high, open behind. From the floor you could see the DJ from the chest up. Below the mixer, nothing. A dark cave of cables and a milk crate and whatever the DJ brought with them.
+
+Camille arrived at ten to set up. She wore what she always wore — white T-shirt, black jeans, sleeves that would've been rolled if the shirt had sleeves. The forearms were out. The jaw. The gap tooth. She put her headphones on, plugged her USB in, tested a transition. Rough. She did it again. Clean. The muscle memory was still there, underneath the years of lecture halls and thesis chapters, the way a language you haven't spoken in a decade comes back when you're drunk — not perfect, but true.
+
+She tested the low end. The sub hit her in the sternum. "Mm." The gap tooth showed.
+
+By eleven the room was full and hot and the air tasted like cologne and spilled soju and fog-machine glycol. Camille leaned into the mic.
+
+"Bonsoir. I haven't done this in a while, so if it's terrible, buy me a drink and I'll try harder."
+
+The accent did what it always did. The crowd was hers before the first track.
+
+---
+
+Yuna arrived in disguise. Cap pulled low, black mask, oversized jacket that hid everything about her that was recognizable — the collarbones, the shoulders, the way she held herself like someone who knew she was being watched even when she wasn't. She went to VIP, which was a roped-off corner with a couch that smelled like it had survived three floods. She sat. She ordered a water. She watched.
+
+Camille behind the decks was a thing she had not been prepared for.
+
+The forearms on the mixer. The headphones resting on one ear, the other bare, reading the room with the same tilted-head focus she used when she was deciding what to do to a body. The way she moved — unhurried, precise, one hand adjusting the EQ while the other cued the next track, and the muscles in her shoulders shifting under the cotton, and the jaw working slightly to the beat, and the LED light catching the planes of her face in blue and then purple and then blue.
+
+Yuna drank her water.
+
+One song.
+
+Two.
+
+Three.
+
+On the fourth she was standing. On the fifth she was at the edge of the VIP rope. On the sixth she was crossing the floor, which was dense and dark and smelled like sweat, and the bass was so deep she could feel it in her back teeth, and the thing behind her navel — the thing that had been pulling since the shopping trip, the thing that hadn't stopped in two weeks, the thing she had tried to manage with showers and her own hand and Dohan's dutiful, competent, utterly inadequate body — the thing pulled, and she followed it.
+
+She appeared at the side of the booth. The stairs up were two steps. She took them.
+
+Camille didn't look at her.
+
+"I wanted to see the equipment," Yuna said.
+
+"The equipment's in front of me."
+
+But she shifted her stance. Wider. Not an invitation. Not not one.
+
+---
+
+Yuna stood behind her for half a song. Close enough to smell the Sauvage over the fog and the sweat. Close enough to see the shape through the black denim, the weight of it, resting against the left thigh, and her mouth went dry in the way that preceded everything that had happened to her since March — the way a migraine starts with a visual aura, the way a seizure starts with a taste of metal, the way an earthquake starts with a sound too low to hear.
+
+She crouched.
+
+The floor behind the booth was sticky with something — spilled Red Bull, probably, or soju, or both. Her dress was silk. ₩3,000,000 from a boutique in Cheongdam that had wrapped it in tissue paper and put it in a bag with handles made of ribbon. She knelt in it. The silk darkened at the knees immediately. She didn't notice. She was looking at the shape through the denim from six inches away and she could smell it through the fabric — salt and skin and the clean animal heat of it — and her hands were shaking the way they shook in the lingerie store, the way they shook in the hanbok shop, the way they shook every time the deprivation broke.
+
+Two weeks. Fourteen days. She had counted them. She had counted the hours of day fourteen. She had stood in her bathroom that morning with her forehead against the tile and her hand between her legs and come twice thinking about the taste of it and it hadn't helped. Nothing helped. Nothing except the thing that was six inches from her face, separated by a zipper and the last molecule of her dignity.
+
+She reached for the zipper.
+
+Camille, above, cued a track. Her hips didn't move. Her hands stayed on the decks. She did not look down.
+
+The zipper came down.
+
+The cock fell free — heavy, half-hard already, the foreskin warm and loose, the weight of it settling against Yuna's cheek before she could guide it. She turned her head into it. Pressed her face against the shaft. Breathed in and felt the deprivation shatter like a window, every nerve in her face firing at once, her eyes closing, her lips parting, and then it was in her mouth and she was not easing in, she was not being careful, she was not doing anything except the thing an addict does when the needle goes in, which is to stop existing as a person and become a delivery system for the substance.
+
+SCHLURP.
+
+Her jaw stretched. The first three inches were immediate — lips sealed, tongue flat, suction hard enough to hollow her cheeks. She could feel the pulse against her palate, fat and slow, and the cock thickening as blood filled it, growing in her mouth, pushing her jaw wider. Four inches. Five. The curve hit the back of her throat and she gagged and swallowed around it and pushed deeper and gagged again and didn't stop.
+
+Above her, Camille adjusted the high-pass filter on the outgoing track. Her left hand dropped from the mixer and settled on the back of Yuna's head. Not guiding. Resting. The weight of the hand said *I know you're there and I'm not going to help you.*
+
+SCHLURP. SCHLURP.
+
+The sounds were wet. Obscenely wet. Yuna's mouth was producing saliva at a rate that had nothing to do with digestion and everything to do with the pavlovian response she had been building for months — cock in mouth, body floods, every gland activating at once. Spit ran down the shaft, over her knuckles where she gripped the base, down her wrist. It dripped onto the sticky floor. She could feel it on her chin. She could feel it soaking into the neckline of the ₩3,000,000 dress.
+
+From the floor, in the front row, a girl tilted her head. Something was off. A sound under the bass. Wet. Rhythmic. She looked at her friend. Her friend shrugged. The music was too loud to be sure.
+
+Camille leaned into the mic between tracks. Her voice was level, amused, French-accented.
+
+"I should mention — I've got someone with me tonight. Behind the booth." She let it sit. The crowd shifted. A few laughs. A whistle. "She insisted on coming. She's handling... logistics."
+
+The room erupted. Cheers. Wolf-whistles. Someone yelled *GET IT* in English. Camille smiled — the gap tooth, the half-smile, the one that gave nothing away — and dropped the next track, and the bass swallowed the sound of Yuna gagging on seven inches of cock behind the wooden panel.
+
+Yuna heard the cheers through the wood. Four hundred people. Four hundred strangers cheering for the thing she was doing on her knees and they didn't know who she was and if they knew — if a single one of them looked over the booth and saw the face that had been on the cover of *Cine21* and *Vogue Korea* and the poster for *Midnight Meridian* that was still on the side of buses — 
+
+She took another inch. Her throat spasmed. Her eyes watered. She could feel the cock in her oesophagus now, feel it pressing against the walls of her throat, and the discomfort was enormous and it didn't matter, it didn't matter at all, because the thing behind her navel had stopped pulling and started PURRING, and the deprivation haze was lifting, and she could feel herself returning to the state she had been in at the lingerie store and the cosplay shop and every other place Camille had put her — the state where the world narrowed to a single point and the point was the cock and everything else was noise.
+
+Camille looked down. Once. Between songs. Her face in the purple LED light from below was something out of a painting nobody would hang in a museum.
+
+"You're getting my shoes wet."
+
+SCHLURP.
+
+"Deeper. I'm trying to work."
+
+She turned back to the decks. She was building a set the way she built everything — layers, tension, patience. The crowd was with her. They were moving. She was reading the room with her ear cocked and her hands steady and her cock eight inches deep in a married woman's throat, and her expression above the decks didn't change, and the gap tooth showed, and she was beautiful, and Yuna hated her and needed her and couldn't stop.
+
+Camille leaned into the mic. "She says thank you for the applause." Beat. "She can't talk right now."
+
+---
+
+The transition happened because it had to.
+
+Yuna pulled off. Not because her jaw was aching — it was, the hinge on the left side felt like it had been pried open with a screwdriver — but because the cock in her throat wasn't enough. It hadn't been enough since the fourth song. She needed it inside her. Not her mouth. Inside. The place where the deprivation lived, the place that had been empty for fourteen days and had made her life unbearable for every single one of them.
+
+She turned around. Back to Camille. Knees on the sticky floor, facing the front panel. She pulled her dress up to her waist.
+
+No underwear.
+
+She had known. When she got dressed, standing in the walk-in closet of the apartment she shared with Dohan, choosing the silk dress and no underwear under a cap and an oversized jacket — she had known. The disguise was a lie she told herself on the way out the door. The bare cunt underneath was the truth. Dohan had asked where she was going. *A friend's thing. I won't be late.* And she had kissed him on the cheek and walked out of the apartment with nothing between her pussy and the night air except ₩3,000,000 of silk, and her hands had been shaking, and she had told herself it was the cold.
+
+Camille's hands were on her hips. Lifting her. Setting her down on the lap, on the milk crate. The cock found her without guidance — it always found her, as if it knew the way, as if her body had been mapped and the route was permanent — and she sank onto it in one long, slow, devastating descent that drove the air out of her lungs and the thought out of her head and the last pretence out of the evening.
+
+She bit her wrist to keep from screaming.
+
+The stretch. God, the stretch. Fourteen days of nothing and now twelve inches of everything and her cunt was clenching so hard around it that she could feel her own pulse in the walls, could feel the ridges of the cock dragging against her as she settled, could feel the depth — the depth that Dohan had never reached, the depth that no one had ever reached except the six-foot-two French woman behind her who was currently adjusting the tempo of a track with one hand while the other held Yuna's hip steady with a grip that was going to leave fingerprints in the morning.
+
+'I'm sitting on Daddy's cock behind a DJ booth in front of four hundred people and I wore this dress on the cover of Vogue.'
+
+She rocked her hips.
+
+PLAP.
+
+The sound was muffled by the music. Barely. The bass was deep enough to cover the wet slap of skin on skin if she moved slowly, carefully, keeping her body below the deck line, keeping her voice in her throat — 
+
+She moved.
+
+PLAP. PLAP.
+
+The cock curved against her front wall with every descent, pressing the spot that made her vision swim, and she gripped her own thighs to keep from reaching for the edge of the booth, because if her hands came above the panel, if her fingers appeared gripping the wood, someone might look, someone might wonder — 
+
+"She's married, by the way."
+
+Camille's voice. The mic. The whole room.
+
+Yuna froze. The cock was so deep inside her she could feel it behind her navel, in the exact place the pulling lived.
+
+"Her husband thinks she's at a spa."
+
+The crowd laughed. Four hundred people laughed. They thought it was part of the act. DJ banter. A bit. The tall French woman with the gap tooth and the forearms was doing a THING, and it was funny, and nobody — nobody in this room — knew that every word of it was true.
+
+Yuna came.
+
+She came so hard her vision went white at the edges and she bit through the skin on her wrist and her cunt clenched around the cock in a series of contractions so violent she could feel them in her spine, and her thighs shook, and her hips jerked, and she squeezed her eyes shut and saw nothing and heard nothing except the crowd laughing at the truth of her life, and she came, and came, and the orgasm lasted the length of the laugh and then longer.
+
+PLAP.
+
+She didn't stop moving. She couldn't stop moving. The orgasm was still rippling through her and she was already chasing the next one, already rising and falling on the cock with a rhythm that matched the kick drum, and the music was getting harder now, the set was building, and Camille's hand was on her hip controlling the depth and the speed and the angle — 
+
+"I'm — married—"
+
+It came out before she could stop it. Whispered. Choked. Broken by the rhythm of her own hips.
+
+"I'm — cheating — on my husband — because I can't — STOP — he thinks I'm — getting a facial—"
+
+"You are." From above. Level. Amused.
+
+"Daddy—"
+
+The word escaped. She slapped her hand over her mouth. The first "Daddy" to make it past her teeth in a public space, in a room full of people, and the horror of it — and the HEAT of it, the way it lit up every synapse — 
+
+"Careful," Camille said. Not into the mic. Just to her. Quiet. "They can hear you when the bass drops."
+
+Yuna whimpered into her palm. She was rising and falling faster now, the dress bunched around her waist, her bare thighs slapping against Camille's denim, and Korean was starting to leak through — single words, fragments she couldn't control, sounds that were not English and not language and not anything except the noise a body makes when it is being used past the point of composure.
+
+The cock. The cock. She could feel Camille's heartbeat through it, slow and steady, a pulse inside her that was calmer than her own, as if the woman behind her was merely resting, merely sitting, merely allowing her body to be used as a surface while she worked. The casualness of it. The way Camille's hands went back to the decks, both hands, mixing, leaving Yuna to fuck herself, setting the pace, taking what she needed — 
+
+'I'm the one moving. She's just sitting there. She's WORKING. I'm — I'm just — equipment. Logistics.'
+
+PLAP. PLAP. PLAP.
+
+A quiet transition between tracks. The bass dropped out for four beats. In the silence, the sound carried.
+
+"Did you hear that?" A guy near the front.
+
+His friend grinned. "DJ's logistics."
+
+---
+
+The music got harder and Yuna got stupider.
+
+She couldn't track the transition precisely — there was no moment where coherence ended and the rest began, the way there's no moment where you go from drunk to wasted, it just happens, the floor tilts and you realize it tilted ten minutes ago and you didn't notice — but somewhere around the eighth or ninth song, the woman sitting on Camille's cock behind the wooden panel stopped being Yuna Jeong, BAFTA-nominated actress, wife of director Park Dohan, face of Sulwhasoo and Cartier and the Seoul Tourism Board, and became something else. Something simpler. Something with a heartbeat and a cunt and no future beyond the next downstroke.
+
+The baby talk started first.
+
+"Fucky — Daddy — fucky fucky—"
+
+Whispered into Camille's thigh. Muffled by the denim. But there.
+
+"Mm." From above.
+
+"More — need — more — Daddy — so deep — fucky—"
+
+She was biting her own hand again. The teeth marks on her wrist were deep enough to last a week. She'd have to explain them. She'd say she burned herself on a curling iron. Dohan would believe it. Dohan believed everything. Dohan was at home right now watching a rough cut in his study and his wife was impaled on a white cock in a basement in Itaewon with four hundred people on the other side of a wooden panel and her dress was ruined and her makeup was mascara tracks and spit and she was saying *fucky* like a toddler because her brain had left the building.
+
+PLAP. PLAP. PLAP. PLAP.
+
+The rhythm was faster now. She was riding harder, the milk crate creaking under their combined weight, and every descent drove the cock so deep she could feel it pressing against her cervix, could feel the blunt head pushing at the entrance to her womb, and the pain of it — the sweet, bruised, devastating pain of something too big in a space too small — was indistinguishable from the pleasure, the two of them fused into a single sensation that had no name except *Daddy* and *more* and *please* and ♡♡♡.
+
+Her interior monologue had stopped producing sentences. What was left was images. The cock. The curve. The bass in the floor coming up through her knees. The calluses on Camille's fingers where they gripped her hip. The wet sound of her own body. The smell of the Sauvage mixing with sex and fog machine and the sour-sweet funk of the floor she was kneeling on.
+
+"더 — 더 — 제발 — Daddy — 제발—"
+
+Korean. Out loud. Unmistakable.
+
+A girl in the front row looked at the booth. Tilted her head. She'd heard something. A woman's voice, high and broken, and it wasn't the track. She looked at her friend. Her friend was dancing. She looked back at the booth. The DJ — the tall foreign woman with the jaw — was adjusting a knob with one hand. Her other hand was below the panel, out of sight.
+
+The girl took out her phone.
+
+She held it up to record the DJ. The angle — 
+
+Camille saw it. Her hand left the mixer and found the back of Yuna's neck. Fingers closed. She pushed DOWN. Hard. Yuna's face pressed flat against the inside of Camille's thigh, the cock driven deeper by the angle change, and Yuna's scream was swallowed by the denim and the muscle and the bass, and she came — a squirting, ruinous orgasm that soaked the crate and Camille's jeans and the floor — and Camille's hand held her there, flat, invisible, while the phone in the crowd recorded three seconds of a tall French woman mixing with one hand and looking completely unbothered.
+
+The phone lowered.
+
+Camille released her grip.
+
+Yuna gasped. Drew air. The inside of her thighs was soaked. She could feel her own cum running down her legs, pooling in the wreckage of the dress, and the cock was still inside her, still hard, still filling her completely, and she hadn't processed the orgasm before the next one started building — 
+
+"Good girl."
+
+Two words. Said once. Not into the mic. Just down. Just to her.
+
+The effect was chemical. She could feel it in her bloodstream, could feel it hit her the way the first swallow of something strong hits your stomach — a bloom of warmth that started in her chest and radiated outward and turned every muscle soft. Good girl. She'd been good. She'd stayed hidden. She'd been quiet enough (she hadn't been quiet at all, but the bass had saved her, the bass was her co-conspirator). She'd been GOOD and Daddy had noticed.
+
+"Daddy ♡ — more — please — I'll be — good — I'll be so — good ♡—"
+
+"Quiet. The build's coming."
+
+She didn't know if Camille meant the music or the orgasm. Both. It didn't matter. She moved her hips. PLAP. PLAP. PLAP. The milk crate protested. Something in the booth vibrated — a cable, a power strip, something metal touching something else metal — and the sound was a buzz under the bass and nobody in the crowd could identify it and nobody cared.
+
+Camille was layering the tracks now. Building something. The same thing she did in bed — tension on tension, frequency on frequency, the room tightening like a muscle. One hand on the mixer. One hand on Yuna's hip. The dual rhythm. She was building the set's climax and she was building Yuna's and they were the same build and she knew it.
+
+"Dohan — doesn't — make me — feel — ANYTHING—"
+
+The words came out broken, one per thrust. Yuna's voice was wrecked — hoarse from the deepthroat, raw from the suppressed screaming, and underneath both of those, hollow, the voice of someone confessing in a language they're losing.
+
+"You — ruin — me — every — time — I'm — RUINED — ♡♡♡—"
+
+"Mm."
+
+"I would — trade — my whole — life — for this — for YOUR — cock — Daddy — I'm — your — Korean — slut — I'm — cheating — on my — HUSBAND — in front of — four hundred — people — because I — CAN'T — STOP ♡♡♡—"
+
+She was crying. She could feel the tears on her face, mixing with the mascara and the spit and the mess of everything she used to be, and she was smiling while she cried, the heroin smile, and her hips hadn't stopped, hadn't slowed, and the cock was so deep inside her it felt like it had always been there, like her body had been designed around it, like every other moment of her life was the interruption and THIS was the default state — 
+
+---
+
+Camille's composure broke at the thirteenth song.
+
+You could hear it in the mix. Every transition up to this point had been clean — not perfect, she was rusty, but GOOD, instinct-good, a body remembering work the mind had moved on from. But thirteen was messy. The BPMs didn't match for half a beat. A filter sweep came too late. The crowd didn't notice. They were too deep in the set, too drunk, too high, too far into the place where the music stops being something you hear and becomes something you're inside.
+
+But behind the booth, Yuna felt the change.
+
+Camille's grip shifted. Both hands left the decks.
+
+Both hands on Yuna's hips.
+
+The rhythm changed. For twelve songs it had been Yuna's rhythm — she had been moving, she had been setting the pace, she had been taking what she needed while Camille sat and worked and let herself be used. Now the rhythm was Camille's. The hands gripped bruise-tight and the hips drove upward and the cock hit a depth that hadn't existed before, a depth that made Yuna's vision fragment into shards, and the pace was no longer controlled, no longer measured, no longer ANYTHING except the pace of something that had stopped pretending not to want what it was taking.
+
+The track played out unattended. The outgoing song looped back to the intro. Someone in the crowd noticed — the same eight bars, repeating. They looked at the booth. The DJ's eyes were closed. Her jaw was locked. The tendons in her neck stood out like cables. Her hands were below the panel, gripping something, and her hips were moving in a way that — 
+
+PLAP PLAP PLAP PLAP PLAP.
+
+The bass couldn't cover it anymore. The song was looping. The sub was steady but the sound from behind the booth was NOT steady, it was accelerating, wet, rhythmic, OBSCENE, and there was a voice under it — muffled, high, broken — 
+
+"DA — DDY — DA — DDY — DA — DDY — ♡♡♡ —"
+
+The crowd went quiet. Three seconds of four hundred people holding their breath. Then someone in the back yelled "LET'S FUCKING GO" and the room EXPLODED — cheers and screams and laughter and stomping, and Camille's eyes opened, and her jaw unlocked, and the growl that came out of her was not a word, not a sound she chose to make, it was the sound of a body that had run out of patience with its own control, and her abs locked, and her thighs clenched, and the cock buried to the root inside Yuna throbbed once, twice, three times — 
+
+Yuna felt it start.
+
+The first pulse of cum was a heat she felt in her stomach, a liquid pressure that bloomed from the deepest point of the cock outward, filling her. The second was harder, hotter, and she could feel her cunt clenching around it involuntarily, trying to keep it, trying to pull more of it in, her body performing a function that had nothing to do with her mind because her mind was gone. The third made her see white. The fourth made her see nothing.
+
+She came.
+
+Not an orgasm — a system failure. Every muscle in her body fired at once. Her cunt spasmed around the cock in contractions so hard they hurt, milking the cum out of it in thick pulses that she could feel filling her, warm and heavy and REAL, the most real thing in her life, the most real thing in any life, and her mouth was open and no sound was coming out because she was past sound, past language, past anything except the sensation of being FULL — full of cum and cock and bass and the complete, obliterating knowledge that this was who she was now. Not the actress. Not the wife. Not the face on the bus. This. This animal on a milk crate. This body impaled on a white cock behind a wooden panel. This thing that couldn't stop.
+
+♡♡♡♡♡♡♡♡♡♡
+
+Her hands clawed at Camille's thighs. Her heels drummed the floor. Cum was leaking out of her around the cock, running down the shaft, pooling on the crate, dripping onto the cable-strewn floor. She could feel it — the excess, the obscene volume of it, the way her body couldn't hold it all, the way it spilled out of her like evidence.
+
+Camille came for ten seconds. Fifteen. The cock pulsing inside Yuna's cunt in thick, rhythmic contractions that she could feel through her whole body, that synced with her own orgasm until she couldn't tell which spasms were hers and which were Camille's, and the bass looped, and the crowd screamed, and she was nothing. She was nothing and she was full and she was smiling.
+
+---
+
+Camille recomposed in five seconds.
+
+She reached over Yuna's head — Yuna slumped forward against the inside of the front panel, forehead against the wood, the cock still inside her, cum running down her thighs — and brought in the next track. Clean transition. Smooth. As if the last ninety seconds hadn't happened.
+
+The set had three songs left. She played them perfectly.
+
+Between the second and third, she leaned into the mic. Her voice was steady. Conversational. Not a hair out of place in the syllables.
+
+"Thank you, Seoul. She says thank you too."
+
+The crowd roared.
+
+Under the booth, Yuna heard it through the wood and the ringing in her ears and the warm fog that had replaced her brain. Thank you. She was being thanked. She tried to form a response and what came out was "nnngh ♡" and a bubble of cum that slipped out of her cunt and ran down her inner thigh to her knee.
+
+The last song played out. Camille took the headphones off. Lifted her arms. The crowd cheered for thirty seconds. Someone threw a bra. Someone else threw a can of Cass. Camille caught neither.
+
+Then she looked down.
+
+Yuna was curled on the floor behind the booth. The silk dress was ruined — dark with sweat and spit and cum and the sticky residue of whatever had been on the floor before she got there. Her cap was gone. It had come off during the riding, somewhere around the tenth song. Her hair was plastered to her face with sweat. Her mascara had traveled south in two dark tracks, and her lips were swollen, and her chin was glazed, and between her legs was a mess that would take three showers to address.
+
+She was smiling. The smile that didn't know it was smiling. The one he'd seen on her face in the fitting room and the costume closet and the hanbok shop and every other place she had let herself become what she was. The heroin smile. The addict's perfect high.
+
+Camille crouched down. She put one hand under Yuna's arm and lifted. Yuna's legs didn't work — they folded twice before she got them under her, and even then she leaned into Camille's side at an angle that suggested she had forgotten how knees operated. Camille pulled the oversized jacket from where Yuna had dropped it and wrapped it around her, zipping it to her chin. Hiding the dress. Hiding the evidence. She pulled the mask up over Yuna's nose.
+
+"Can you walk?"
+
+"Mmnn."
+
+"Try."
+
+They went through the back. Staff corridor. Concrete floor, fluorescent lighting, the harsh clean brightness of backstage after the purple-blue dark of the room. Yuna squinted. She looked like something that had been dragged out of a river — beautiful and destroyed and not fully conscious.
+
+A bouncer at the back exit. Big, shaved head, an earpiece. He looked at Camille. Looked at the woman she was half-carrying. Looked at the face above the mask — the eyes, the bone structure, the — 
+
+He recognized her.
+
+Yuna saw it happen. Saw his eyes widen, saw his mouth open, saw the word forming — 
+
+Camille looked at him.
+
+Whatever the look contained — it was not a threat, it was not a request, it was the quiet, flat, absolute look of someone who does not negotiate — the bouncer closed his mouth. Looked away. Held the door.
+
+They stepped into the alley. The night air hit Yuna like water. Seoul in the small hours — the chicken-shop grease, the rain on warm asphalt, a taxi's headlights at the end of the alley. She breathed. She could feel cum running down the inside of her thigh, past her knee, into her shoe.
+
+Camille's phone buzzed.
+
+In the car — Yuna curled against her side, cheek on her shoulder, the jacket zipped to her chin, her ruined dress underneath it like a secret — Camille opened the message. From Minjun.
+
+*That was insane. When can you come back?*
+
+She turned the phone so Yuna could see the screen.
+
+Yuna read it. Her eyes — wrecked, glazed, the pupils still blown — went to Camille's face. Then back to the screen. Then back to Camille.
+
+"Next week," she said. Her voice was a whisper. Not because she was being quiet. Because it was all she had left. "Tell him next week."
+
+Camille typed the reply with one hand. The other was on the back of Yuna's neck, proprietary, casual, the way you hold something that belongs to you and always will. 
+
+Yuna closed her eyes. She could still feel the bass in her teeth. She could still feel the cum inside her, warm and heavy and settling. Dohan would be asleep when she got home. She would shower. She would throw away the dress. She would lie down beside her husband with her hair wet and her body aching and the bruises on her hips shaped like fingerprints, and she would stare at the ceiling, and the thing behind her navel would start pulling again before she'd finished drying off.
+
+Next week.
+
+She pressed her face into Camille's shoulder and breathed in the Sauvage and the sweat and the sex, and outside the taxi the city scrolled past in neon and rain, and she was already counting the days.
