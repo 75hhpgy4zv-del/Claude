@@ -60,7 +60,7 @@ Two.
 
 Three.
 
-On the fourth she was standing. On the fifth she was at the edge of the VIP rope. On the sixth she was crossing the floor, which was dense and dark and smelled like sweat, and the bass was so deep she could feel it in her back teeth, and the thing behind her navel — the thing that had been pulling since the shopping trip, the thing that hadn't stopped in two weeks, the thing she had tried to manage with showers and her own hand and Dohan's dutiful, competent, utterly inadequate body — the thing pulled, and she followed it.
+On the fourth she was standing. On the fifth she was at the edge of the VIP rope. On the sixth she was crossing the floor, which was dense and dark and smelled like sweat, and the bass was so deep she could feel it in her back teeth, and the thing behind her navel — the thing that had soaked through four pairs of underwear yesterday, the thing that had nearly made her say COCK out loud at a table read, the thing that had been screaming for fourteen days without pause — the thing pulled, and her legs went, and she let them go.
 
 She appeared at the side of the booth. The stairs up were two steps. She took them.
 
@@ -88,7 +88,11 @@ Camille, above, cued a track. Her hips didn't move. Her hands stayed on the deck
 
 The zipper came down.
 
-The cock fell free — heavy, half-hard already, the foreskin warm and loose, the weight of it settling against Yuna's cheek before she could guide it. She turned her head into it. Pressed her face against the shaft. Breathed in and felt the deprivation shatter like a window, every nerve in her face firing at once, her eyes closing, her lips parting, and then it was in her mouth and she was not easing in, she was not being careful, she was not doing anything except the thing an addict does when the needle goes in, which is to stop existing as a person and become a delivery system for the substance.
+The cock fell free — heavy, half-hard already, the foreskin warm and loose, the weight of it settling against Yuna's cheek before she could guide it. She turned her head into it. Pressed her face against the shaft. Breathed in.
+
+*The taste. The TASTE. The real — it's REAL — after fourteen days of the ghost on her tongue at 5 AM it's HERE, the salt and the skin and the heat and — COCK — big white cock against her face and she can SMELL it and —*
+
+Her eyes closed. Her lips parted. And then it was in her mouth and she was not easing in, she was not being careful, she was swallowing it the way you drink water after fourteen days in a desert — desperate, gasping, more, MORE —
 
 SCHLURP.
 
@@ -124,9 +128,11 @@ Camille leaned into the mic between tracks. Her voice was level, amused, French-
 
 The room erupted. Cheers. Wolf-whistles. Someone yelled *GET IT* in English. Camille smiled — the gap tooth, the half-smile, the one that gave nothing away — and dropped the next track, and the bass swallowed the sound of Yuna gagging on seven inches of cock behind the wooden panel.
 
-Yuna heard the cheers through the wood. Four hundred people. Four hundred strangers cheering for the thing she was doing on her knees and they didn't know who she was and if they knew — if a single one of them looked over the booth and saw the face that had been on the cover of *Cine21* and *Vogue Korea* and the poster for *Midnight Meridian* that was still on the side of buses — 
+Yuna heard the cheers through the wood. Four hundred people cheering and she didn't care who they were or who SHE was because the cock was in her throat and the taste was REAL, not the ghost, not the 5 AM phantom on her tongue, REAL, and she'd been chasing this taste for fourteen days and now it was filling her mouth and she could feel the pre-cum leaking onto her tongue — salt and sweet and —
 
-She took another inch. Her throat spasmed. Her eyes watered. She could feel the cock in her oesophagus now, feel it pressing against the walls of her throat, and the discomfort was enormous and it didn't matter, it didn't matter at all, because the thing behind her navel had stopped pulling and started PURRING, and the deprivation haze was lifting, and she could feel herself returning to the state she had been in at the lingerie store and the cosplay shop and every other place Camille had put her — the state where the world narrowed to a single point and the point was the cock and everything else was noise.
+*COCK. Big white cock in my mouth. In my THROAT. Fourteen days of clenching around nothing and the REAL thing is in my throat and it's — bigger than I remembered — thicker — the stretch —*
+
+She took another inch. Her throat spasmed. Her eyes watered. She could feel the cock pressing against the walls of her throat, and she pushed DEEPER because the thing behind her navel had stopped screaming and started PURRING, the fourteen-day scream finally going quiet because the phantom was becoming real, inch by inch, in her throat.
 
 Camille looked down. Once. Between songs. Her face in the purple LED light from below was something out of a painting nobody would hang in a museum.
 
@@ -142,9 +148,11 @@ Camille leaned into the mic. "She says thank you for the applause." Beat. "She c
 
 Two more songs. The oral went deeper into itself the way the set went deeper into the room — past novelty, past technique, into the place where skill dissolves and what's left is just the body doing what it was made to do. Yuna found the ten-inch depth and held it, throat working around the head in slow, rhythmic swallows that she could feel all the way down in her stomach, and her jaw had stopped aching — the hinge had surrendered, the muscles had given up their protest, the pain had crossed into the territory where it became something else, something that hummed instead of screamed, something she'd miss when it stopped.
 
-She could taste herself. Her own arousal, rising from below — the silk dress was soaked between her thighs, a dark stain spreading through the ₩3,000,000 fabric that she would not be able to explain and would not try to explain because the woman who wore this dress to a boutique in Cheongdam no longer existed. That woman had evaporated somewhere around the seventh inch. What was left was a throat and a pulse and a need that the throat couldn't fill.
+She could taste herself. Her own arousal, rising from below — the silk dress soaked between her thighs, the ₩3,000,000 fabric dark with it, and she didn't care, she couldn't care about anything except the cock in her throat, the taste, the TASTE she'd been chasing for fourteen days on her tongue in the dark at 5 AM, real now, real and hot and heavy and —
 
-Her cunt clenched around nothing. Again. Again. Every time the cock bottomed out in her throat, her cunt grabbed at air, the Pavlovian feedback loop of a body that had learned what the mouth was the preview for. The emptiness between her legs was worse than the fourteen days. Worse than anything. Because the cock was RIGHT HERE, all twelve inches, heavy and hot and perfect, and it was in the wrong hole.
+Her cunt clenched around nothing. Again. Again. Every time the cock bottomed out in her throat, her cunt grabbed at air, clenching around the phantom the way it had clenched for fourteen days, but the cock was RIGHT HERE, twelve inches, and it was in her MOUTH and she needed it in her CUNT, in the place behind her navel, the deep place, the place her own fingers couldn't reach, the place that had been empty and screaming and she needed it FILLED —
+
+*Inside me. I need it inside me. Not my mouth. My cunt. Big white cock in my — I need — please — INSIDE —*
 
 She moaned around the shaft. The vibration traveled through the cock and up into Camille's body and Camille's mixing hand stuttered — half a beat, less, a ghost of a waver that nobody in the crowd would have caught. Nobody except someone who was listening to the mixer the way a doctor listens to a heartbeat.
 
@@ -158,7 +166,7 @@ She turned around. Back to Camille. Knees on the sticky floor, facing the front 
 
 No underwear.
 
-She had known. When she got dressed, standing in the walk-in closet of the apartment she shared with Dohan, choosing the silk dress and no underwear under a cap and an oversized jacket — she had known. The disguise was a lie she told herself on the way out the door. The bare cunt underneath was the truth. Dohan had asked where she was going. *A friend's thing. I won't be late.* And she had kissed him on the cheek and walked out of the apartment with nothing between her pussy and the night air except ₩3,000,000 of silk, and her hands had been shaking, and she had told herself it was the cold.
+She had known. Her body had decided fourteen hours ago, standing in the closet at 2 AM with the silk in her fist and her cunt clenching around nothing. No underwear. Because she'd soaked through every pair she owned this week and underwear was just one more thing between her and the cock. Dohan had asked where she was going. *A friend's thing.* She felt nothing about the lie. He'd built a marriage out of surfaces — she owed the surface nothing. She'd walked out of the apartment with nothing between her cunt and the night air except ₩3,000,000 of silk, and her hands had been shaking, and the shaking was not the cold. The shaking was fourteen days of COCK COCK COCK finally about to end.
 
 Camille's hands were on her hips. Lifting her. Setting her down on the lap, on the milk crate. The cock found her without guidance — it always found her, as if it knew the way, as if her body had been mapped and the route was permanent — and she sank onto it in one long, slow, devastating descent that drove the air out of her lungs and the thought out of her head and the last pretence out of the evening.
 
@@ -166,7 +174,7 @@ She bit her wrist to keep from screaming.
 
 The stretch. God, the stretch. Fourteen days of nothing and now twelve inches of everything and her cunt was clenching so hard around it that she could feel her own pulse in the walls, could feel the ridges of the cock dragging against her as she settled, could feel the depth — the depth that Dohan had never reached, the depth that no one had ever reached except the six-foot-two French woman behind her who was currently adjusting the tempo of a track with one hand while the other held Yuna's hip steady with a grip that was going to leave fingerprints in the morning.
 
-'I'm sitting on Daddy's cock behind a DJ booth in front of four hundred people and I wore this dress on the cover of Vogue.'
+*'Full. Oh God. FULL. Fourteen days of nothing — fourteen days of the phantom — and now the real thing, big white cock, all twelve inches, and the DEPTH — the depth — the place behind my navel — it REACHES — after fourteen days it REACHES — '*
 
 She rocked her hips.
 
@@ -218,15 +226,15 @@ She didn't stop moving. She couldn't stop moving. The orgasm was still rippling 
 
 "I'm — married—"
 
-It came out before she could stop it. Whispered. Choked. Broken by the rhythm of her own hips.
+It came out on a downstroke. Whispered. Broken. And it wasn't guilt — it was HEAT, the word lighting her up, the transgression making her cunt clench harder around the cock —
 
-"I'm — cheating — on my husband — because I can't — STOP — he thinks I'm — getting a facial—"
+"I'm — cheating — because his cock — doesn't — my husband's cock doesn't — THIS cock — Daddy's cock is — SO DEEP — he thinks I'm — getting a facial—"
 
 "You are." From above. Level. Amused.
 
 "Daddy—"
 
-The word escaped. She slapped her hand over her mouth. The first "Daddy" to make it past her teeth in a public space, in a room full of people, and the horror of it — and the HEAT of it, the way it lit up every synapse — 
+The word came out like a moan and the heat of it — the HEAT — every synapse firing at once — 
 
 "Careful," Camille said. Not into the mic. Just to her. Quiet. "They can hear you when the bass drops."
 
@@ -234,19 +242,15 @@ Yuna whimpered into her palm. She was rising and falling faster now, the dress b
 
 The cock. The cock. She could feel Camille's heartbeat through it, slow and steady, a pulse inside her that was calmer than her own, as if the woman behind her was merely resting, merely sitting, merely allowing her body to be used as a surface while she worked. The casualness of it. The way Camille's hands went back to the decks, both hands, mixing, leaving Yuna to fuck herself, setting the pace, taking what she needed — 
 
-'I'm the one moving. She's just sitting there. She's WORKING. I'm — I'm just — equipment. Logistics.'
+*'Cock. Big white cock. DEEP. The place — the place behind my navel — FILLED — after fourteen days of clenching on NOTHING I'm — God — I can feel it in my stomach — every stroke — DEEPER — '*
 
-'I'm cheating on my husband with a crate and a cock and a crossfader and four hundred witnesses.'
+She fucked herself harder. The milk crate rocked. The dress was a ruin around her waist — soaked through, the silk dark with cum, and every downstroke drove the cock into the deep place that had been empty and screaming for fourteen days and the deep place was SINGING now, the pulling gone, replaced by a fullness so total her brain had stopped producing sentences and started producing only the word —
 
-She fucked herself harder. The milk crate rocked. The dress was a ruin around her waist — she could feel the hem dragging in the puddle of her own cum on the floor, the silk dark and heavy with it. She'd worn this dress to a premiere. She'd walked a red carpet in it with Dohan's hand on the small of her back and photographers calling her name and now it was soaked through with the evidence of what she actually was, which was this: a married woman riding a cock in a basement, unable to stop, unable to want to stop.
+*COCK. COCK. COCK.*
 
-Her nipples ached against the silk. Hard, untouched, desperate. She wanted Camille's mouth on them — the gap tooth scraping the peak, the tongue — but Camille's mouth was near the mic, Camille was working, Camille was giving the crowd what the crowd paid for, and Yuna was giving herself what she couldn't pay enough for.
+Her nipples ached against the silk. Hard, untouched, desperate. She wanted Camille's mouth on them — the gap tooth scraping the peak, the tongue — but Camille's mouth was near the mic, Camille was working, and Yuna was impaled on her cock in a basement riding herself stupid and every word she'd known in every language was leaving and the word replacing all of them was —
 
-'Korea's sweetheart. Best Actress nominee. On a milk crate. In a basement. No underwear. Full of cock. Getting wetter.'
-
-The running inventory of her degradation. She could feel the list of who she used to be getting shorter. Every stroke of the cock erased a line. Actress — gone. Wife — a word that applied to someone else, someone who wasn't currently DRIPPING onto a cable-strewn floor in Itaewon. Celebrity — the woman hiding below a wooden panel hoping a phone camera doesn't catch her face while she fucks herself stupid on a white cock. The identities fell away and the word that would replace all of them was simpler than any of them.
-
-'Daddy's slut. Daddy's Korean slut. That's — that's who I—'
+*'Daddy's cock. Daddy's big white cock in her little Korean cunt. Daddy's — I'm Daddy's — I'm — '*
 
 One hand on the inside of the booth panel for balance. The other gripping Camille's knee. She was a machine. A system. Input: cock. Output: orgasm. Process: degradation.
 
@@ -262,7 +266,7 @@ His friend grinned. "DJ's logistics."
 
 The music got harder and Yuna got stupider.
 
-She couldn't track the transition precisely — there was no moment where coherence ended and the rest began, the way there's no moment where you go from drunk to wasted, it just happens, the floor tilts and you realize it tilted ten minutes ago and you didn't notice — but somewhere around the eighth or ninth song, the woman sitting on Camille's cock behind the wooden panel stopped being Yuna Jeong, BAFTA-nominated actress, wife of director Park Dohan, face of Sulwhasoo and Cartier and the Seoul Tourism Board, and became something else. Something simpler. Something with a heartbeat and a cunt and no future beyond the next downstroke.
+Somewhere around the eighth or ninth song the words stopped. Not the sounds — she was still making sounds, small broken things that leaked out of her with every stroke — but the WORDS. The thoughts that tried to form in sentences dissolved before they finished. *I should — COCK — when is the — DEEPER — how long have I — DADDY — big white — FULL —* Nothing completed. Nothing needed to. Her brain had one function left and it was feeling the cock inside her and every other function had been shut down to free up resources.
 
 The baby talk started first.
 
@@ -274,7 +278,7 @@ Whispered into Camille's thigh. Muffled by the denim. But there.
 
 "More — need — more — Daddy — so deep — fucky—"
 
-She was biting her own hand again. The teeth marks on her wrist were deep enough to last a week. She'd have to explain them. She'd say she burned herself on a curling iron. Dohan would believe it. Dohan believed everything. Dohan was at home right now watching a rough cut in his study and his wife was impaled on a white cock in a basement in Itaewon with four hundred people on the other side of a wooden panel and her dress was ruined and her makeup was mascara tracks and spit and she was saying *fucky* like a toddler because her brain had left the building.
+She was biting her own hand again. The teeth marks on her wrist were deep enough to last a week. She didn't care. She didn't care about anything except the cock inside her, the depth, the stretch, the way every downstroke hit the place behind her navel that had been screaming for fourteen days, and her brain had left the building and what was left in the building was saying *fucky* because *fucky* was the only word that fit what was happening and what was happening was the best thing that had ever happened to any body anywhere.
 
 PLAP. PLAP. PLAP. PLAP.
 
@@ -292,13 +296,13 @@ She was drooling. She could feel it on her chin — spit, from where she'd been 
 
 "Daddy — I'm — I can't — I need—"
 
-She didn't know what she needed. She had it. All of it. The cock was inside her and she was full and she was coming and she still NEEDED, the need hadn't diminished, the need had gotten WORSE, the way a heroin addict's tolerance builds and the dose that used to obliterate them barely touches them and they need more, they always need MORE — 
+She didn't know what she needed. She had it. All of it. The cock was inside her and she was full and she was coming and she still NEEDED MORE — harder, deeper, the cock hitting the deep place and she needed it to hit HARDER, needed to feel it in her stomach, needed the stretch to split her open, needed every inch —
 
-"Shhh." From above. Not comforting. Clinical.
+"Shhh." From above. Not comforting. Amused.
 
-'I can taste my own blood. I can feel the bass in my bones. My husband is twelve kilometers away in bed and I am — I'm — I—'
+*'More. Deeper. Daddy's cock — big white cock — DEEPER — I need — every inch — I can feel it in my — DADDY — more — please — DEEPER — '*
 
-The sentence fragmented before she could finish it. Another thrust broke the thought in half and the halves broke into quarters and the quarters dissolved, and what was left in her mind was not language but texture: wet, full, deep, Daddy, ♡, and bass.
+Another thrust broke the thought and the pieces scattered and what was left in her mind was not language but texture: wet, full, deep, Daddy, ♡, and bass.
 
 "더 — 더 — 제발 — Daddy — 제발—"
 
@@ -334,7 +338,7 @@ She replayed the words. *Good girl.* The vowels. The French accent softening the
 
 'I'm a good girl. Daddy said I'm a good girl. I stayed hidden and I was quiet and I'm a GOOD GIRL ♡♡♡'
 
-Her brain had gone recursive. The same two words on a loop. She tried to form another thought — something about the time, or the set, or whether anyone could see her, anything that belonged to the functioning woman she'd been three hours ago — and what came back was *good girl* and the taste of cock in her throat and the feeling of cum leaking out of her cunt and nothing else.
+Her brain had gone recursive. Good girl. Good girl. Good girl. The words replacing COCK as the loop, the two words bouncing off the walls of her empty skull, and she tried to form another thought and what came back was Daddy's good girl with a big white cock inside her and cum leaking out of her cunt and she didn't want another thought. She didn't want anything except this. This forever.
 
 She came. Not a squirter. A deep one. A slow, rolling contraction that started in her cunt and traveled upward through her stomach and chest and throat and ended behind her eyes, and she shook, and her vision went soft, and she could feel the wetness leaking out of her around the cock — thin and clear and HERS, the fluid her body produced in quantities that embarrassed her everywhere except here, where embarrassment was a currency she'd already spent.
 
@@ -344,17 +348,17 @@ Held. Barely. Her lips sealed around her knuckles and the word stayed inside her
 
 Camille was layering the tracks now. Building something. The same thing she did in bed — tension on tension, frequency on frequency, the room tightening like a muscle. One hand on the mixer. One hand on Yuna's hip. The dual rhythm. She was building the set's climax and she was building Yuna's and they were the same build and she knew it.
 
-"Dohan — doesn't — make me — feel — ANYTHING—"
+"Fourteen — days — I waited — fourteen — DAYS — Daddy — without — your cock — I almost — said COCK — in a MEETING — because I — can't — think — about anything — except — your — big — white — COCK ♡♡♡—"
 
-The words came out broken, one per thrust. Yuna's voice was wrecked — hoarse from the deepthroat, raw from the suppressed screaming, and underneath both of those, hollow, the voice of someone confessing in a language they're losing.
+The words came out broken, one per thrust. Yuna's voice was wrecked — hoarse from the deepthroat, raw from the suppressed screaming, and she was SMILING, smiling while the tears ran down her face —
 
-"You — ruin — me — every — time — I'm — RUINED — ♡♡♡—"
+"Daddy's — Korean — slut — I — waited — fourteen — days — to get — FUCKED — and your — cock — is so — DEEP — I can — feel it — in my — STOMACH ♡♡♡—"
 
 "Mm."
 
-"I would — trade — my whole — life — for this — for YOUR — cock — Daddy — I'm — your — Korean — slut — I'm — cheating — on my — HUSBAND — in front of — four hundred — people — because I — CAN'T — STOP ♡♡♡—"
+"I would — trade — everything — my whole — LIFE — for this — for Daddy's — cock — I'm your — little — Korean — fucktoy — and I — CAN'T — STOP ♡♡♡—"
 
-She was crying. She could feel the tears on her face, mixing with the mascara and the spit and the mess of everything she used to be, and she was smiling while she cried, the heroin smile, and her hips hadn't stopped, hadn't slowed, and the cock was so deep inside her it felt like it had always been there, like her body had been designed around it, like every other moment of her life was the interruption and THIS was the default state — 
+She was crying and smiling and her hips hadn't stopped, hadn't slowed, and the cock was so deep inside her it felt like it had always been there, like her body had been designed around it, like fourteen days of the phantom had been the interruption and THIS — big white cock buried to the root — was the default state —
 
 ---
 
@@ -404,7 +408,9 @@ The first pulse of cum was a heat she felt in her stomach, a liquid pressure tha
 
 She came.
 
-Not an orgasm — a system failure. Every muscle in her body fired at once. Her cunt spasmed around the cock in contractions so hard they hurt, milking the cum out of it in thick pulses that she could feel filling her, warm and heavy and REAL, the most real thing in her life, the most real thing in any life, and her mouth was open and no sound was coming out because she was past sound, past language, past anything except the sensation of being FULL — full of cum and cock and bass and the complete, obliterating knowledge that this was who she was now. Not the actress. Not the wife. Not the face on the bus. This. This animal on a milk crate. This body impaled on a white cock behind a wooden panel. This thing that couldn't stop.
+Not an orgasm — an obliteration. Every muscle fired at once. Her cunt spasmed around the cock in contractions so hard they hurt, milking the cum out of it in thick pulses that she could feel filling her, warm and heavy and REAL, filling the place behind her navel, the deep place, the place that had been empty for fourteen days and was now FULL of Daddy's cum, and her mouth was open and no sound came out because she was past sound, past language, past anything except —
+
+*FULL. Full of cock. Full of cum. Daddy's cum inside me — deep — hot — the place that was empty — FULL — I'm FULL ♡♡♡♡♡ — big white cock filling me up — I never want it to leave — never — never — FULL —*
 
 ♡♡♡♡♡♡♡♡♡♡
 
@@ -440,7 +446,7 @@ Then she looked down.
 
 Yuna was curled on the floor behind the booth. The silk dress was ruined — dark with sweat and spit and cum and the sticky residue of whatever had been on the floor before she got there. Her cap was gone. It had come off during the riding, somewhere around the tenth song. Her hair was plastered to her face with sweat. Her mascara had traveled south in two dark tracks, and her lips were swollen, and her chin was glazed, and between her legs was a mess that would take three showers to address.
 
-She was smiling. The smile that didn't know it was smiling. The one he'd seen on her face in the fitting room and the costume closet and the hanbok shop and every other place she had let herself become what she was. The heroin smile. The addict's perfect high.
+She was smiling. The smile that didn't know it was smiling. The one Camille had seen on her face in the fitting room and the costume closet and the hanbok shop and every other place she had let herself become what she was. Fucked stupid and smiling about it. Full of cum and smiling about it. Already thinking about next week and smiling about that too.
 
 Camille crouched down. She put one hand under Yuna's arm and lifted. Yuna's legs didn't work — they folded twice before she got them under her, and even then she leaned into Camille's side at an angle that suggested she had forgotten how knees operated. Camille pulled the oversized jacket from where Yuna had dropped it and wrapped it around her, zipping it to her chin. Hiding the dress. Hiding the evidence. She pulled the mask up over Yuna's nose.
 
@@ -478,7 +484,7 @@ Yuna read it. Her eyes — wrecked, glazed, the pupils still blown — went to C
 
 Camille typed the reply with one hand. The other was on the back of Yuna's neck, proprietary, casual, the way you hold something that belongs to you and always will. 
 
-Yuna closed her eyes. She could still feel the bass in her teeth. She could still feel the cum inside her, warm and heavy and settling. Dohan would be asleep when she got home. She would shower. She would throw away the dress. She would lie down beside her husband with her hair wet and her body aching and the bruises on her hips shaped like fingerprints, and she would stare at the ceiling, and the thing behind her navel would start pulling again before she'd finished drying off.
+Yuna closed her eyes. She could still feel the bass in her teeth. She could still feel the cum inside her, warm and heavy and settling. Dohan would be asleep when she got home. He was always asleep. She would shower. She would throw away the dress. She would lie down beside a man she owed nothing to, with her hair wet and her body aching and the bruises on her hips shaped like Camille's fingerprints, and she would stare at the ceiling, and the thing behind her navel would start pulling again before she'd finished drying off.
 
 Next week.
 
