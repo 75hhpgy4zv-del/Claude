@@ -10,7 +10,7 @@ She was awake. Hand between her legs. Hips moving. The taste still on her tongue
 
 The number arrived before her eyes adjusted to the dark. Not a thought. A readout. Updating.
 
-*Thirteen days. You are — stop. Stop moving your hips. He's right there.*
+*Thirteen days. Cock. Big white — no. Stop. He's right there.*
 
 Dohan. Asleep. Arm above his head. Handsome. She knew he was handsome the way she knew the earth was round — a fact that existed at a distance, verified by others, having nothing to do with the wetness soaking through her underwear at — she checked the clock — 5:47 AM on a Monday because she'd been dreaming about the taste of another person's cock.
 
@@ -18,11 +18,9 @@ She pulled her hand out. The fingers were slick. The underwear was — she'd nee
 
 *Thirteen days.*
 
-She looked at Dohan. Tried to feel something. Pushed toward it the way you push toward a sneeze that won't come. He was right there. Warm. Present. His chest rising and falling. She could reach out and touch him and it would feel like —
+She looked at Dohan. His chest rising and falling. She could reach out and touch him and it would feel like — nothing. It had always felt like nothing. She just hadn't known what SOMETHING felt like until two months ago, until twelve inches of SOMETHING had rearranged her entire understanding of what a body could do to another body. He wasn't a bad husband. He was a prop husband. A man who'd married a surface and been happy with it and never once dug deeper. She didn't owe him anything.
 
-Nothing. Like pressing your palm against a wall. Like holding your own hand.
-
-*That's your husband. That man is your husband and you are lying next to him with — you have a BAFTA — you are thirty-one years old and you are a grown — the taste. The taste is — it's still — salt and the — the heaviness of it thickening against her tongue and the jaw ache, the GOOD jaw ache, the ache that means it's too big and you're taking it anyway and —*
+*Cock. Big white cock. The weight of it against her tongue, the heaviness, the way her jaw has to stretch to fit the head alone and the shaft is thicker and it keeps going, deeper, and the pre-cum dripping onto her tongue and the taste — the TASTE — salt and skin and sweet and she wants to gag on it right now, she wants it in her throat, she wants —*
 
 She got up. Quietly. He didn't stir.
 
@@ -46,13 +44,15 @@ Her eyes leaked. Not crying. Just — leaking. Her body producing fluid from eve
 
 She stood in front of the mirror.
 
-*'You are Park Yuna. You are the face of Sulwhasoo and Cartier and the Seoul Tourism Board. You are BAFTA-nominated. You are on the side of a bus in Gangnam. You are — your nipples are — they've been hard since day ten. Not arousal-hard. PAIN-hard. They hurt. Actual hurt, chafing against every bra, and you can't — the taste. Fuck. The taste is back. Salt and the — the head, the slit, the — stop. STOP. You are looking at yourself in the mirror and you are a — you are fine. Your skin is good. Your eyes are clear. Nobody can tell. Nobody can — '*
+Her nipples were hard. They'd been hard since day ten. Not arousal-hard — PAIN-hard, chafing against every bra, and looking at them in the mirror she could see Camille's mouth on them, the flash so vivid she flinched — Camille's lips closing around the left one and PULLING and the sound Yuna had made, the sound she makes every time, and the cock pressing against her stomach while Camille sucked and —
 
-She bit her cheek. The raw spot opened. She tasted blood and for one second the taste of blood replaced the ghost-taste and the relief was so acute she almost laughed.
+*Cock. Big. White. Cock.*
 
-Nobody could tell. That was the thing. Thirteen days of this and she looked FINE. She looked like she'd slept seven hours because she had. She looked like a woman with her life arranged in the particular way that signaled success. Good marriage. Good career. Good apartment. Good skin.
+Her brain did this now. Just — SCREAMED it. Mid-thought, mid-sentence, mid-anything. The words arriving like a slap, involuntary, her whole interior monologue hijacked by two words that meant everything and solved nothing.
 
-Inside: a cunt that wouldn't stop clenching around nothing. Hands that shook. Nipples that ached. A raw place in her cheek. A taste on her tongue that wouldn't leave. A wetness that wouldn't dry. And the pulling. The constant, grinding, pulling.
+She bit her cheek. The raw spot — she'd been biting the same spot since day eight. It opened. She tasted blood and for one second the taste of blood replaced the ghost-taste and the relief was so acute she almost laughed.
+
+Nobody could tell. Thirteen days of this and she looked FINE. Good skin. Clear eyes. The surface held. Underneath: a cunt that wouldn't stop clenching around nothing. Nipples that ached for a mouth that was thirty minutes across Seoul. A taste on her tongue that wouldn't leave. A wetness that wouldn't dry. And the pulling. The constant, grinding, pulling toward Camille's cock.
 
 She brushed her teeth. Changed her underwear. Applied the Sulwhasoo. Became the surface.
 
@@ -72,27 +72,31 @@ And Yuna was gone.
 
 Not a transition. Not a drift. GONE. One second she was in the meeting room and the next she could taste the pre-cum and the salt and her tongue was pressed against the roof of her mouth and she could feel the weight on her tongue, the thickness, the jaw stretch, and her cunt clenched under the table — a full spasm, hard enough that she shifted in her chair — and she could smell herself, she was sure she could smell herself, the wetness that had been building since she sat down, and could they — could everyone at this table smell what she —
 
-She was on her knees. Not HERE — she was in the meeting room, she was at the TABLE — but she was on her knees on a fitting room floor and her jaw ached and the cock was hitting her throat and the pre-cum was — she could TASTE it, right now, sitting at a conference table in Sangam-dong with six professionals, she could taste pre-cum on her tongue and her mouth was watering, actually producing saliva, her body preparing for something that was thirty minutes across Seoul and thirteen days away —
+She was on her knees. Not HERE — she was in the meeting room, she was at the TABLE — but she was on a fitting room floor and the cock was in her mouth and she could taste the pre-cum, right now, sitting at a conference table in Sangam-dong, her mouth was watering, actually producing saliva, and the phantom was so thick on her tongue she could feel the stretch in her jaw and her cunt was soaking through her underwear and the word filling her whole skull was —
 
-"Yuna-ssi?"
+*COCK. COCK. COCK. Big white —*
 
-She blinked. The director was looking at her. Everyone was looking at her.
+"Yuna-ssi? Your line."
 
-"Sorry. Lost my place."
+"Co—" She caught it. Her mouth had started to form the word. The actual word. At a TABLE READ. In front of the DIRECTOR. "Sorry — could you repeat the cue?"
 
-She found the line. Page twelve. Her hands were shaking. She pressed them flat against the script. Read the line. Perfect delivery. Nobody noticed the five seconds she'd been gone. Or three seconds. Or ten. She didn't know how long. She didn't know. She could still taste it.
+The writer read the preceding line. Yuna found her place. Page twelve. Her hands were shaking. She pressed them flat against the script. Read the line. Perfect delivery. Her voice steady, her diction crisp, and nobody in the room knew that three seconds ago Korea's sweetheart had almost said COCK in a professional meeting because a French woman's dick had colonized every synapse in her brain.
+
+She could still taste it. Her underwear was wet.
 
 *Thirteen days. Four hours.*
 
 She ate lunch at her desk. Or tried. A salad from the convenience store. She got through three bites. The hunger was there — she hadn't eaten a proper meal in days, maybe three days, maybe longer — but the hunger registered as noise under the REAL hunger, a signal too faint to compete with the one her body was actually broadcasting. She put the fork down. Picked up the script. Read a line. The cock. Read another line. The taste. Read —
 
-*'You haven't eaten. You should eat. You should — the weight of it. On her tongue. The fullness, the — EAT. Eat the salad. You are at WORK. You are — thirteen days — you are sitting at a desk in a production office and you can feel yourself getting wet through your — '*
+*Big white cock. The weight of it on her tongue. The fullness. The way it stretches her open and the DEPTH, God, the depth, how it reaches the place nothing else can reach and fills her and she can feel it in her stomach and —*
+
+She was wet. Again. Still. Always. Sitting at a desk in a production office with a salad she couldn't eat because the only thing she was hungry for was twelve inches and thirty minutes across Seoul.
 
 She closed the script. Went to the bathroom. Changed her underwear. First pair since this morning. She'd brought extras in her bag — three in a ziplock, because she'd learned by day five that one spare wasn't enough. She changed in the stall and shoved the wet pair into a plastic bag she kept in her purse for this purpose and the fact that she had a SYSTEM for this, a LOGISTICS for managing the volume of fluid her body produced in response to a person she hadn't seen in almost two weeks —
 
-*'You are managing your wetness like a supply chain. You have a bag. In your purse. For your underwear. Because you can't stop — '*
+Her cunt clenched. Random. Not triggered by anything. It just did this now — a spasm, the muscle squeezing around nothing, asking for the phantom, asking asking asking. She braced her hand against the stall wall and breathed through it and the phantom was so vivid she could feel the curve, the heat, the ridge of the head dragging against her walls on the pullback before the thrust that would —
 
-The thought didn't finish. Her cunt clenched. Random. Not triggered by anything. It just did this now. A spasm from a muscle that had been contracting around nothing for thirteen days and had not learned — would not learn — that the nothing was not going to become something just because the muscle kept asking.
+*COCK.*
 
 *Thirteen days. Five hours.*
 
@@ -102,7 +106,7 @@ The photographer said "Hold that expression" and she held it and the expression 
 
 Between setups: bathroom. Stall. Locked door. Soaked through AGAIN — the second pair today and it was barely 3 PM. She pressed her forehead against the stall door. The cool laminate. Not as good as tile but something.
 
-*'Four pairs of underwear. You have gone through four pairs of underwear today and it is three o'clock in the afternoon and you are — you are Park Yuna — you are — the taste — STOP.'*
+*Cock. The taste. The stretch. Cock. Her on her knees and the hands in her hair and the cock so deep she can't breathe and doesn't want to — big white cock in her little Korean mouth and — STOP. She's at WORK.*
 
 She went back to the shoot. Smiled. Hit her marks. Delivered the line in Korean and then in English for the international cut. Her English was perfect. Her English was always perfect.
 
@@ -112,7 +116,11 @@ Manager Kim met her in the hallway after. "You look tired, Yuna-ssi."
 
 The lie was so thin she could feel air through it. But Manager Kim nodded because Manager Kim saw what everyone saw: the surface. Good skin. Clear eyes. BAFTA-nominated composure. The performance inside the performance inside the performance.
 
-In the car home she pressed her thighs together and stared out the window at Seoul sliding past and tried to think about dinner. The cock. She tried to think about the script. The stretch. She tried to think about what to wear tomorrow. The taste. Every thought hijacked within three seconds, a channel that kept switching back to the same station, the only station, the one her body had tuned to and would not let her change.
+In the car home she pressed her thighs together and stared out the window at Seoul sliding past.
+
+*What should I make for — cock. Big white cock in her mouth, the weight of it on her tongue, the — NO. Dinner. What should I — the stretch. The fullness. The way it hits the — DINNER. Think about dinner. Think about — the cum. The taste of the cum. Thick and hot and — *
+
+Every thought hijacked within three seconds. Every attempt to think about anything — dinner, the script, tomorrow's schedule — derailed by COCK. Her brain had one channel and it was playing pornography on a loop and she couldn't change it.
 
 Her phone in her hand. Camille's contact. She opened the thread. No messages in thirteen days. The last exchange — Yuna saying *thank you for today* after the shopping trip, Camille not responding — stared back at her. She typed nothing. She stared at the blinking cursor and her thumb hovered over the keyboard and the things she wanted to type would fill the screen and she couldn't type any of them.
 
@@ -124,9 +132,9 @@ She locked the phone. Pressed her thighs together. Bit her cheek.
 
 Dohan cooked.
 
-He cooked well. He did most things well — acting, cooking, dressing, being in the world. He'd made jjigae and the apartment smelled like doenjang and garlic and sesame oil and she came through the door and the smell should have made her hungry and instead it registered as NOISE — flavor-data arriving at a processing center that was already at capacity, running a single program that consumed all available bandwidth: *want, want, want, want.*
+He cooked well. He did most things well — acting, cooking, dressing, performing the role of husband for the same cameras he performed everything else for. The apartment smelled like doenjang and garlic and she came through the door and the smell was just — there. Noise. Her body had room for one appetite and it wasn't for jjigae.
 
-"You're late." He kissed her cheek. His lips were warm and dry and she felt them the way she felt the weather. Information. Not sensation.
+"You're late." He kissed her cheek. His lips were warm and dry and she felt them the way she felt a doorknob. Contact without content. He'd been kissing her cheek like that for seven years — the same angle, the same pressure, the same performance of domesticity. He was so good at performing marriage that he'd never bothered having one.
 
 "The shoot ran over."
 
@@ -150,9 +158,9 @@ He reached across the table. Took her hand. His hand was warm and she tried — 
 
 It was like trying to hear a whisper while a siren was going off. The siren was thirteen days of nothing in a body that needed everything. His hand was the whisper. And the siren was louder. The siren was always louder.
 
-She smiled at him. The actress smiled. He squeezed her hand and she squeezed back and the whole exchange was a performance so polished she could have won a second BAFTA for it.
+She smiled at him. He squeezed her hand and she squeezed back and neither of them felt anything and both of them were fine with it. This was the marriage. This had always been the marriage — two beautiful people performing love for an audience that included themselves. He'd chosen this. He'd chosen the surface over the substance and she'd gone along with it because the surface was easy and the substance had never existed and she owed him nothing for finding, outside this apartment, what he'd never tried to build inside it.
 
-After dinner he kissed her and his hand went to her waist and she knew what was happening and part of her — a small, strategic, desperate part — thought: *maybe. Maybe if he — maybe the contact will — maybe it'll be enough to — just for tonight — just to take the edge off the —*
+After dinner he kissed her and his hand went to her waist and she thought: *maybe his cock will — maybe if I close my eyes and think about HER cock I can — maybe the contact will take the edge off —*
 
 They went to bed.
 
@@ -164,19 +172,15 @@ She focused. Concentrated. He was inside her and she was trying to find the sens
 
 *'I can't find it. He's inside me and I can't — where is — it's right there, he's right THERE, and I can't — I need — not this. Not him. The other — '*
 
-She cut the thought off. He was inside her. Her HUSBAND was inside her. Thinking about — while he was — that was —
+She didn't cut the thought off. She LEANED into it. Eyes closed. Dohan moving above her. And behind her eyelids — Camille. The weight. The shoulders blocking out the light. The cock pushing in, the first three inches already thicker than everything Dohan had, and then the FOURTH inch and the fifth and the sixth and the stretch, the stretch that made her gasp, that made her claw at the sheets, and the seventh and eighth and deeper, DEEPER, into the place behind her navel, the place Dohan's cock had never reached, the place that only existed because Camille had found it and now it ached for her and ONLY her —
 
-But the thought was already there. The phantom was already there. The shape filling the space his cock occupied. The twelve inches overlaid on the — whatever he was. Five? Six? It didn't matter. It didn't MATTER because the number wasn't the point, the point was that her body had been recalibrated and everything below the new setting registered as nothing and he was below the new setting and she couldn't feel him and she was faking the orgasm before she'd decided to fake it.
+Her hips started moving. Really moving. Under Dohan, but not FOR Dohan. For the phantom. For the twelve inches she was building behind her eyelids, inch by inch, and she was so wet the sounds were obscene and Dohan probably thought the sounds were for him and she didn't care. She didn't care.
 
-The performance happened automatically. The sounds came out right — breathy, building, the small gasp at the peak that she'd perfected over seven years of marriage and three years of acting school before that. Her cunt clenched around him and the clench was real but the clench wasn't for him. The clench was for the phantom. For the twelve inches of nothing that filled the space around the five or six inches of something, and the something was so much less than the nothing that she could barely — 
-
-Her mind was on a fitting room floor in Cheongdam. On her knees. Jaw aching. Looking up. The cock so deep in her throat she couldn't breathe and not WANTING to breathe, wanting only more, deeper, the gag and the stretch and the tears running down her face and the taste, always the taste —
-
-And her hips were moving. Under Dohan. Her hips were moving and the motion was real but the motion was for the phantom and she was fucking the ghost through her husband's body and the sounds she was making were for the ghost and the wetness was for the ghost and every part of this performance — the arch of her back, the grab at the sheets, the whispered *yes* — was for a body that was somewhere in Yongsan, thirty minutes away, asleep or awake or fucking someone else and she couldn't think about that, she COULDN'T think about that —
+The faked orgasm came easily — the sounds, the arch, the gasp. Seven years of practice. But inside the performance something real was happening. Behind her eyelids, Camille was THERE — the hands pinning her wrists above her head, the cock bottoming out, that growl, low in the chest, not a word, not a sound she chose to make, and Yuna's cunt clenched HARD and that clench was real, that was for Camille, and she could feel the phantom filling her — the girth, the depth, the way it pressed against the place that made her vision white out — and she whispered *yes* and the yes was for the phantom and her hips were grinding up into Dohan's body but through Dohan's body into the ghost and the ghost was bigger and harder and DEEPER and she almost came, ALMOST, the real thing, the deep thing, but the phantom dissolved because it wasn't real, it wasn't THERE, and she was left with Dohan's five inches and the absence of the rest.
 
 *Elsewhere. Always elsewhere.*
 
-He finished. Kissed her forehead. Rolled off. His cum on her inner thigh, warm and then cooling. The sensation of someone else's fluid on her skin — and it should have been intimate, it should have been the evidence of a husband who loved her, and instead it reminded her of another warmth, another thickness, the ropes of it across her face and her throat and her tongue and the VOLUME, the impossible volume, and Dohan's cum was a tablespoon on her thigh and the phantom cum was — 
+He finished. Kissed her forehead. Rolled off. His cum on her inner thigh, warm and then cooling. A trickle. And her body — treasonous, ruined, recalibrated — compared it instantly. Camille's cum across her face, her throat, her tits, the ROPES of it, hot and thick, so much she choked on it, so much it dripped off her chin and pooled in her collarbones, and the taste of it, and the way Camille kept coming and COMING, and Dohan's tablespoon on her thigh was — 
 
 She pressed her thighs together. Clenched her jaw. The pulling so bad she could feel it in her teeth.
 
@@ -188,7 +192,7 @@ She pressed her thighs together. Clenched her jaw. The pulling so bad she could 
 
 The count repeating. Stuck. A skipping record.
 
-Dohan fell asleep within minutes. He always did. Clear conscience. Simple appetites. A man who wanted what he had and had what he wanted and slept soundly because the distance between desire and satisfaction was short and the bridge was well-built.
+Dohan fell asleep within minutes. He always did. Satisfied with what he'd performed. A man who'd never known what it meant to WANT something — to want it so badly your body stopped working, your brain stopped forming sentences, your cunt clenched around the ghost of something that wasn't there. He didn't know because he'd never felt it and he'd never tried to make her feel it and she didn't owe him anything for that.
 
 She lay next to him and stared at the ceiling and the pulling was the worst it had been. Worse than the mornings. Worse than the bathroom floor. Worse than the five-second blackouts during script readings. Because the sex had reminded her body — not of what it was getting but of what it WASN'T. The comparison. His body against the phantom. The real against the ghost. And the ghost won. The ghost always won. The ghost was winning so badly it wasn't even a contest.
 
@@ -282,9 +286,9 @@ The first orgasm came fast — thirty seconds, her body so wound up from the tex
 
 Gone. The orgasm ended and the depth closed and the nothing rushed back in and the nothing was SHAPED and the shape was twelve inches and the emptiness after was worse than before because she'd almost —
 
-She went again. Harder. Fingers inside herself this time, two, curling up, trying to reach the place, the PLACE, and she couldn't reach it because her fingers were too short and the place was too deep and the angle was wrong and the thickness was wrong and everything was wrong except the thought — *tomorrow, tomorrow, she'll be in a room and I'll be in the room and I can — I can touch her — I can kneel — I can —*
+She went again. Harder. Fingers inside herself this time, two, then three, trying to fill the space, trying to approximate the THICKNESS, and she couldn't, her hand was too small, and she was fucking herself on the bathroom floor imagining Camille's cock pushing in — the fat head stretching her open, the shaft following, inch after inch, the sixth, the eighth, the tenth, deeper than Dohan had ever been, deeper than anyone had ever been, and the fullness, the FULLNESS, and Camille's hand on her throat and Camille's voice saying *good girl* and —
 
-She came again. The orgasm ripped through her and her cunt clenched on her fingers and the clench was looking for the phantom and the phantom wasn't there but tomorrow it would be, TOMORROW it would be, and the sound she made was not a moan, it was a whimper, a small broken animal sound in the dark bathroom at 2 AM, and her thighs were shaking and her hand was shaking and the wetness was everywhere — her hand, her thighs, the tile beneath her —
+She came. HARD. The orgasm ripped through her cunt and into the deep place and for one white-hot second the phantom was REAL — she could feel the cock, every inch of it, stretching her, filling her, the head pressing against her cervix — and she bit down on her own wrist to keep from screaming because Dohan was twenty feet away and the sound that wanted to come out was a name, a French name, and her thighs were shaking and the wetness was everywhere — her hand, her thighs, the tile, her wrist where she'd bitten it —
 
 2:17 AM. On the bathroom floor. Hand wet. Thighs wet. Face wet.
 
@@ -300,15 +304,17 @@ She held it against her body. The silk was cool against her skin — she was sti
 
 Not a decision. An understanding. Her body had already decided. Her body had been deciding since the text landed — a plan assembling itself in her muscles, her nerve endings, her cunt — a series of steps that began with the dress and ended with —
 
-She could see it. The ending. Not a thought — a VISION, physical, projected directly onto her nervous system: her knees on a floor. A sticky floor. The silk hiked up. Looking up. The jaw ache. The —
+She could see it. Not a thought — a FLASH, projected directly onto her body: her knees on a sticky floor. The silk hiked to her waist. Nothing underneath. The cock right THERE, eye-level, hard, the foreskin pulled back, the head swollen and wet, and her mouth opening, and the taste, and the stretch, and Camille's hand in her hair —
 
-Her cunt clenched so hard her knees buckled.
+Her cunt clenched so hard her knees buckled. She grabbed the closet door frame. The dress still in her other hand, the silk crushed in her fist.
 
-She pressed her forehead against the closet door. Breathed. The vision pulsing behind her eyelids. Her thighs pressed together. The wetness — she'd just come twice and she was already — AGAIN —
+*Cock. Big white cock. Tomorrow. In her mouth. In her cunt. Everywhere. Filling every hole in her body until she can't think, can't speak, can't remember her own name in either language —*
 
-*'You're going to wear this dress. With nothing underneath. To a basement club in Itaewon. On a Tuesday. Because a woman you've known for two months texted you five words and your body has already decided what it's going to do and you haven't even — you haven't decided ANYTHING — your body — '*
+The vision wouldn't stop. She pressed her forehead against the closet door and her hips were rocking — not a choice, a REFLEX — and she was going to come again, standing up, holding a dress, from nothing, from the THOUGHT ALONE —
 
-The thought broke. It always broke. Every thought broke now, at the same point — the point where the craving cut through. Three sentences was the maximum. Maybe four. Then the taste or the phantom or the clenching interrupted and the thought dissolved and she was back inside the wanting and the wanting was the only thing that was real.
+She breathed. Forced herself still. Her thighs trembling. Her cunt clenching on nothing, asking, asking, asking.
+
+*Tomorrow.*
 
 *Twenty-one hours. Thirteen minutes.*
 
@@ -340,7 +346,7 @@ She pressed her thighs together. The fresh underwear was already wet.
 
 *Nineteen hours. Fifty-nine minutes.*
 
-Dohan breathed beside her. Steady. Even. The breathing of a man whose wife was next to him in the dark, soaking through her underwear, clenching around twelve inches of nothing, counting the minutes until she could kneel on a sticky floor in a basement in Itaewon and —
+Dohan breathed beside her. Steady. Even. Irrelevant. In nineteen hours she was going to kneel on a sticky floor in a basement in Itaewon and take a big white cock down her throat until she gagged and she was going to love every second of it and she was going to come so hard she forgot his name and she felt nothing about that. Nothing at all.
 
 *Nineteen hours. Fifty-eight minutes.*
 
