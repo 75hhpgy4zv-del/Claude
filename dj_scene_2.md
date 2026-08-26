@@ -134,7 +134,7 @@ She went DEEP immediately. Gagged, pulled back, went DEEPER. Seven days of repla
 
 SCHLURP.
 
-Camille adjusted an EQ knob with one hand. Threaded the other into Yuna's hair. "You practiced."
+Camille adjusted an EQ knob with one hand. Threaded the other into Yuna's hair — the weight of it, the possessiveness, the grip tightening at the roots and the tightness running straight down into her cunt — scalp to spine to cunt, one pull. "You practiced."
 
 ♡
 
@@ -206,21 +206,27 @@ SCHLURP. SCHLURP.
 
 She could feel the pre-cum pooling on her tongue. Salty and thick and she swallowed it and wanted more and went deeper and swallowed again and her cunt was DRIPPING, she could feel it running down her inner thighs, soaking into the knees of her boots, and she was going to leave a puddle on this floor before the cock was even inside her and she didn't care.
 
-She pulled off. Pressed her lips against the shaft — the thick vein along the underside — and said it out loud:
+She pulled off. Pressed her lips against the shaft — the thick vein along the underside, hot and pulsing against her mouth — and said it out loud:
 
 "Big white cock."
 
-Words. Into the skin. Into the COCK. The phrase that had hijacked her brain in meetings and table reads and showers and the back seats of taxis, finally said out loud to the thing it had always been about.
+She heard it. Her own voice. Saying the words she'd been screaming inside her skull for twenty days. Out LOUD. Into the skin of the cock she was kissing. And she —
 
-"Big. White. Cock."
+She laughed.
 
-Each word a kiss against the shaft.
+Giggly. Breathless. Cock-drunk. She laughed with her lips pressed against the shaft and the laugh vibrated through twelve inches and the cock TWITCHED against her mouth and that made her laugh HARDER — a giddy, delighted, slightly unhinged laugh, the laugh of a woman who'd just heard herself say the quiet part out loud and found it the funniest thing in the world.
 
-She took it back in. Deep. Past the gag. Held it and breathed and felt the head pressing against the back of her throat.
+"Big. White. Cock." Each word a wet kiss against the shaft, nuzzling it, her cheek sliding along the length. "I love big white cock, Daddy." Laughing. Kissing the head. Licking the pre-cum off the slit and saying it INTO the taste: "I'm a slut for big white cock."
 
-SCHLURP.
+The cock jumped. Throbbed HARD against her face. And the throb sent a jolt straight through her cunt and the plug shifted and she moaned and laughed at the same time — this breathless, cock-stupid giggle that she couldn't stop because she was a BAFTA-nominated actress on her knees in a DJ booth telling a cock she loved it and she'd never been happier and the absurdity was making her WET —
 
-Pulled off. Breathing hard. "Daddy."
+"Daddy's little Korean slut loves big white cock." Pressing her face against the shaft, rubbing her cheek along it, marking herself with pre-cum and spit. "I'm so stupid for it, Daddy. I can't THINK. I trained all week — I put a plug in my ass at NOON — because I'm a dumb little slut for big white —"
+
+She took it back in. Deep. Past the gag. Held it and breathed and pulled off and said, quieter now, lips against the wet head, almost a whisper:
+
+"Bleach me, Daddy."
+
+The cock SURGED. She felt it — the whole shaft jumping, pulsing, and Camille's hand YANKED her hair and she gasped and laughed and took it back in, deep, SCHLURP, and pulled off grinning —
 
 "Daddy, I trained all week for what comes after this."
 
@@ -242,9 +248,9 @@ One full beat of dead air. The hi-hat hanging, the bass suspended, one beat of n
 
 The composure cracked. For one second Camille looked at what was being offered and something crossed that face — something Camille would never say out loud because Camille NEVER said it out loud.
 
-Then the hand returned to the mixer. The other hand tightened in Yuna's hair. "Finish what you started."
+Then the hand returned to the mixer. The other hand tightened in Yuna's hair — the grip sending electricity from her scalp straight down her spine and into her cunt, a direct line, a circuit that closed every time those fingers did. "Finish what you started."
 
-She took the cock back in. Deep. Past the gag. The head pressing against the back of her throat and her eyes rolling back and —
+The command landed in her cunt before her brain. She took the cock back in. Deep. Past the gag. The head pressing against the back of her throat and her eyes rolling back and —
 
 ♡♡
 
@@ -266,7 +272,7 @@ And simultaneously, the cock pushed in.
 
 The head pressed through and her vision went WHITE.
 
-Not pain — DENSITY. Every nerve in her body firing at once. Her cunt clenching around nothing and her ass opening around EVERYTHING and —
+Not pain — DENSITY. Every nerve in her body firing at once. And the HEAT — the cock so hot inside her, blood-warm, living, radiating into places that had never felt heat before — her cunt clenching around nothing and her ass opening around EVERYTHING and —
 
 *'BIG — white — COCK — in my — in my ASS — oh God — oh FUCK — the stretch — the STRETCH —'*
 
@@ -280,9 +286,9 @@ She bit her forearm. She could feel EVERYTHING — the ridge of the head moving 
 
 Four inches. The ridge clearing the inner ring and the shaft widening and widening and her body stretching around it and the stretch wasn't stopping, it was CONTINUOUS, one long escalating openness and the cock was the widest thing she'd ever — wider than the plug — WIDER — and still going —
 
-*'The curve — I know the curve — but from HERE it's — oh — it's finding new places — places I didn't know I HAD — the plug never went this deep — the plug never CURVED — oh Daddy — it's pressing against — against something — something DEEP —'*
+*'The curve — I know the curve — but from HERE it's — oh — it's finding new places — places I didn't know I HAD — the plug never went this deep — the plug never CURVED — and the HEAT — the cock is RADIATING — I can feel the warmth spreading through my pelvis — oh Daddy — it's pressing against — against something — something DEEP —'*
 
-Five inches. Six. Every inch a new negotiation between her body and the cock, her body stretching and accepting and the acceptance running all the way up her spine and turning her brain to static. She could feel the curve of the shaft pressing against her inner wall and the pressure was sending pulses into her cunt, into her clit, into the thing behind her navel — the cock in her ass and her CUNT responding, her cunt clenching around nothing, JEALOUS, demanding its turn —
+Five inches. Six. Every inch a new negotiation between her body and the cock, her body opening and accepting and the acceptance blooming through her — waves of warmth spreading outward from the shaft through her pelvis, her stomach, her thighs — and her brain turning to static. She could feel the curve of the shaft pressing against her inner wall and the pressure was sending pulses into her cunt, into her clit, into the thing behind her navel — the cock in her ass and her CUNT responding, her cunt clenching around nothing, JEALOUS, demanding its turn —
 
 "Oh — fuck — it's — so much — Daddy — it's so MUCH —"
 
@@ -326,9 +332,19 @@ PLAP. PLAP. PLAP. PLAP.
 
 ♡♡
 
+"White — owned — I'm — Daddy's white-owned — Korean — ♡ — my MARRIED — Korean ass — BELONGS to — big white COCK —"
+
+PLAP. PLAP. PLAP. PLAP.
+
+She was BRAGGING. She could hear herself bragging — cock in her ass and performing her own corruption and each word making her wetter and each wet making her say something worse — and the cock THROBBED every time she said WHITE, she could feel it pulsing harder, swelling inside her, and the swelling made her clench and the clenching made her say —
+
+"Ruined — for Korean men — ruined for — EVERYONE — except — Daddy — Daddy's cock is the — ONLY — cock that — REACHES — ♡♡♡ —"
+
+PLAP. PLAP. PLAP. PLAP.
+
 "And it's — not ENOUGH — the plug wasn't — enough — nothing is big — enough — except THIS — except — oh — OH —"
 
-She came again. A convulsion that started in her ass and radiated outward through her cunt and her thighs and her stomach — her whole body clenching around the cock — and Camille's hand tightened on her hip and Yuna could feel the cock PULSE inside her, responding to the pressure, and Camille could feel her orgasm from the INSIDE —
+She came again. A convulsion that started in her ass and radiated outward through her cunt and her thighs and her stomach — warmth spreading from the cock through her pelvis in slow waves — her whole body clenching around the cock — and Camille's hand tightened on her hip and Yuna could feel the cock PULSE inside her, responding to the pressure, and Camille could feel her orgasm from the INSIDE —
 
 There was a third step. The plan had three steps. She was on the — which one was this — the second? The — her ass — this was the ass step — so the next one was — the word was gone again. The next step was the one where the cock goes in the — in the other — the DEEP one — the one behind her navel — she couldn't remember what that part of her body was CALLED. She'd had a word for it in the taxi. She'd had a whole PLAN. Now she had COCK in her ASS and the plan was just shapes and heat and the word for the next step was ♡ —
 
@@ -372,7 +388,7 @@ PLAP PLAP PLAP PLAP PLAP
 
 Camille came.
 
-Deep. In her ass. She felt each pulse — thick, distinct, the heat of it, the VOLUME.
+Deep. In her ass. She felt each pulse — thick, distinct, hotter than the cock itself, scalding, flooding the places the cock had just mapped —
 
 One. Two. Three. Four. Five. Six.
 
@@ -432,11 +448,13 @@ The thing behind her navel CAUGHT and her mouth opened and a sound came out that
 
 ♡
 
-She sank down. Inch by inch. And the stretch was HEIGHTENED — her body already opened by the anal, everything more sensitive, more swollen, every nerve running at a voltage they weren't rated for. She could feel the head pressing against her cervix and the PUSH — the thing behind her navel, the deep place, the place the phantom had been screaming about for seven days — the cock HEAD hitting it and the place GRABBING the cock and pulling and her body arched and —
+She sank down. Inch by inch. The cock stretching her open — and the stretch was PLEASURE, pure pleasure, fullness that made her body grip the shaft and the shaft fill her back and the filling and the gripping feeding each other in a loop that tightened with every inch. Everything HEIGHTENED — her body already opened by the anal, everything more sensitive, more swollen, every nerve running at a voltage they weren't rated for. She could feel the head pressing against her cervix and the PUSH — the thing behind her navel, the deep place, the place the phantom had been screaming about for seven days — the cock HEAD hitting it and the place GRABBING the cock and pulling and her body arched and —
 
 *'THERE — right THERE — oh God — the deep place — it's — ♡♡♡ — seven days of the phantom and the real thing is so much MORE — the phantom was a SHADOW — this is the SUN —'*
 
-The curve of the shaft against her front wall. The fullness in her stomach. The cum still inside her ass — she could FEEL it, the cum sloshing with each inch of vaginal cock, and her ass was full and her cunt was filling and the two fullnesses were pressing against each other THROUGH the wall between them and the pressure was —
+The curve of the shaft against her front wall — pressing, dragging, the ridge of the head catching her G-spot on every micro-shift and the catch sending heat blooming through her pelvis. The fullness in her stomach. The cock THROBBING inside her — she could feel each throb, each pulse of blood through the shaft, and the throbs were keeping time with Camille's heartbeat and her cunt was gripping in time with the throbs and —
+
+The cum still inside her ass — she could FEEL it, the cum sloshing with each inch of vaginal cock, and her ass was full and her cunt was filling and the two fullnesses were pressing against each other THROUGH the wall between them and the pressure was —
 
 *'Both — BOTH — Daddy's cum in my ass and Daddy's cock in my cunt — I can feel them pressing against each other INSIDE me — the cock and the cum — through the wall — oh God — I'm so FULL — I've never been this full — both holes — BOTH HOLES — I was MADE for — big white cock — I was made for big white COCK —'*
 
@@ -448,7 +466,9 @@ What was her name. Yuna. Yuna — something. Park? No. Park was Dohan. Park Doha
 
 She rode.
 
-Her hips knew the rhythm. Her thighs knew the angle. Seven days of this exact motion. And the cock inside her — both INSIDE her, the cum in her ass shifting with every downstroke, the cock in her cunt hitting the deep place on every downstroke, and she was two kinds of full and the fullnesses were talking to each other through the wall of flesh between them and the conversation was making her STUPID —
+Camille's hands on her hips — the grip proprietary, fingers sinking into the flesh, and each fingerprint burned and each burn said MINE and the word MINE pulsed through her cunt. Camille's stomach against hers — hard abs, slick with sweat, the heat between their bodies a furnace — and her nipples were dragging against the tank top with every stroke and the friction shot sparks from her chest to her cunt and back. Camille's breath on her neck — hot, controlled, the restraint in it, and the restraint was the hottest part because the restraint meant Camille was holding back and the holding-back meant there was MORE —
+
+Her hips knew the rhythm. Her thighs knew the angle. Seven days of this exact motion. And the cock inside her — both INSIDE her, the cum in her ass shifting with every downstroke, the cock in her cunt hitting the deep place on every downstroke — and she could feel Camille's heartbeat THROUGH the cock, pulsing inside her, a second heartbeat in her cunt — and she was two kinds of full and the fullnesses were talking to each other through the wall of flesh between them and the conversation was making her STUPID —
 
 PLAP. PLAP. PLAP. PLAP.
 
@@ -467,6 +487,24 @@ She put her mouth against Camille's neck and the words fell out:
 She came. Squirting between them — soaking Camille's tank top, her own crop top, the mixer behind her. Her vision whited out. Her hearing went. Nothing except the cock and the depth and the thing behind her navel —
 
 ♡♡♡
+
+She kept riding through the orgasm and the word surfaced — the word from the group chat, the word Soyeon-unnie used, the word that meant OWNED and CLAIMED and RUINED — and she'd whispered it during oral and the whisper had been growing inside her through anal and now it was HERE, full-throated, and she was SCREAMING it:
+
+"BLEACH me — Daddy — BLEACH your — Korean actress — ♡♡♡ —"
+
+PLAP. PLAP. PLAP. PLAP.
+
+"I'm getting — BLEACHED — in a BASEMENT — on a milk CRATE — and I don't — want to — STOP —"
+
+She was laughing. Screaming and laughing and riding. The whisper from oral had become a SCREAM and the scream was making her cum — the word BLEACHED hitting her cunt and the cock hitting her cunt and the two hitting at the same time and each hit making her say something WORSE —
+
+"DADDY'S — BLEACHED — KOREAN — CUMSLUT — riding — Daddy's cock — in front of — four hundred — people — and I LOVE it — I LOVE being — Daddy's bleached — Korean — FUCKTOY — ♡♡♡ —"
+
+She came AGAIN. The word BLEACHED detonating inside her — the contrast between what she was in public and what she was RIGHT NOW and the contrast was the hottest thing she'd ever felt and she was ARTICULATING the contrast and each articulation made her cum HARDER —
+
+"WHITE-OWNED — Korean — FUCKTOY — that's — me — that's — ♡♡♡ — BLEACH ME DADDY —"
+
+♡♡♡♡♡
 
 Camille's arm reached past her. Grabbed the mic. Voice level, amused, while Yuna convulsed on her lap: "If this track sounds different tonight it's because my equipment is very wet."
 
@@ -524,7 +562,9 @@ Camille broke.
 
 Both hands off the decks. The track looped — the same eight bars, unattended. Camille STOOD. Rose from the milk crate with Yuna still impaled, hands under her thighs, lifting her, and pinned her against the back wall of the booth. Standing. Below the panel line but barely — Yuna's head inches from the top edge, her hair catching the LED light.
 
-Fingers digging bruises into her thighs. Twelve inches driving UPWARD and the angle hit the thing behind her navel from BELOW and —
+Camille's body flat against hers — chest-to-chest, the heat of Camille's skin burning through the tank top, hard abs pressing into her stomach, sweat slicking the space between them. She was PINNED. Trapped between the wall and six-two of muscle and cock and she couldn't move and she didn't WANT to move because being held was its own kind of penetration — Camille's arms around her and the cock inside her and every inch of her body CONTAINED —
+
+Fingers digging bruises into her thighs — not just bruise-tight but HOLDING, the specific sensation of being exactly where Camille wanted her, unable to shift, unable to squirm, held OPEN and held DOWN and the helplessness making her cunt grip the cock so hard she saw white. Twelve inches driving UPWARD and the angle hit the thing behind her navel from BELOW and —
 
 *'SCREAM — I can't — the DEPTH from this angle — oh — DADDY — it's hitting the deep place from UNDERNEATH — and gravity is pulling me DOWN onto it — every thrust — DEEPER — I can feel it in my RIBS —'*
 
@@ -538,11 +578,15 @@ She tried to count the strokes and couldn't. She tried to count to THREE and cou
 
 She came. Squirting so hard it soaked the wall behind her and ran down the concrete and the scream ripped out of her and the bass ALMOST covered it but not quite and someone in the front row definitely heard that and she didn't CARE — Camille didn't stop. Didn't slow down. The thrusts stayed short and brutal, driving through the orgasm, and the orgasm didn't END, it just SHIFTED, rolling from one peak to the next to the next —
 
-"DA — DDY — DA — DDY — ♡♡♡ —"
+"DADDY'S — BLEACHED — KOREAN — ♡♡♡ — WHITE — OWNED — ♡♡♡ —"
+
+The words shattering mid-thrust. Each PLAP driving a fragment out of her — the raceplay vocabulary itself being mindbroken, the words she'd been building all night breaking apart into syllables and the syllables breaking into ♡ —
+
+"DA — DDY — ♡♡♡ — BLEACH — ♡♡♡ — KO — RE — ♡♡♡ —"
 
 She came AGAIN on top of the first one before it finished — stacked, layered, continuous. Her cunt gripping the cock so hard the squirt couldn't get out and then RELEASING in a gush that splattered the concrete and her thighs were shaking and her arms around Camille's neck were the only thing keeping her from falling and the cock kept DRIVING —
 
-Camille's face an inch from hers. Jaw clenched. Breathing through teeth. Every muscle in those arms locked, veins standing out on her neck, eyes dark and animal. Both hands bruise-tight under her thighs, fingers sunk into the muscle, holding her weight like she was nothing. The thrusts short. Brutal. Relentless. Each one lifting her off the wall and slamming her back and driving the cock into the deep place and ♡ and ♡ and ♡ —
+Camille's face an inch from hers. Jaw clenched. Breathing through teeth. Every muscle in those arms locked, veins standing out on her neck, eyes dark and animal. Both hands bruise-tight under her thighs, fingers sunk into the muscle, holding her full weight one-handed. The thrusts short. Brutal. Relentless. Each one lifting her off the wall and slamming her back and driving the cock into the deep place and ♡ and ♡ and ♡ —
 
 She pressed her face into Camille's neck and she sobbed and the sob was ♡ and the sob was DADDY and the cock was so deep she could taste it in the back of her throat even though it wasn't IN her throat, it was in her cunt, but her body had stopped distinguishing between holes, between mouth and cunt and ass, it was all one continuous OPENING and the cock was inside ALL of it —
 
