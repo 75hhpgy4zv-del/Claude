@@ -266,7 +266,9 @@ Camille's hand on her jaw. Turning her face. Thumb on her chin, tilting her head
 
 "Look at me."
 
-A command. She held the gaze — forced her eyes to stay open, forced her brain to stay present — and Camille drove in DEEP, one long stroke that hit the deep place and HELD, and the gaze and the depth hit her simultaneously from two different directions and the double-impact cracked her open —
+A command. Camille's free hand found both her wrists — gathered them above her head, pinned them to the futon one-handed, the grip easy and absolute — and the other hand stayed on her jaw, tilting her face, and she was OPEN. Pinned and spread and held and the only thing she could move was her eyes and Camille's eyes were RIGHT THERE waiting —
+
+She held the gaze. Forced her eyes to stay open, forced her brain to stay present — wrists pinned, jaw held, the cock buried to the hilt — and Camille drove in DEEP, one long stroke that hit the deep place and HELD, and the gaze and the depth and the pinned wrists hit her simultaneously from three directions and the triple-impact cracked her open —
 
 She came. Looking directly into Camille's eyes. The orgasm ripping through her cunt while her eyes stayed locked on the grey-green and the gaze SAW it — saw her face slack and her mouth open and her pupils dilate and every piece of composure dissolve in real time — and being SEEN was its own penetration and the two penetrations together were ANNIHILATING —
 
@@ -274,7 +276,11 @@ She came. Looking directly into Camille's eyes. The orgasm ripping through her c
 
 PLAP. PLAP. PLAP. PLAP. PLAP.
 
-Camille's mouth on her neck. Hot. Open. The breath ragged against her skin and the lips dragging across the tendon and her throat arching to give MORE — exposure, access, the offering of throat — and teeth. TEETH. Not biting — grazing. The edge of Camille's teeth against her pulse point and the edge was a warning and the warning made her cunt GRIP —
+Camille's mouth on her neck. Hot. Open. The breath ragged against her skin and the lips dragging across the tendon and her throat arching to give MORE — exposure, access, the offering of throat —
+
+Camille bit down.
+
+Not a nip. A BITE — the sharp clamp of jaw on tendon, pain flaring bright and hot and transmuting INSTANTLY into pleasure that shot straight to her cunt — and her body arched and her mouth opened and ♡ fell out and Camille's teeth were still IN her, still clamped, marking — she was being MARKED — the bruise already forming under the pressure, the bruise she'd find tomorrow and press in the taxi and press in the dressing room and press during the read-through and every press would send her cunt clenching —
 
 She could smell Camille's sweat. The Sauvage breaking down — the cologne dissolving under exertion and the scent underneath emerging, the raw skin-scent, and the raw scent was BETTER than the cologne, was the scent of effort, of taking, of a composed woman coming undone enough to SWEAT —
 
@@ -306,7 +312,7 @@ Camille's mouth at her ear. Hot breath. The voice low and level and absolutely d
 
 She came AGAIN. On top of the first orgasm before it finished. Stacked — layered — her cunt convulsing in waves and the cock buried to the hilt and each convulsion squeezing the shaft and the shaft throbbing back and the throb launching the next wave —
 
-Camille's hand around her throat. Not squeezing. Just — holding. The fingers resting against her pulse point, feeling the heart rate, the bird-fast hammering of a body that had lost control of itself. The hand said *mine* the way the silence said *received* and the word PROPERTY was still echoing in the room —
+Camille's hand around her throat. Not squeezing — but not resting. HOLDING. Pressure. Enough to feel the grip against her windpipe, enough to make each breath something she had to work for, enough to feel the pulse hammering against Camille's fingers — the grip said OWNED and the pressure said *I could* and the *I could* made her cunt CLENCH —
 
 "Daddy's — bleached — ♡♡♡ — I can't — I can't STOP — every time I say it I — ♡♡♡♡♡ —"
 
@@ -380,7 +386,7 @@ PLAP. PLAP.
 
 "My husband is at home RIGHT NOW — ♡ — waiting for me — and I'm — RIDING — Daddy's — big — white — ♡♡♡ —"
 
-She came again. A smaller one — a ripple through her cunt, a pulse, her body squeezing the cock in a rhythmic wave — and she rode through it and the rhythm didn't break —
+She almost came. A ripple — her cunt squeezing the cock in a wave that crested and DIDN'T break — the orgasm hovering just out of reach and the almost was MADDENING — and she rode harder, chasing it, the rhythm turning desperate —
 
 "♡♡♡ — Korea's — golden wife — on Daddy's cock — BLEACHED — ♡ — I'm getting BLEACHED and I — ♡♡♡ —"
 
@@ -398,7 +404,7 @@ She bounced. HARD. Slamming herself down with her full weight on every stroke, t
 
 "Daddy's — WHITE-OWNED — Korean — TROPHY WIFE — ♡♡♡ — riding — big — white — COCK — ♡♡♡ — the nation's WIFE — Daddy's WHORE — ♡♡♡♡♡ — SAME WOMAN — ♡♡♡ — SAME — BODY — ♡♡♡♡♡♡♡!!!"
 
-She came and kept going. Didn't slow. Rode through the orgasm with her jaw locked and her eyes rolling and her cunt GRIPPING — squeezing the shaft in pulsing waves, milking it, her whole body converting the orgasm into downstrokes —
+Her cunt gripped the shaft — pulsing, tightening, almost THERE — the orgasm RIGHT there, a wall she kept slamming against and couldn't break through — and the ALMOST was fuel, driving her hips harder, the need building behind her navel into something that was going to WRECK her when it finally broke —
 
 "Do you — ♡♡♡ — do you know what they'd CALL me — ♡♡♡ — if they knew — if THREE MILLION people — knew that — KANG YUNA — ♡♡♡ — Korea's perfect wife — ♡♡♡ — rides — a big — white — COCK — ♡♡♡ — every — WEEK — ♡♡♡♡♡ —"
 
@@ -424,71 +430,79 @@ She was cackling. The fantasy expanding — a podium, a press room, KBS cameras 
 
 PLAP. PLAP. PLAP. PLAP.
 
-"What would they say?"
+The smell of sex was thick now. The room soaked with it — cunt-slick and sweat and the musk of cock churning inside her for twenty minutes — and the wet sounds were OBSCENE, the squelch of each downstroke, the slippery suction of each pull-up, her palms sliding on Camille's abs because everything was slick now, everything was wet —
 
-Camille. Not "say it again." Not "louder." Something NEW — a direction, a redirect, the DJ cueing a track change — and the question opened a door in Yuna's cock-drunk brain that hadn't been opened yet —
+She ground down. Rolled her hips in a slow figure-eight with the cock buried to the root — the head pressing against the front wall, then the side, then the deep place, then the other side — mapping herself from inside — and the slow grinding was its own torture because she needed MORE and the more was right THERE —
 
-"♡♡♡ — the — the Sulwhasoo photographer — ♡♡♡ — he spent SIX HOURS on my face today — Daddy — six hours — lighting and contour and the perfect ANGLE — ♡♡♡ — if he could see what I use this face for NOW — ♡♡♡♡♡ —"
+Camille's hands moved.
 
-PLAP. PLAP.
+Not resting anymore. GRIPPING. Both hands sinking into her hips bruise-deep — the fingers digging into the soft flesh above the bone, the grip POSSESSIVE, painful, finger-shaped bruises already forming that she'd find in the shower tomorrow and PRESS — and Camille started driving from BELOW.
 
-"♡♡♡!!! — the BAFTA jury — ♡♡♡ — they gave me an award for EXPRESSION — Daddy — ♡♡♡ — and right now my EXPRESSION is — ♡♡♡♡♡♡♡!!!"
+Hard. HARD. Upward thrusts that slammed the cock into the deep place from a new angle — she wasn't riding anymore, she was being FUCKED from below, Camille's hips snapping up into her with a force that knocked the rhythm out of her body — her hands slipped on the sweat-slick abs and she caught herself on Camille's chest and the cock kept HAMMERING —
 
-She came on the word EXPRESSION — came because the award-winning face was contorted and drooling and streaked with tears of laughter and the DISTANCE between the BAFTA ceremony and this futon was the funniest measurement on earth —
-
-"My — ♡♡♡ — my drama school professors — ♡♡♡ — they'd — ♡♡♡ — Professor Kim who taught me CHEKHOV — ♡♡♡ — if he could hear his STAR STUDENT right now — ♡♡♡ — screaming BLEACHED — ♡♡♡ — on a big white cock — ♡♡♡♡♡♡♡!!!"
+"♡♡♡!!! — DADDY — ♡♡♡♡♡ — FUCK — ♡♡♡!!!"
 
 PLAP. PLAP. PLAP. PLAP. PLAP.
 
-"Good Korean girl."
+One hand left her hip. Fisted in her hair. PULLED — her head snapping back, throat exposed, spine arching, and the arch drove her hips DOWN onto the cock at a new angle that hit the deep place and HELD — she was arched between two grips, hip and hair, anchor and leash, and the position was HELPLESS — she couldn't control the angle, couldn't control the rhythm, couldn't do anything except take it —
 
-Camille. Flat. The praise landing in her cunt before her brain and her whole body CLENCHED — the praise-as-degradation, the reward-word, the three syllables telling her that the screaming and the bragging and the CONFESSING were exactly what Daddy wanted —
+"Korea's golden wife."
 
-"♡♡♡♡♡!!! — I'm — ♡♡♡ — a good — Korean — GIRL — ♡♡♡ — Daddy's good — Korean — ♡♡♡♡♡♡♡!!!"
+Camille. Low. Possessive. Not a question — a LABEL. Naming the thing she owned, naming the public title from below while driving twelve inches of cock into the body that wore it —
 
-"You're putting on quite a show." Same flat voice. Same grey-green eyes looking up at her. Fingers loose on her hips. Not even GRIPPING. The composure infuriating and gorgeous and Yuna wanted to BREAK it —
+"♡♡♡!!! — yes — ♡♡♡ — Korea's golden — ♡♡♡ — wife — on Daddy's — ♡♡♡♡♡!!!"
 
-"I'm not — ♡♡♡ — PERFORMING — ♡♡♡ — this isn't a — SHOW — Daddy — ♡♡♡ — this is the — REAL PERSON — the show is — TOMORROW — the show is the — Sulwhasoo shoot — and the table read — and the MARRIAGE — ♡♡♡ — THIS is — WHO I AM — ♡♡♡♡♡ —"
+"Three million followers." PLAP. "And you couldn't wait four days."
 
-"What are you?"
+The observation — flat, factual, more degrading than anything Yuna could have screamed at herself — landed in her cunt and her brain simultaneously and she SOBBED — a wet, broken, delighted sob because it was TRUE, she couldn't wait, she'd lasted four days and cracked and driven across Seoul at midnight because the NEED was bigger than the plan —
 
-The question. Casual. Devastating.
-
-"DADDY'S — BLEACHED — KOREAN — ♡♡♡ — FUCKTOY — SLUT — PROPERTY — CUMSLUT — WHORE — ♡♡♡♡♡ — ALL OF THEM — ♡♡♡ — every word — at ONCE — ♡♡♡♡♡♡♡!!!"
-
-She'd crammed every title into one sentence and the pile-up made her cum — the sheer QUANTITY of degradation, every word she'd ever screamed stacked on top of each other and spoken in one breath —
-
-PLAP. PLAP.
-
-"Show me what Korean wives do."
-
-The command from below. Camille's hands resting on her hips — not driving, not guiding, just RESTING — and the rest was the dominance, the command delivered with the body language of someone watching a performance she'd already bought tickets for —
-
-Yuna's hips snapped into a rhythm. HARD. Her thighs burning, quads flexing, the riding turning frantic —
-
-"♡♡♡ — Korean wives — ♡♡♡ — Korean wives RIDE — Daddy's — big white — ♡♡♡♡♡ —"
+"♡♡♡ — I couldn't — ♡♡♡ — couldn't WAIT — Daddy — ♡♡♡ — four days and I — ♡♡♡♡♡ —"
 
 PLAP. PLAP. PLAP.
 
-The pause. She dragged herself up the shaft — slow, gripping, one inch at a time — and her brain caught a sentence:
+The being-USED. That was what hit her — not the degradation, not the words, but the physical reality of being held in place and fucked from below. Hair fisted. Hip gripped. Cock driving. She wasn't riding. She was being USED. Her body was a thing Camille was using to get off and the being-used IS what property meant — not a word screamed during orgasm but a FACT demonstrated by grip and angle and force —
 
-"The BAFTA nom — ♡ — gone — the Sulwhasoo contract — gone — ♡♡♡ — the Joseon queen role — GONE — ♡♡♡ — the Cartier deal — GONE — ♡♡♡♡♡ — I'd burn — every — SINGLE ONE — ♡♡♡ — for one more HOUR — on this cock — ♡♡♡♡♡♡♡!!!"
+"What are you?"
 
-She dropped. Full weight. The impact driving the head into the deep place and the word GONE echoing — she'd named them, each one, the specific conquests of a career she'd spent a decade building, and she'd burned them one by one and the BURNING made her cum harder than any of them ever had —
+"YOURS — ♡♡♡♡♡!!!"
 
-"♡♡♡♡♡!!! — The whole CAREER — ♡♡♡ — every magazine cover — every red carpet — ♡♡♡ — I'd trade ALL OF IT — Daddy — ♡♡♡ — for — PERMANENT — access — to — THIS — COCK — ♡♡♡♡♡♡♡!!!"
+One word. Not a list. Not a vocabulary dump. One word that contained every other word and the simplicity of it cracked her open wider than the title pile-up ever had —
+
+Camille stopped.
+
+HELD. Motionless. Cock buried to the hilt, hips locked, the hand in Yuna's hair keeping her arched — but no movement. No thrust. The stillness after the brutality and the CONTRAST was devastating —
+
+"♡♡♡ — Daddy — ♡♡♡ — don't — DON'T stop — ♡♡♡ — please — PLEASE — ♡♡♡♡♡ —"
+
+"Not yet."
+
+Two words. The orgasm RIGHT THERE — she could feel it, the wall she'd been slamming against for the last ten minutes, the almost that had been building and building — and Camille was HOLDING her on the edge, the cock inside her but NOT MOVING, and her hips tried to grind and the grip on her hip was iron —
+
+"♡♡♡ — DADDY — ♡♡♡ — please — I need — I NEED to — ♡♡♡ — please let me — ♡♡♡♡♡ —"
+
+"Tell me what you'd trade."
+
+She SOBBED. Tears running. The denial was AGONY — the orgasm coiled behind her navel screaming for release and Camille's body perfectly still beneath her —
+
+"The BAFTA nom — ♡♡♡ — GONE — ♡♡♡ — take it —"
+
+Camille didn't move.
+
+"— the Sulwhasoo contract — ♡♡♡ — GONE — the Joseon queen — GONE — ♡♡♡ — the Cartier deal — GONE — everything — ♡♡♡ — PLEASE — ♡♡♡♡♡ —"
+
+She was sobbing them out. Not bragging — BEGGING. Each item ripped from her career and thrown at Camille's feet as payment for one orgasm — and the begging was realer than any self-degradation because she MEANT it, would burn every contract in her portfolio right now for one thrust —
+
+Camille released.
+
+One SAVAGE upward thrust and the denied orgasm DETONATED — a white-out, a screaming convulsion, her cunt clamping the shaft so hard her whole body shook — squirting in a gush that splattered Camille's stomach and the futon and everything — the denied buildup releasing all at once and it was BIGGER than any orgasm she'd had because it had been EARNED, she'd paid for it in named and specific pieces of her career —
+
+"♡♡♡♡♡♡♡!!! — GONE — ♡♡♡ — ALL OF IT — GONE — ♡♡♡♡♡♡♡!!!"
 
 PLAP. PLAP. PLAP. PLAP.
 
-She paused. Caught the shaft midstroke. Held herself there with just the head inside — thighs shaking, cunt gripping — and her cock-drunk brain found one more lane it hadn't driven:
+She collapsed forward onto Camille's chest — but Camille didn't stop, drove up into her in hard strokes, the grip on her hair forcing her face against the sweat-slick neck — and she gasped into Camille's skin and her cock-drunk brain found one more lane:
 
-"Soyeon-unnie was FIRST — ♡♡♡ — Daddy — she was the FIRST one — then Jihye — then Minji — ♡♡♡ — four Korean women — ONE white cock — ♡♡♡ — and I'm not the EXCEPTION — I'm the LATEST ACQUISITION — ♡♡♡♡♡ —"
-
-PLAP. She dropped. Full depth. Rose again.
-
-"♡♡♡ — all of us — BLEACHED — ♡♡♡ — four Korean women — on our KNEES — ♡♡♡ — and I'm the PROUDEST one — Daddy — ♡♡♡ — I'd BRAG — I'd tell them — ♡♡♡ — I'm the one who screams the LOUDEST — ♡♡♡♡♡♡♡!!!"
-
-She came bragging about her place in a collection and the cum was proof she'd earned the spot — her cunt squeezing the cock in triumphant pulses, CELEBRATING, because she wasn't ashamed of being number four, she was PROUD, she'd competed for this position on her knees and WON —
+"Soyeon-unnie was FIRST — ♡♡♡ — then Jihye — then Minji — ♡♡♡ — four Korean women — one white cock — and I'm the PROUDEST — ♡♡♡ — I SCREAM the loudest — ♡♡♡♡♡♡♡!!!"
 
 PLAP. PLAP. PLAP.
 
@@ -642,6 +656,10 @@ PLAP. PLAP. PLAP. PLAP.
 
 Camille's hands on her hips. Both hands. No book. No mixer. No decks. No split attention. Both hands GRIPPING — bruise-tight, proprietary, the fingers sinking into the flesh and the grip saying MINE with every pressure point —
 
+One hand left her hip. Fisted in her hair at the nape — a FIST, not fingers, the knuckles tight against her scalp — and PULLED. Her head snapping back, her spine arching into a bow, and the arch drove the cock DEEPER — past the trained depth, into the place that made her vision white out — and she was held between two grips, hip and hair, anchor and leash, her body arched and open and USED —
+
+"♡♡♡♡♡!!! — DADDY — ♡♡♡ — pull — HARDER — ♡♡♡♡♡!!!"
+
 She felt it — the shift. Camille's full attention. No casual composure, no reading, no phone. Both hands on her body and every thrust DRIVEN, deliberate, the rhythm accelerating —
 
 "Daddy — ♡ — you're — you're not reading anymore — ♡♡♡ —"
@@ -738,11 +756,11 @@ PLAP. PLAP. PLAP. PLAP.
 
 Each thrust lifting her off the wall and dropping her back. The cock driving in from below with each drop and the depth IMPOSSIBLE — deeper than missionary, deeper than riding, the deepest penetration she'd ever felt — and the deep place was being HAMMERED and each hammer blow sent a shockwave through her entire body —
 
-One last eruption. One final coherent sentence before language died — her brain gathering every frame, every fantasy, every filthy word from the entire night into a single detonation:
+One last eruption. One final coherent line before language died — her brain gathering twenty years of becoming and one night of unbecoming into a single sentence:
 
-"DADDY'S — PERMANENT — BLEACHED — KOREAN — PROPERTY — ♡♡♡ — ADDICTED — REBUILT — CUSTOM-FIT — ♡♡♡ — WHITE-COCK-ONLY — CUM-FILLED — TRAINED — BESPOKE — ♡♡♡ — FOUR KOREAN WOMEN AND I'M THE PROUDEST — SEND ME HOME FULL — BURN THE BAFTA — ♡♡♡ — I'D DO A PSA — I'D CALL A PRESS CONFERENCE — ♡♡♡ — MY NAME IS KANG YUNA AND I BELONG TO — ♡♡♡♡♡♡♡♡♡♡!!!"
+"TWENTY YEARS — ♡♡♡ — I spent TWENTY YEARS — becoming Korea's perfect woman — ♡♡♡ — and KOREA'S PERFECT WOMAN — is a COCK HOLSTER — ♡♡♡ — in a walk-up in MAPO-GU — ♡♡♡ — and she's LAUGHING — ♡♡♡♡♡♡♡♡♡♡!!!"
 
-The sentence collapsed under its own weight. Too many words. Too much cock. The eruption was the last flare before the star imploded —
+She was. LAUGHING. Coming and laughing and being fucked against a wall and the sentence was the funniest thing she'd ever said — twenty years compressed into a punchline, an entire career arc reduced to its true destination — and the truth of it detonated in her cunt and her brain simultaneously —
 
 She tried to speak.
 
