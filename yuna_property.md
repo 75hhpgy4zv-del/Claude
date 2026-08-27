@@ -288,11 +288,11 @@ A pause. Camille buried deep, motionless, the cock pulsing inside her, and the s
 
 "Daddy's — bleached — Korean — property — ♡ — that's what I see — that's what I AM — ♡♡♡ —"
 
-She'd never said it before. The word PROPERTY. She'd said slut and fucktoy and cumslut and whore and trophy and actress. She'd never said PROPERTY. The word landed in her cunt and detonated and she came — sudden, violent, her body arching off the futon, squirting around the cock, soaking the stained fabric beneath her —
+The word landed in her cunt and detonated. PROPERTY. She came — sudden, violent, her body arching off the futon, squirting around the cock, soaking the stained fabric beneath her —
 
 "♡♡♡♡♡!!! PROPERTY — I'm your — PROPERTY — Daddy — ♡♡♡ — your Korean — PROPERTY — ♡♡♡♡♡♡♡!!!"
 
-She was coming and screaming the word and each repetition made the orgasm HARDER — the word PROPERTY doing something to her that no other word had ever done, something final and complete and absolute — not a role, not a performance, not a title she put on in the DJ booth and took off in the taxi home. PROPERTY. Owned. Permanently.
+Not a role. Not a performance. Not a title she put on in the DJ booth and took off in the taxi home. PROPERTY. Owned. Permanently. And each repetition made the orgasm HARDER —
 
 Camille didn't respond. Just drove in — hard, deep, the composure locked — and the silence was the response because the silence meant the word was RECEIVED and the receiving was the claiming —
 
@@ -322,9 +322,9 @@ She was laughing. Coming and laughing. The orgasm and the hilarity feeding each 
 
 PLAP. PLAP. PLAP. PLAP. PLAP.
 
-"You're flooding the futon," Camille observed. Same tone. Weather report.
+Camille shifted the angle — one hand on Yuna's thigh, pushing it wider, the cock sliding a half-inch deeper into territory the new angle exposed — and Yuna's spine arched off the futon and her cunt gripped and the gripping pulled the cock even DEEPER and the depth was punishment and reward at the same time —
 
-"I'm — ♡♡♡ — I'm ALWAYS flooding the — ♡♡♡ — the futon knows — the futon has a MAP of me — ♡♡♡ — every stain is — every stain is a night I — ♡♡♡♡♡ —"
+"You're flooding the futon," Camille observed. Same tone. Weather report.
 
 "And when you go home?"
 
@@ -364,17 +364,7 @@ Incoherent during the thrusting. The words breaking apart with each impact of he
 
 She came. A convulsion that started in her cunt and radiated outward through her stomach and her thighs and her chest — squirting — the hot gush soaking Camille's stomach and running down between them and pooling where their bodies met — and she didn't stop. Rode straight through it. The orgasm was fuel, not a destination.
 
-She paused at the top of a stroke. Cock half inside her. Her cunt gripping the shaft, refusing to let it go. She looked down at Camille with wild eyes and her hair stuck to her face with sweat and her mouth wet and open —
-
-"Daddy."
-
-"Mm."
-
-"I'm going to say everything. Every filthy thing I've ever thought. And I want you to just — ♡ — watch."
-
-One eyebrow. The scar. The grey-green eyes looking up at her with that flat, amused, appraising attention that made her cunt clench around the cock —
-
-She sank back down. Full depth. The head hitting the deep place and her vision sparking.
+She paused at the top of a stroke. Cock half inside her. Her cunt gripping the shaft, refusing to let it go. She looked down at Camille with wild eyes and her hair stuck to her face with sweat and her mouth wet and open — and she sank back down. Full depth. The head hitting the deep place and her vision sparking and the words fell out without preamble:
 
 "I'm — ♡ — a married Korean actress — riding a big white cock — on a Wednesday — because I COULDN'T WAIT —"
 
@@ -401,6 +391,8 @@ Her thighs were burning. The sweat running down her legs and pooling where her a
 PLAP. PLAP. PLAP. PLAP.
 
 She bounced. HARD. Slamming herself down with her full weight on every stroke, the impact sending shockwaves up through her body, her tits bouncing, her hair whipping, the wet slap of her ass against Camille's thighs filling the room —
+
+Camille's hand shot up. Caught her breast — squeezed, HARD, the fingers sinking into the flesh, thumb pressing the nipple flat — and the pain sparked through her chest and down into her cunt and she SCREAMED and the scream turned into words:
 
 "Daddy's — WHITE-OWNED — Korean — TROPHY WIFE — ♡♡♡ — riding — big — white — COCK — ♡♡♡ — the nation's WIFE — Daddy's WHORE — ♡♡♡♡♡ — SAME WOMAN — ♡♡♡ — SAME — BODY — ♡♡♡♡♡♡♡!!!"
 
@@ -660,7 +652,7 @@ One hand left her hip. Fisted in her hair at the nape — a FIST, not fingers, t
 
 "♡♡♡♡♡!!! — DADDY — ♡♡♡ — pull — HARDER — ♡♡♡♡♡!!!"
 
-She felt it — the shift. Camille's full attention. No casual composure, no reading, no phone. Both hands on her body and every thrust DRIVEN, deliberate, the rhythm accelerating —
+She felt it — the shift. Camille's full attention. No casual composure, no reading, no phone. Both hands on her body and every thrust DRIVEN, deliberate, the rhythm accelerating — and Camille's chest pressed against her back, the hard abs against the base of her spine, the sweat between them slicking the contact, and Camille's breath was hot and rough between her shoulder blades and the breath was UNCONTROLLED —
 
 "Daddy — ♡ — you're — you're not reading anymore — ♡♡♡ —"
 
@@ -928,7 +920,7 @@ She smiled. Set the phone face-down on the floor.
 
 Then picked it back up. Opened the camera. Reversed it.
 
-The woman on the screen — she looked at her for a long time. Mascara destroyed. Hair matted with sweat. A bruise forming on her collarbone where her own teeth had clamped down at some point she couldn't remember. Lips swollen. Eyes bright, bright, BRIGHT — not the cultivated warmth of the Sulwhasoo ads or the poised charm of the red carpet. Something feral. Something honest. Something that had been hiding behind the controlled face for years and had finally clawed its way to the surface.
+The woman on the screen — she looked at her for a long time. Mascara destroyed. Hair matted with sweat. The bite mark on her neck where Camille's teeth had clamped down — already darkening, the bruise she'd press tomorrow and the day after and the day after that. Lips swollen. Eyes bright, bright, BRIGHT — not the cultivated warmth of the Sulwhasoo ads or the poised charm of the red carpet. Something feral. Something honest. Something that had been hiding behind the controlled face for years and had finally clawed its way to the surface.
 
 She was beautiful. Not Kang Yuna beautiful — not the sixty-foot billboard, not the Dior gown, not the face that sold skincare to four million commuters. Something rawer. Demolition beauty. Everything stripped away until the only thing left was the true shape underneath.
 
