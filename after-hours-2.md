@@ -4218,3 +4218,565 @@ JingJing slept. Jan held her. The apartment was quiet, and the secret was safe, 
 Thirty-five days.
 
 ---
+
+## Chapter 15: The Photo
+
+Sirin found the image on a Wednesday night, scrolling through a fan archive account that had catalogued every known public sighting of Jan and JingJing since the first *Enemies with Benefits* press tour. The account — @janjing_archive, 47K followers — was meticulous. Every photo tagged by date, location, event. Most of the images were professional: press appearances, fan meets, airport sightings. Clear faces, good lighting, the curated visibility of public life.
+
+One photo was different.
+
+It was from Chiang Mai. July. The caption read: *"spotted at _____ hotel? can't confirm but the HEIGHT DIFFERENCE is giving janjing 😭😭😭"* The image was blurry — shot from across the street at night, zoomed past the point of clarity. Two figures on a second-floor balcony. One taller, standing behind the shorter one. The taller figure's arms appeared to be around the shorter one's waist. Their posture was intimate — heads close, bodies pressed, the silhouette of two people who had forgotten that balconies were visible from the street.
+
+You couldn't identify them from the photo. Not definitively. The resolution was too poor, the angle too steep, the night too dark. You could see the height difference. You could see the posture. You could see what looked like the taller figure's mouth against the shorter one's neck.
+
+It could be anyone.
+
+Sirin knew it wasn't anyone.
+
+---
+
+She brought it up on Thursday. Casually. Over coffee, in the break between the morning and afternoon shoots, in the small kitchenette where the crew refilled their thermoses and complained about the air conditioning.
+
+Jan was pouring hot water over a teabag. JingJing was at the table, eating a mango sticky rice from the craft services spread, scrolling her phone with the thumb of one hand while the other held the spoon.
+
+"Jan," Sirin said. "I wanted to ask about the Chiang Mai trip. From July. The production did a location shoot there, right?"
+
+"Mm." Jan bobbed the teabag. "Two days. We shot the reconciliation scene at the old city wall."
+
+"Beautiful location. Were you and JingJing both there?"
+
+"The whole cast was there."
+
+"Did you enjoy it? Chiang Mai is gorgeous."
+
+"It was good. Long days." Jan sipped her tea. Her face was open, relaxed, the face of someone answering questions about a work trip that happened months ago and had no particular significance beyond the professional.
+
+Jan did not think about the balcony. Jan had not thought about the balcony since the morning after the balcony, when Lin had appeared in the lobby looking like she'd seen a murder, and Jan had assumed Lin was having a bad morning and hadn't connected it to the fact that she and JingJing had spent twenty minutes on an outdoor surface doing things that were visible to anyone with a sightline and functional eyes.
+
+Jan genuinely did not remember that the balcony was exposed. The balcony, in Jan's memory, was filed under *the night JingJing rode me outside and came so hard she bit my shoulder and I could feel it for three days*. The geography — the height, the street below, the fact that the second floor was not, in any architectural sense, private — had been edited out by a brain that prioritized sensation over spatial awareness.
+
+"I'm asking because I came across something interesting," Sirin said. She pulled out her phone. Showed Jan the image.
+
+Jan looked at it. Squinted.
+
+"What am I looking at?"
+
+"A fan account posted this. It's from outside a hotel in Chiang Mai. July. Two people on a balcony."
+
+Jan studied the photo with the genuine confusion of someone trying to parse a blurry image that meant nothing to her. "I can't really see anything. It's dark."
+
+"The fan account thinks it might be you and JingJing."
+
+Jan looked again. Tilted the phone. "Could be anyone. You can't even see faces."
+
+"No," Sirin agreed. "You can't."
+
+Across the kitchenette, JingJing had stopped eating. Her spoon was in the sticky rice. Her phone was face-down on the table. She was looking at Jan's back with an expression that was — carefully, precisely — nothing. JingJing's nothing-face was her best face. It revealed exactly as much as she wanted it to, which was zero.
+
+But her left hand had gone to her chest. To the chain.
+
+Sirin's eyes tracked the movement. A flicker — half a second, catalogued, filed.
+
+"Anyway," Sirin said. "Just curious. It's a nice photo, even blurry. The body language is—" she paused. Chose her word. "—warm."
+
+"Chiang Mai was warm," Jan said. "Thirty-eight degrees."
+
+Sirin laughed. Jan smiled. JingJing ate another bite of mango sticky rice and said nothing.
+
+---
+
+In the hallway, after Sirin left for the editing suite, Lin intercepted Jan. Lin had been standing outside the kitchenette for the entire conversation, having arrived to refill her water bottle and instead frozen in the doorway with the bottle half-raised and her face the color of uncooked dough.
+
+"She has a photo," Lin said.
+
+"It's blurry. You can't see anything."
+
+"She has a photo of the BALCONY, Jan."
+
+"You can't even tell it's us."
+
+"I can tell it's you."
+
+"You can tell because you know. Sirin doesn't know."
+
+Lin stared at her. Lin's face was doing the thing it did when Lin was processing a level of stress that her body was not equipped to handle — the jaw tight, the eyes wide, the specific expression of someone watching a building collapse and trying to decide which exit to run for.
+
+"I almost saw you," Lin said. Quietly. "That night. In Chiang Mai. I went to the balcony next to yours because I couldn't sleep and I heard—" She stopped. Swallowed. "I heard JingJing. Through the wall. And I looked over and I could see — the shadow, through the partition. The two of you. I could see what you were doing."
+
+Jan's tea paused halfway to her mouth.
+
+"You saw us?"
+
+"I saw your SHADOWS. On a balcony. On a balcony that faces the STREET. I went back inside and I lay in bed and I stared at the ceiling for four hours and I thought: *if I could hear them, if I could see them, then anyone on the street could see them*, and now Sirin has a PHOTO that proves I was right, and you're standing here telling me it's BLURRY—"
+
+"It is blurry."
+
+"BLURRY DOESN'T MATTER. What matters is that a fan was on the street and had a phone and now there is a PHOTO that shows two people on a balcony and one of them is your height and one of them is JingJing's height and their body language says FUCKING, Jan, it says FUCKING—"
+
+"It says 'warm.'"
+
+"It says WARM because SIRIN IS POLITE."
+
+Jan put her tea down. She looked at Lin. Lin was shaking. Not the visible shaking, the hands-trembling kind — the deeper kind, the internal vibration of a nervous system that had been running on cortisol for weeks and was beginning to crack under the load.
+
+"Lin," Jan said. "I'm sorry."
+
+"Sorry doesn't—"
+
+"I know. I'm sorry anyway. I didn't think about the balcony."
+
+"You didn't think about the balcony because you DON'T THINK. You and JingJing — you don't think about anything except each other, and the rest of us are left standing in the wreckage of your decisions with our hands full of — of blurry photos and crisis management and—"
+
+Lin stopped. Pressed her hands against her face. Breathed.
+
+"I need you to start helping me," Lin said, muffled behind her hands. "I can't do this alone. Fah can't do this alone. We need you to start seeing the things we see, because if you don't — if you *can't* — then we're going to run out of time before we run out of luck."
+
+Jan was quiet. She stood in the hallway and held her lukewarm tea and felt something she hadn't felt in months: the faint, distant awareness that the world outside JingJing existed, and that the world outside JingJing had consequences.
+
+"I'll try," Jan said.
+
+She meant it. She would try. She would try to see the balcony, the street, the phone, the photo. She would try to remember that private didn't mean invisible.
+
+She would try for approximately thirty-six hours, which was how long it took for JingJing to wear a specific dress to the Thursday table read and for Jan's capacity for spatial awareness to exit the building.
+
+---
+
+That night, JingJing was already in bed when Jan got out of the shower. Noo-Noo on the shelf. Lights low. JingJing under the covers, phone on the nightstand, wearing Jan's Sizzy shirt and nothing else — a fact Jan discovered when she pulled back the covers and found bare thighs and the hem of the shirt riding high and JingJing watching her with the eyes that meant the conversation was over and the night was starting.
+
+"The balcony photo," JingJing said.
+
+"You heard."
+
+"I was eating sticky rice three meters away. I heard everything."
+
+"It's blurry."
+
+"I know it's blurry. I also know that the reason it exists is because you fucked me on a balcony in Chiang Mai with the lights on."
+
+"The lights were off."
+
+"The lights in the ROOM were off. The streetlights were on. The moon was out. P'Jan, we were on an exposed surface with ambient urban lighting and you had me bent over the railing."
+
+"I remember."
+
+"Do you remember the part where I screamed?"
+
+"I remember every sound you've made in the last year."
+
+"Then you remember that I screamed on a balcony on the second floor of a hotel in a tourist city in the middle of summer when the street was full of people with phones."
+
+Jan pulled the covers over both of them. The darkness was immediate, warm, the private dark of their bed where the conversation always shifted — where the analysis gave way to the current underneath it, where whatever they were talking *about* became secondary to whatever they were *doing*.
+
+"Are you mad?" Jan asked.
+
+"I'm not mad."
+
+"You sound mad."
+
+"I sound turned on." JingJing rolled toward her. The shirt rode higher. "I've been thinking about that balcony since Sirin showed you the photo. I've been thinking about it all day. The railing. The street. The way you held my hips. The way I couldn't be quiet and you didn't try to make me."
+
+Jan's hand found her thigh under the covers. Bare skin. Warm.
+
+"You liked that I didn't try to make you quiet," Jan said.
+
+"I liked that you didn't care. You were — you were so inside me that you forgot the world existed. You forgot balconies have sightlines. You forgot streets have people. You forgot everything except—"
+
+"Except you."
+
+"Except me. And that's — that's the hottest thing, P'Jan. That I'm enough to make you stupid. That I'm enough to make you forget basic architecture."
+
+Jan's hand moved higher. JingJing's legs parted.
+
+"You're hard," JingJing said, because she could feel it — pressing against her thigh through Jan's sleep shorts, the length of it obvious, the thickness making its own argument.
+
+"I've been hard since you said 'bent over the railing.'"
+
+"Take the shorts off."
+
+Jan kicked them off. JingJing's hand found her immediately — wrapped around the shaft, the grip firm, possessive, the confidence of someone who had spent a year learning exactly how Jan liked to be touched and had memorized the curriculum.
+
+"Tell me about the balcony," JingJing said, stroking slowly. "Tell me what you remember."
+
+"I remember the air. It was warm. You were wearing my shirt — this shirt —" she tugged the hem, "— and nothing under it, and you went out to the balcony and leaned on the railing and looked back at me and said—"
+
+"'Are you coming or not.'"
+
+"And I came out and I stood behind you and I could see the street. I could see the tuk-tuks and the night market stalls and the people walking and I thought—"
+
+"What did you think?"
+
+"I thought: anyone could look up. Anyone could look up right now and see my hands on her. And the thought didn't stop me. It made me harder."
+
+JingJing's hand tightened. Jan's breath caught.
+
+"Keep going," JingJing said.
+
+"I pulled the shirt up. Over your hips. You were wet — you'd been wet since dinner, since I put my hand on your knee under the table and you—"
+
+"I spread my legs under the tablecloth and dared you to go higher."
+
+"And I went higher."
+
+"And Lin was sitting across from us."
+
+"Lin was sitting across from us and I was touching you under the table and you were eating pad thai with a straight face and I have never in my life been more in love with you than I was at that moment."
+
+JingJing pushed Jan onto her back. Climbed on top. The shirt bunched around her waist. She sank down — not slowly, not carefully, just *down*, taking Jan in one stroke that made them both stop breathing for a second.
+
+"Oh, *fuck*—"
+
+"Keep talking," JingJing said, and started to move. "The balcony. What happened next."
+
+Jan's hands gripped her hips. The grip that was reflex, instinct, the body's answer to the question JingJing's body was asking.
+
+"I bent you over the railing. Your hands were on the metal. It was cold — you gasped when your palms touched it."
+
+"I remember the cold." JingJing's rhythm found its stride — deep, rolling, the motion that maximized every inch of Jan inside her. "What else."
+
+"I pushed into you from behind. Slow. You tried to be quiet."
+
+"I failed."
+
+"You failed immediately. The first stroke. You said my name loud enough that I heard it echo off the building across the street."
+
+"Daddy," JingJing said, and the word had the double weight now — the memory and the present tense, the balcony and the bed, the past and the happening.
+
+"I put my hand over your mouth," Jan said. "And you bit me."
+
+"I bit you because you hit that spot—" JingJing changed her angle, clenched around Jan's cock, found the place that made her vision white out, "—*this* spot, Daddy, right there, oh god, right *there*—"
+
+"And someone on the street yelled."
+
+"What?"
+
+"Someone on the street yelled. A vendor. He was closing his stall and he dropped something and yelled and you — you froze. For one second. I was inside you and you were gripping the railing and we both heard the yell and I felt you clench around me so hard I almost came."
+
+JingJing was riding faster now. The bed moved. The headboard tapped the wall. Noo-Noo on the shelf, facing away, button eyes to the plaster.
+
+"The fear," JingJing breathed. "The second where I thought someone saw us. I was so scared and so wet and so — the combination, P'Jan, the fear and the — it was like electricity, it was—"
+
+"I know. I felt it. You got wetter. When you were scared, you got wetter."
+
+"Because the scared part and the turned-on part live in the same place and I can't separate them and I don't want to and — Daddy — *Daddy* — I'm close, I'm so—"
+
+Jan sat up. Wrapped her arms around JingJing's waist. Pulled her flush, chest to chest, the ring on the chain pressing between them. JingJing's legs locked behind Jan's back. The angle deepened. The penetration went from deep to devastating.
+
+"The balcony," Jan said against her ear. "After the vendor yelled. You didn't stop. You pushed back against me harder. You said—"
+
+"'Don't stop.'"
+
+"You said 'don't stop, don't stop, don't you dare stop,' and I didn't, and you came on that balcony with the street below us and the moon above us and your hands white-knuckled on the railing and your whole body shaking and—"
+
+JingJing came. Here, in the bed, in the present tense — the orgasm triggered by the memory and the reality layered on top of each other, the balcony and the bedroom, the railing and Jan's arms, the past where they were reckless and the present where they were still reckless, always reckless, constitutionally incapable of the kind of caution that would have prevented a blurry photo from appearing on a fan archive account.
+
+She came hard and loud, the way she always came — Jan's name and Daddy and fragments of Thai and English tangled together, the sound filling the apartment, the sound that carried through walls and floors and was, in its own way, a confession louder than any photograph.
+
+Jan came a minute later — inside her, buried, JingJing's arms tight around her neck, the two of them wound so close together that the ring chain imprinted itself on both their chests in a single, shared mark.
+
+Afterward. Still tangled. Breathing slowing.
+
+"The photo is blurry," JingJing said.
+
+"The photo is blurry."
+
+"Nobody can prove it's us."
+
+"Nobody can prove it's us."
+
+"But it is us."
+
+"It's us." Jan kissed her temple. "It will always be us."
+
+JingJing pressed her face into Jan's neck. The place where Jan's pulse lived, the place that smelled like Jan's soap and Jan's skin and the specific, unreplicable combination that JingJing's brain had wired directly into the dopamine pathway marked *home*.
+
+"Thirty-four days," JingJing murmured.
+
+"Thirty-four days."
+
+"And then we won't need balconies."
+
+"We'll still use them."
+
+"Obviously."
+
+---
+
+## Chapter 16: The Trap
+
+Jan planned it on a Tuesday.
+
+She sat in the production office during a lighting setup, pretending to answer emails on her phone, and mapped it out. The abandoned conference room on the third floor — the one with the broken air conditioner that nobody used because it was 35 degrees inside and smelled like carpet glue. The room had been repurposed as overflow storage for the costume department: garment racks, boxes of fabric, a fitting mirror that had been retired after its stand broke. It had one door. The door had a lock. The lock worked.
+
+She knew this because she'd checked.
+
+The route: elevator to three, left at the hallway, past the fire exit, third door on the right. The hallway was a dead end — no through traffic, no reason for anyone to be there unless they were looking for a specific box of costumes, which they wouldn't be, because Jan had texted Fah that morning with a fabricated question about Wine's wardrobe change for the afternoon scene and Fah had confirmed that everything was already on the ground floor.
+
+The timing: 1:15 p.m. Lunch break ran until 1:45. The crew ate from 12:30 to 1:00 and then dispersed — smokers to the loading dock, nappers to the greenroom, Prae to her office with the door closed. Sirin ate with the crew and then typically spent the post-lunch period reviewing footage in the editing suite, which was on the first floor, at the opposite end of the building.
+
+Thirty minutes. Third floor. Empty hallway. Locked door.
+
+Jan didn't think about what she was doing as planning something dangerous. She thought about what she was doing as *solving a problem*. The problem was: she wanted JingJing. Specifically, she wanted JingJing's mouth on hers and JingJing's body under hers and the sound JingJing made when Jan's hand closed around her throat — the sound that was halfway between a gasp and a prayer, the sound that meant *yes, harder, I trust you*. The problem was logistical. The solution was architectural.
+
+She texted JingJing at 12:47.
+
+**Jan:** Third floor. Room 312. 1:15. Door will be unlocked.
+
+**JingJing:** 👀
+
+**Jan:** Bring yourself. Nothing else required.
+
+**JingJing:** What if someone
+
+**Jan:** I've checked. Nobody goes up there. It's the old conference room.
+
+**JingJing:** The hot one that smells like glue?
+
+**Jan:** Yes.
+
+**JingJing:** You want to fuck me in a room that's 35 degrees and smells like carpet adhesive.
+
+**Jan:** I want to fuck you against the fitting mirror.
+
+Three dots appeared. Disappeared. Appeared again.
+
+**JingJing:** 1:15.
+
+---
+
+JingJing arrived at 1:17. Two minutes late because she'd run into Ciize in the stairwell — Ciize coming down from the Ditto set on the fourth floor, script pages in one hand and an energy drink in the other, the harried expression of someone living between two productions and sleeping in neither.
+
+"Where are you going?" Ciize asked.
+
+"Costumes. Third floor storage."
+
+"There's nothing up there except old fabric and that broken mirror."
+
+"I need a specific fabric. For — reference."
+
+Ciize looked at her. Ciize had the eyes of someone who had been in the EWB cast long enough to recognize JingJing's lying face, which was identical to JingJing's truth face except for one tell: when JingJing lied, her left hand went to the chain. When JingJing told the truth, her hands stayed at her sides.
+
+JingJing's left hand was on the chain.
+
+"Have fun with your fabric," Ciize said, and continued down the stairs with the exact expression of a person who knew exactly what was happening and had decided, firmly, comprehensively, to not be involved.
+
+Room 312. JingJing opened the door. Jan was already inside.
+
+The room was exactly as advertised: hot, airless, smelling of carpet glue and old fabric. Garment racks lined the walls. Boxes of unused costumes were stacked in the corner. The fitting mirror — full-length, standing, its cracked base shimmed with folded cardboard — leaned against the far wall, reflecting the room back at itself.
+
+Jan was leaning against the wall beside the mirror. Arms crossed. The Lal costume — blazer off, white shirt rolled to the elbows, the trousers that fit like they'd been built on her body. She looked like she'd been waiting. She looked like she'd been waiting for exactly this: JingJing in the doorway, backlit, the Wine dress still on from the morning's scenes, the chain just visible at the collar.
+
+JingJing closed the door. Locked it. Turned around.
+
+"It's a million degrees in here," she said.
+
+"You're overdressed, then."
+
+"I'm in costume."
+
+"Take it off."
+
+"Jan, I can't wrinkle the costume, wardrobe will kill me—"
+
+"Then let me."
+
+Jan crossed the room. Three steps. Her hands went to the zipper at the back of the Wine dress — found it, held it, waited. The waiting was the power. The waiting was Jan saying *I can unzip this whenever I want but I'm giving you the second to say no*, and JingJing not saying no, and the silence between the offer and the acceptance containing everything.
+
+The zipper went down. Slow. Each tooth releasing with a small metallic sound that was obscenely loud in the quiet room. The dress loosened around JingJing's body. Jan peeled it off her shoulders — carefully, respecting the fabric, folding the dress once and draping it over a garment rack with the precision of someone who understood that they were about to do something that would destroy this room's plausible deniability and was at least going to keep the costume intact.
+
+JingJing stood in her underwear, the chain, and the heat. The mirror reflected her back at herself: small, flushed, the sheen of sweat already forming on her collarbones in the dead air of the room.
+
+Jan looked at her in the mirror. JingJing looked at Jan looking at her in the mirror.
+
+"Come here," Jan said.
+
+"No."
+
+"No?"
+
+"Make me."
+
+The two words that started everything. The two words that had started the dressing room a year ago and had started every escalation since — the dare, the challenge, the brat throwing down the gauntlet and waiting for Jan to pick it up and use it.
+
+Jan picked it up.
+
+She was behind JingJing in one step, hands on her waist, mouth against the back of her neck, teeth grazing the vertebrae. JingJing's head fell back against Jan's shoulder. In the mirror: both of them, Jan behind JingJing, Jan's hands spanning her waist, JingJing's body arching into the contact.
+
+"You planned this," JingJing said.
+
+"I planned this."
+
+"You checked the hallway and the schedule and Sirin's location and you planned this like a — like a heist."
+
+"I planned it because I want you. Here. Now. In this room." Jan's hand slid from her waist to her stomach, down, fingertips at the waistband of her underwear. "I want you to watch."
+
+"Watch what?"
+
+"The mirror." Jan turned them both to face it. JingJing's reflection stared back — wide-eyed, lips parted, Jan's hands on her body, Jan's mouth at her ear. "I want you to see what I see. What I see when I touch you. I want you to watch my hands on you and know that this is what I'm thinking about every second of every day on this set — during every take, every interview, every time Sirin asks me a question about chemistry. This. You. My hands on your body. This is the real show."
+
+JingJing couldn't look away from the mirror. Couldn't look away from the image of Jan's hand sliding into her underwear, Jan's fingers finding the wet heat that had been building since the text, since *1:15*, since *I want to fuck you against the fitting mirror*.
+
+"Daddy—"
+
+"Watch."
+
+JingJing watched. In the mirror: Jan's wrist flexing, the tendons visible under the rolled-up sleeve, the forearm doing the work, two fingers deep inside JingJing, whose reflection was — flushed, gasping, one hand braced against the garment rack, the other reaching back to grip Jan's hip and pull her closer.
+
+"You see this?" Jan murmured against her ear. "This face. The way your mouth opens. The way your eyes go unfocused. This is what I see in my head during every single take, JingJing. When Prae says 'action' and I'm supposed to be Lal, I see *this*. I see you coming apart in my hands. I've been seeing it all day. I've been hard since 10 a.m."
+
+"Show me."
+
+Jan pressed forward. The hardness against JingJing's lower back — through the trousers, thick, the full length making itself known. JingJing ground back against it and made a sound that carried, that would carry through walls if walls were thin, but these walls were thick and the floor was empty and Jan had checked.
+
+"Turn around," Jan said.
+
+JingJing turned. Jan lifted her — hands under her thighs, up, JingJing's legs around her waist, JingJing's back against the mirror. The glass was cool against her sweat-damp skin. She gasped at the contrast — hot room, cold mirror, Jan's body furnace-warm against her front.
+
+"Here?" JingJing said.
+
+"Here." Jan freed herself from the trousers — the unzip, the reach, the cock freed and pressing against JingJing's underwear, which was soaked, which had been soaked since the text, since *bring yourself, nothing else required*.
+
+Jan pulled the underwear aside. Pushed in. Slow, thick, the angle that the position allowed — deep, gravity-assisted, JingJing's body weight helping her sink onto Jan until there was nowhere left to go.
+
+"*Oh god*—" JingJing's voice bounced off the walls of the small room. The garment racks rattled. A box of costume accessories shifted on its shelf.
+
+"Quiet," Jan said, and they both knew she didn't mean it.
+
+"I can't be — you're so deep, I can't — *Daddy* —"
+
+Jan fucked her against the mirror. Slow strokes that used gravity and the angle and the solid glass behind JingJing's back, each one a full withdrawal and a full return, each one drawing a sound out of JingJing that was louder than the last.
+
+The mirror fogged where their bodies pressed against it. JingJing's shoulder blades left streaks in the condensation. Jan's hands left prints on the glass — five-fingered proof, evidence, the kind of thing that a forensic team could use and that Jan was not, at this moment, thinking about even slightly.
+
+"I'm gonna come," JingJing said. "I'm gonna come and I can't be quiet and I don't care, I don't CARE, Daddy, let me—"
+
+"Come."
+
+JingJing came against the mirror, against Jan, around Jan, the orgasm hitting her like a wave that started in her core and rolled outward until her whole body was shaking, legs locked around Jan's waist, hands clawing at her shoulders, the sound she made — *Daddy Daddy Daddy Daddy* — filling the room like a bell being struck.
+
+Jan came inside her thirty seconds later, forehead pressed to JingJing's, eyes open, watching JingJing's face the way she watched everything about JingJing — with total attention, with the dedication of someone who had given her entire perceptual apparatus to a single subject and had never once wanted it back.
+
+They stayed like that. Against the mirror. Breathing.
+
+"Thirty-five degrees," JingJing said.
+
+"At least."
+
+"I'm soaked."
+
+"In which sense?"
+
+"Both."
+
+Jan laughed against her neck. Set her down. JingJing's legs were unreliable for a moment — she gripped the garment rack, steadied herself. Jan tucked herself back into the trousers. Zipped up. The efficiency of someone who had become expert at the transition from sex to set and could accomplish it in under ninety seconds.
+
+JingJing retrieved the Wine dress from the rack. Stepped into it. Jan zipped her up — the same zipper, the same teeth, the same metallic sound, now in reverse: the closing of something that had been opened.
+
+They checked the mirror. The mirror was fogged, streaked, covered in handprints and shoulder marks and the unmistakable evidence of what had happened against its surface.
+
+"We should wipe that," JingJing said.
+
+"With what?"
+
+They looked at the room. Costume boxes. Garment racks. Fabric.
+
+"Vintage silk?" JingJing offered.
+
+"We are not wiping sex off a mirror with vintage silk."
+
+"Then it stays."
+
+"It stays."
+
+"For whoever finds it."
+
+"Nobody comes up here."
+
+"Someone will eventually come up here and find a mirror covered in — in fog prints and handprints and — P'Jan, there's a BUTT PRINT."
+
+"That's your butt print."
+
+"I KNOW WHOSE BUTT PRINT IT IS."
+
+Jan unlocked the door. Checked the hallway. Empty. They walked to the elevator. Professional distance. Colleague distance. The distance that meant nothing and proved nothing and was, at this point, the most transparent performance in the building.
+
+---
+
+They made it back to the ground floor at 1:43. Two minutes before the end of lunch break. Fah was waiting at the elevator.
+
+Fah looked at them. At Jan's flushed face. At JingJing's slightly disarranged hair. At the sheen of sweat on both of them that was not consistent with a building that had functioning air conditioning on every floor except the third.
+
+"Where were you?" Fah asked.
+
+"Checking on costumes," Jan said. "Third floor storage."
+
+"Both of you?"
+
+"JingJing had a fabric question."
+
+Fah looked at JingJing. JingJing's left hand was on the chain. The lying tell. Fah knew the tell because Fah had been cataloguing JingJing's tells for a year the way an ornithologist catalogued birdsong.
+
+"The third floor," Fah said. "The floor that nobody uses. The floor with the broken air conditioning and the conference room that has a lock."
+
+"It also has costume storage," Jan said.
+
+"It also has a FITTING MIRROR, P'Jan."
+
+Jan's face betrayed nothing. Jan's face was excellent. JingJing's face betrayed everything — the flush, the eyes, the specific post-sex glow that JingJing could not suppress because JingJing's body was an open broadcast system with no off switch.
+
+Fah took a breath. Released it. Took another.
+
+"Do you two have a *death wish*?"
+
+Jan and JingJing looked at each other. The look passed between them — quick, private, the look that contained an entire conversation conducted in a language only two people spoke. The conversation was: *do we?*
+
+And the answer, transmitted in the space between their eyes: *no. We have a life wish. We have a wish to live exactly like this, touching each other in rooms we've chosen, on surfaces we've claimed, in the minutes we've carved out of a schedule that doesn't belong to us. We have a wish to be alive in the most specific, physical, undeniable way possible, and if that looks like a death wish from the outside, it's only because the outside can't see what we see from the inside, which is: each other. Only each other. Always each other.*
+
+They didn't say any of this.
+
+"We were looking at fabric," JingJing said.
+
+Fah stared at her. Then at Jan. Then at the ceiling, as if asking it for strength.
+
+"I'm adding the third floor to the restricted zone," Fah said. "I'm telling the PAs that the third floor is off-limits due to structural concerns. If anyone asks, there's a water leak. There is no water leak. The water leak is a metaphor for my sanity, which is LEAKING."
+
+"Fah—"
+
+"And I'm moving the fitting mirror. I'm moving it to the GROUND FLOOR, to a ROOM WITH WINDOWS, where you cannot — where nobody can—" She stopped. Pressed her clipboard against her chest like a shield. "I love you both. I love you and I want you to be happy and I want your wedding to be beautiful and Noo-Noo is going to look PERFECT on the ring pillow. But if you don't start helping me keep you alive, I am going to have a breakdown that will require hospitalization and then who will build the pillow harness? WHO?"
+
+"We'll be more careful," Jan said.
+
+"You said that after the dressing room."
+
+"We'll be more careful this time."
+
+"You said THAT after the dressing room TOO."
+
+In the group chat, thirty seconds later:
+
+**Fah:** Third floor. 1:15 to 1:43. Conference room with the mirror.
+
+**Lin:** No.
+
+**Fah:** YES.
+
+**Lin:** How bad?
+
+**Fah:** The mirror is fogged, P'Lin.
+
+**Lin:** I'm going home.
+
+**Prae:** Is Sirin accounted for?
+
+**Fah:** Editing suite. First floor. Confirmed.
+
+**Prae:** Small mercies.
+
+**Lin:** I'm going home and I'm not coming back.
+
+**Fah:** You're coming back tomorrow at 7 am like you always do because you love them too much to let them destroy themselves.
+
+**Lin:** I hate that you're right.
+
+**Fah:** I hate that I have to be.
+
+---
