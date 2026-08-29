@@ -2027,14 +2027,1004 @@ In the other room, on the left pillow of the left bed, Noo-Noo waited patiently,
 
 ---
 
-*[To be continued...]*
+## Chapter 11: The Balcony
+
+The Chiang Mai dinner was a mistake.
+
+Not the dinner itself — the dinner was fine. Sixteen people around a long table at a restaurant in the old city, plates of khao soi and sai ua and som tam, bottles of Leo and Chang sweating in the humid night air. The director gave a short, slightly tipsy toast about creative vision. The DP told a story about a camera malfunction on a film he'd shot in Myanmar that had everyone laughing. Lin did an impression of the showrunner that was accurate enough to be dangerous.
+
+It was a good night. A warm night. The kind of night that loosened people's shoulders and blurred the lines between colleagues and friends.
+
+The mistake was the wine.
+
+JingJing didn't drink often. She didn't need to — her personality was already operating at maximum volume without chemical assistance. But the wine was good, and the night was warm, and Jan was sitting next to her with her sleeves rolled up and her forearms on the table and JingJing had a thing about Jan's forearms — the tendons, the veins, the way they looked when Jan was holding a glass — and one glass became two became three.
+
+Three glasses of wine turned JingJing from a brat into a puddle.
+
+Not a horny puddle. A *soft* puddle. Wine made JingJing clingy in a way that was so far from her public persona it was practically a different person. Wine JingJing wanted to be held. Wine JingJing wanted forehead kisses. Wine JingJing wanted to crawl into Jan's lap in front of God and the entire crew and press her face into Jan's neck and stay there.
+
+Wine JingJing had extremely poor impulse control.
+
+"You're listing," Jan said, halfway through the second bottle. JingJing's shoulder was pressed against hers. Not the subtle, plausibly-deniable press of a colleague in a tight seating arrangement. A full lean. A deliberate tilt of her entire body toward Jan, gravity redirected.
+
+"I'm not listing. I'm comfortable."
+
+"You're leaning on me."
+
+"Your shoulder is comfortable. It's ergonomic."
+
+"It's conspicuous."
+
+"Nobody's looking."
+
+People were, in fact, looking. Not obviously. Not with the open-mouthed stare of spectators at an accident. But with the discreet, peripheral attention of people who had noticed something they didn't want to acknowledge noticing. The gaffer glanced over and then very quickly became interested in his beer. The sound mixer's wife nudged her husband and he shook his head in a *not now* gesture.
+
+Fah, at the far end of the table, was watching with the expression of someone who was trying very hard to telepathically communicate *P'JingJing, you are leaning on your secret girlfriend in front of the entire crew, please desist*.
+
+JingJing did not desist.
+
+Under the table, her hand found Jan's thigh. Not sexually — gently. She rested her palm there and left it, the way you'd rest your hand on something that belonged to you, something warm and solid and yours.
+
+Jan didn't move the hand. Jan covered it with her own.
+
+Their fingers laced together under the tablecloth. Invisible to everyone. Visible to each other. And to Fah, who had craned forward and could just make out the angle of their arms and was now staring at the ceiling with the expression of a woman begging a higher power for patience.
 
 ---
 
-**Upcoming:**
+Later. After dinner. The hotel.
 
-- **The night they almost get caught** — a crew member sees something they shouldn't, and Jan and JingJing have to decide: deny, confess, or let the truth surface on its own
-- **Mook's last stand** — the final escalation, JingJing's response, and the aftermath
-- **The proposal** — Jan's plan finally deploys. JingJing is, despite herself, surprised.
+The crew dispersed to their rooms. Goodnight's echoed along the open-air corridors. Doors closed. The night settled.
+
+Jan and JingJing's suite was at the end of the second-floor corridor. They walked there together — no point in arriving separately when everyone knew they were sharing the room — and JingJing was weaving slightly, not drunk but wine-warm, loose at the edges, her hand tucked into the crook of Jan's elbow.
+
+"I want to sit on the balcony," JingJing said.
+
+"It's midnight."
+
+"The balcony, Jan. Please. Five minutes."
+
+"Your 'five minutes' are never five minutes."
+
+"Please?"
+
+Jan unlocked the door. JingJing went straight to the left bed, collected Noo-Noo, and carried her to the balcony — a narrow rectangle of tile overlooking the moat, the old city wall, the dark mass of the mountains beyond. The air smelled like frangipani and motorbike exhaust and rain that hadn't fallen yet.
+
+JingJing settled into the single balcony chair — a battered rattan thing with a faded cushion — and made a sound that communicated, with absolute clarity, that she was not going to move from this chair voluntarily.
+
+"There's only one chair," Jan observed.
+
+"I know."
+
+"So where do I—"
+
+"*Lap.*" JingJing patted her thighs. Noo-Noo was in one arm. The other was extended toward Jan in the universal gesture of *come here and sit on me, you enormous beautiful idiot*.
+
+"I'm not sitting on your lap. I'll crush you."
+
+"You won't crush me."
+
+"JingJing, I'm—"
+
+"Sit. On. My. Lap."
+
+Jan, against every principle of physics and common sense, sat on JingJing's lap.
+
+Or rather — she sat in the chair and JingJing rearranged herself so that she was in Jan's lap instead, which had clearly been the plan all along, and Jan realized she'd been maneuvered and JingJing grinned the grin of someone who had won a war her opponent didn't know was being fought.
+
+JingJing curled into Jan's chest. Noo-Noo pressed between them. Her face tucked into Jan's neck, nose against the pulse point, breathing her in — wine and sandalwood and the night air and *Jan*.
+
+"Hi," JingJing mumbled.
+
+"Hi."
+
+"I love you."
+
+"You've had three glasses of wine."
+
+"I love you when I'm sober too. The wine just removes the filter."
+
+"You don't have a filter when you're sober."
+
+"I have *some* filter. A small one. Like a coffee filter. The kind that lets everything through but catches the really big chunks."
+
+Jan was laughing. The quiet, chest-shaking kind. JingJing felt it vibrate through her ribs.
+
+"You're ridiculous," Jan said.
+
+"You love it."
+
+"I do."
+
+"Kiss my forehead."
+
+Jan kissed her forehead. Slow. Lingering. Her lips warm against JingJing's skin, pressing the words she didn't say directly into JingJing's frontal lobe.
+
+"Again."
+
+Another kiss. Her temple this time.
+
+"Again."
+
+The bridge of her nose.
+
+"Again."
+
+Both eyelids. One, then the other. JingJing's lashes fluttered against Jan's lips.
+
+"Again."
+
+Jan pulled back. Looked down at her. In the blue-dark of the Chiang Mai night, with the moat gleaming below and the mountains a jagged black line against the stars, JingJing's face was soft and open and completely undefended. No brat. No bravado. No performance. Just a girl in someone's lap, holding a stuffed rabbit, asking to be kissed.
+
+Jan kissed her mouth.
+
+Soft. Slow. The wine on JingJing's tongue, sweet and warm. JingJing kissed back with her whole body — leaning in, hand finding the back of Jan's neck, fingers in her hair. The kiss deepened without urgency, without the escalation that usually followed their mouths meeting. It stayed slow. Stayed tender. Two people on a balcony in the dark, kissing because kissing was the only language that said enough.
+
+JingJing's hand slid down Jan's chest. Over her stomach. Into her lap.
+
+"Jing—"
+
+"I know. Balcony. I know." Her fingers traced the outline through Jan's joggers. Feeling the shape of her — not hard yet, but stirring, thickening under JingJing's palm. "I don't care."
+
+"Someone could see us."
+
+"We're on the second floor. Who's going to look up?"
+
+"Anyone. The crew's rooms are—"
+
+"Jan." JingJing's hand wrapped around her through the fabric. Squeezed gently. Jan's breath hitched. "I don't care. I want you. Here. Right now. Under the stars. With the mountains and the moat and Noo-Noo as a witness."
+
+"We are not involving Noo-Noo."
+
+JingJing placed Noo-Noo carefully on the balcony floor, leaning against the wall, face turned away. "Noo-Noo is looking at the wall. She sees nothing. She knows nothing."
+
+"This is insane."
+
+"Yes."
+
+"Someone from the crew could walk past."
+
+"Yes."
+
+"You want to do this anyway."
+
+"*Yes.*"
+
+Jan looked at her. The war on her face — responsibility versus want, caution versus the girl in her lap, the producer versus the person who loved this woman so much it felt like a structural deficiency — played out in the space of three seconds. Want won. Want always won, eventually, when JingJing was involved.
+
+"Come here," Jan said.
+
+JingJing shifted. Turned. Straddled Jan's lap in the narrow rattan chair, knees bracketing Jan's hips, and the change in position pressed them together — JingJing's center against Jan's cock, which was hardening rapidly now, swelling against her through the thin layers between them.
+
+JingJing rolled her hips. Slow. A grind, not a thrust, pressing down against Jan's length, feeling it grow under her. Jan's hands gripped her waist — tight, almost bruising, the grip of someone trying to hold onto something that was pulling them forward.
+
+"You feel so good already," JingJing whispered, mouth against Jan's ear. "You're getting so hard for me. Right here. On the balcony. Where anyone could—"
+
+"Stop talking about the balcony."
+
+"Why? Does it turn you on? The risk?"
+
+Jan's jaw clenched. Her hips rolled up — involuntary, a reflexive seeking of friction. JingJing felt the length of her pressing against her clit through fabric and gasped, the sound swallowed by the night.
+
+"It turns you on," JingJing said, delighted, grinding harder. "Oh my God. You like it. You like that someone could see us."
+
+"I like *you*. The balcony is — incidental."
+
+"Liar. You're rock hard and we haven't even taken anything off."
+
+This was true. Jan was fully erect now, straining against the joggers, and JingJing could feel every inch of her — the thick shaft, the curved head, the heat of her even through cloth. JingJing reached between them and pulled the waistband down, and Jan's cock sprang free, and in the silver-blue light of the Chiang Mai moon it was beautiful — flushed and heavy, curving to the left, a bead of moisture at the tip catching the light.
+
+JingJing lifted her hips. She was wearing the oversized t-shirt she slept in — Jan's, always Jan's — and nothing underneath. She'd taken her underwear off before dinner because she was, as Jan frequently observed, constitutionally incapable of making responsible choices.
+
+She positioned herself. Jan's hands tightened on her hips.
+
+"Quiet," Jan said. One word. An order. "The walls are thin and the windows are open and if you scream—"
+
+"I won't scream."
+
+"You always scream."
+
+"I'll be quiet. I promise."
+
+"JingJing—"
+
+She sank down.
+
+The sound she made was not quiet.
+
+It was a moan — low, guttural, pulled from somewhere deep — that she clamped off mid-way by biting her own lip hard enough to taste copper. Jan's cock slid into her in one smooth, devastating descent, her body opening around the familiar thickness, the stretch sending a wave of white heat from her center to her extremities. She took all of her. Every inch. Gravity assisting, pulling her down, and the angle — *God*, the angle. Sitting up like this, JingJing in Jan's lap, Jan's cock was deeper than deep. It pressed up into places that made JingJing's vision swim, the curved head nestled against the front wall of her, right against the spot, right *there*.
+
+"Oh—" JingJing's forehead dropped to Jan's shoulder. Her thighs trembled. She was seated fully, Jan's hips between her legs, and she couldn't move yet — she was too full, too stretched, the pleasure-pain of the initial penetration still ringing through her body like a struck bell. "Oh, *Daddy*—"
+
+"Shh." Jan's hand found the back of her head. Held her there. Her other arm wrapped around JingJing's waist — secure, anchoring. "Breathe. Adjust."
+
+JingJing breathed. In. Out. Felt her body soften around the intrusion. Felt the burn fade into a deep, rich ache that was all pleasure and no pain. Felt Jan pulse inside her — *inside* her, God, the intimacy of it, the animal fact of another person *inside your body* — and she started to move.
+
+Slow. Small movements. Not the frantic riding of the bedroom or the desperate grinding of the dressing room. Tiny, circular rolls of her hips — just enough to feel Jan shift inside her, just enough to drag the curved head across her g-spot in a way that made sparks cascade behind her eyes. She was working herself on Jan's cock with the focused, deliberate intensity of someone tuning an instrument.
+
+"Quiet," Jan reminded her, and JingJing nodded against her shoulder, biting Jan's shirt, because the sounds she wanted to make were enormous, were building in her chest like pressure in a pipe, and the effort of containing them was almost as intense as the pleasure itself.
+
+Below the balcony: the moat, still and dark. The old city wall, ancient stone lit by amber streetlights. A tuk-tuk puttered past, its engine sound fading into the distance. A dog barked once and stopped. The world continued, unaware that on a second-floor balcony of a boutique hotel, a woman was riding her lover in a rattan chair and trying not to wake the entire floor.
+
+JingJing's hips moved faster. The chair creaked — a rhythmic, damning sound that JingJing was too far gone to care about. Jan's hands gripped her ass, fingers sinking into the flesh, guiding her rhythm, controlling the depth, and JingJing let her — let Jan's hands set the pace, let the strength in Jan's arms lift and lower her, and the sensation of being *moved*, of being placed where Jan wanted her, pushed a whimper past the bite in Jan's shirt.
+
+"Daddy — I'm trying — I'm trying to be quiet but you're so *big* — I can feel you in my stomach — I can feel—"
+
+"I know." Jan's voice was wrecked. The control that was her hallmark, her defining trait, was in pieces. Her hips were moving now — small, sharp upward thrusts that met JingJing's downstrokes and drove her cock deeper, harder, and JingJing had to press both hands over her own mouth to trap the cry that wanted out.
+
+Behind her hands, muffled, desperate: "Harder — *please* — Daddy, harder — I can be quiet, I promise, just — *harder*—"
+
+Jan's arm banded around JingJing's waist. She planted her feet, braced herself, and fucked up into her.
+
+JingJing's eyes rolled back. Her hands fell from her mouth and Jan's hand replaced them — clamped over her lips, holding in the sounds that were now constant, a stream of smothered moans and keening whimpers that vibrated against Jan's palm. Jan drove into her from below with short, deep, brutal strokes — not the slow lovemaking of the bathtub but something rawer, something urgent, the rattan chair protesting with each thrust, and JingJing was shaking, trembling all over, her inner walls clenching and fluttering around Jan's cock in a way that Jan knew meant *close, close, close*.
+
+"Come for me," Jan breathed against JingJing's ear. "Quietly. I want to feel you come on my cock. Right here. Under the stars. Where anyone could see."
+
+JingJing came with a scream trapped behind Jan's hand.
+
+Her body locked — every muscle, every fiber, a full-system seizure of pleasure that radiated from where Jan's cock was buried inside her outward to her fingers, her toes, the crown of her head. Her inner walls clamped down in rhythmic, violent contractions — squeezing Jan's cock, milking it, the pressure so tight that Jan groaned and thrust up once more, hard, and came inside her with a force that JingJing felt as a physical event — a hot, pulsing flood that filled her and spilled over and ran down Jan's shaft and JingJing's thighs and she didn't care, couldn't care, was still coming, still clenching, still shaking apart in Jan's arms on a balcony in Chiang Mai.
+
+When it ended — when JingJing's body finally unclenched and her vision cleared and the world reassembled itself into recognizable shapes — she was slumped against Jan's chest, breathing like she'd run a marathon, Jan's hand still over her mouth.
+
+Jan removed her hand.
+
+"That," JingJing said hoarsely, "was not quiet."
+
+"No."
+
+"How not quiet?"
+
+"The hand helped. But the chair was loud."
+
+"The *chair*?"
+
+"The creaking."
+
+JingJing listened. The night was quiet. No doors opening. No voices. No evidence that anyone had heard them — but that was the kind of absence that could mean anything. Silence could mean ignorance. Silence could also mean discretion.
+
+"We're fine," JingJing said, with the serene confidence of someone who had chosen denial as a lifestyle.
+
+"We might be fine."
+
+"We're *fine*."
+
+A sound. Below them. Not a voice — a door. The quiet *click* of a hotel room door opening somewhere on the first floor, directly beneath the balcony.
+
+They froze.
+
+Footsteps on the ground-floor walkway. Light footsteps. Someone walking toward the courtyard.
+
+JingJing looked down. Through the balcony railing's gaps, in the amber wash of the corridor light below, she saw—
+
+Lin.
+
+Lin, the actress. Walking out of her ground-floor room, phone in hand, earbuds in, clearly heading for a late-night walk. Lin, who would have to walk directly under the balcony to reach the courtyard.
+
+Lin, who was now looking up.
+
+Not at the balcony specifically. At the sky — tilting her head back, probably looking at the stars, doing the thing people did in Chiang Mai when the sky was clear and the light pollution was low and the Milky Way was actually visible. A casual, incidental upward glance that would, in approximately two seconds, bring Jan and JingJing's balcony into her line of sight.
+
+Jan moved.
+
+She lifted JingJing — physically lifted her off her lap, her cock sliding free, and JingJing gasped at the sudden emptiness — and pushed her inside, through the open balcony door, into the dark of the hotel room. JingJing stumbled, caught herself on the bed, and turned to see Jan standing in the balcony doorway, pulling the curtain half-shut, tucking herself back into her joggers with one hand in a motion so fast and practiced it bordered on sleight of hand.
+
+Jan stepped into the room. Closed the balcony door. Drew the curtain.
+
+They stood in the dark. Breathing. Heart rates in the triple digits.
+
+"Did she see?" JingJing whispered.
+
+"I don't know."
+
+"Jan. Did she *see*?"
+
+"I don't *know*. She looked up. I moved. The timing was—" Jan exhaled. "—close."
+
+"Close."
+
+"Very close."
+
+Silence. Then JingJing started laughing.
+
+It started as a snort — suppressed, strangled — and escalated into full, hysterical, shaking laughter, the kind where she had to sit on the bed because her legs wouldn't hold her, and Jan stared at her for three seconds and then started laughing too, and they laughed in the dark hotel room — JingJing on the bed, Jan against the wall, both of them disheveled and sex-wrecked and leaking and terrified — until JingJing's ribs ached.
+
+"We have a problem," Jan said, wiping her eyes.
+
+"We have *several* problems."
+
+"The primary problem is that we cannot keep our hands off each other."
+
+"That's not a problem. That's a feature."
+
+"It's a feature that's going to get us caught."
+
+"Maybe." JingJing pulled Jan's shirt — the one she was wearing — down over her thighs. "Would that be the worst thing?"
+
+Jan looked at her. In the dark room, with only the ghost of moonlight through the curtain, JingJing's face was a study in contrasts: smeared mascara, bitten lips, the beginning of a hickey on her neck — and underneath all of it, the question she kept asking with her body that she couldn't quite bring herself to ask with words.
+
+*Can we stop hiding?*
+
+"No," Jan said slowly. "It wouldn't be the worst thing. But I want it to happen on our terms. Not because a crew member looked up at the wrong time."
+
+"On our terms."
+
+"On our terms. After—" Jan stopped. Reconsidered. Chose her words like she was choosing cut flowers, carefully and with intention. "After I do the thing I'm going to do."
+
+"The thing with the ring?"
+
+"The thing with the ring."
+
+"The ring in the sock drawer."
+
+"JingJing."
+
+"I moved it, by the way."
+
+"...What?"
+
+"The ring. It's not in the sock drawer anymore. I moved it to the bedside table. Bottom drawer. Behind the melatonin."
+
+Jan stared at her.
+
+"Why would you *move* it?"
+
+"The sock drawer was a terrible spot! What if we had guests? What if someone borrowed socks? The bedside table is much safer."
+
+"You — you moved my engagement ring — the ring I'm going to use to *propose to you* — to a location *you* selected — so that when I go to get it—"
+
+"You'll know exactly where it is. You're welcome."
+
+Jan opened her mouth. Closed it. Opened it again. Nothing came out.
+
+JingJing beamed at her from the bed.
+
+"You're a menace," Jan said finally.
+
+"I'm *your* menace."
+
+"That makes it worse."
+
+"That makes it everything."
+
+JingJing held out her arms. The universal gesture. *Come here. Hold me. Be the big spoon. Let me press my face into your neck and fall asleep breathing you in.*
+
+Jan went. Because she always went. Because there was no version of the universe in which JingJing held out her arms and Jan didn't cross whatever distance existed between them.
+
+They lay in the left bed. Noo-Noo was still on the balcony.
+
+"I forgot Noo-Noo," JingJing said.
+
+Jan got up. Went to the balcony. Retrieved Noo-Noo. Brought her back. Placed her carefully on the pillow next to JingJing's head.
+
+"Thank you," JingJing said. Small. Grateful. The smallest, most grateful voice in her entire vast collection of voices.
+
+"You're welcome."
+
+"Kiss my forehead?"
+
+Jan kissed her forehead. Then pulled the duvet over both of them and held JingJing the way JingJing needed to be held — fully, completely, wrapped around her like a second skin — and JingJing fell asleep in under a minute, the way she always did when she felt safe.
+
+Jan lay awake a little longer. Thinking about Lin. About the balcony. About timing and luck and the shrinking distance between their private world and their public one.
+
+About the ring, which was apparently now in the bedside table behind the melatonin, because the love of her life was an unhinged, magnificent, impossible woman who had reorganized her own proposal.
+
+Jan smiled in the dark and fell asleep.
+
+---
+
+## Chapter 12: Mook's Last Stand
+
+They returned to Bangkok on a Thursday morning with location footage, sunburns, and a secret that had acquired approximately three new witnesses in Chiang Mai, all of whom were pretending very hard that they hadn't seen what they'd seen.
+
+Lin never mentioned the balcony. She greeted Jan and JingJing the next morning at breakfast with perfectly normal warmth, discussed the shooting schedule, complimented the khao soi at the hotel restaurant, and gave absolutely no indication that she had or hadn't looked up at precisely the wrong moment the night before.
+
+This was, JingJing decided, either the behavior of someone who hadn't seen anything, or the behavior of someone who had seen *everything* and had decided, with preternatural grace, to be cool about it. Either way, JingJing owed her a fruit basket.
+
+Fah, on the other hand, was not cool about it.
+
+"P'JingJing," Fah said on the bus back to Bangkok, sliding into the seat next to her with the expression of someone about to deliver a lecture, "can we discuss something?"
+
+"That depends. Is 'something' my personal life?"
+
+"'Something' is the fact that I had to tell three crew members that the creaking sound from above their room was a broken ceiling fan."
+
+JingJing froze. "A broken ceiling fan."
+
+"A broken ceiling fan. That I reported to the hotel management. Who were confused because they had no broken ceiling fans."
+
+"Fah—"
+
+"I handled it. But I would like to state, for the record, that my job description is 'personal assistant,' not 'architect of plausible deniability for my boss's sex life.'"
+
+"Technically, Jan's your boss. I'm creative development."
+
+"You're both my boss and you're both menaces and I love you and *please stop having sex in places with thin walls.*"
+
+JingJing looked at Fah — really looked at her. Twenty-three years old. Ponytail. Clipboard. The fierce, exasperated loyalty of someone who had chosen a hill and was going to die on it with full knowledge that the hill was insane.
+
+"Thank you," JingJing said. Sincerely. "For the ceiling fan."
+
+"You're welcome. Please buy me dinner."
+
+"Done."
+
+"And tell me everything."
+
+"*Fah.*"
+
+"Not the sex parts! I don't want the sex parts! I want — the other parts. The parts where you look at each other like the rest of the world doesn't exist. Those parts are beautiful and I want to witness them with full context."
+
+JingJing's eyes stung. She blinked hard. "You're going to make me cry on a bus."
+
+"Good. You owe me at least three tears for the ceiling fan lie."
+
+---
+
+Back in Bangkok. Back on set. Back to the routine of twelve-hour shooting days and separate arrivals and professional distance maintained by willpower and the slowly fraying thread of everyone's collective agreement not to acknowledge what was obvious.
+
+Mook was waiting for them.
+
+Not literally. Mook was in wardrobe, getting fitted for the next episode's court lady costume — layers of silk, an elaborate chignon, a look that transformed her from a twenty-six-year-old actress into a 17th-century noblewoman with secrets. She looked, JingJing grudgingly admitted, spectacular.
+
+But Mook was waiting in the way that a chess player waits — moves already planned, openings already identified. Chiang Mai had sharpened something in her. Whether she'd heard gossip from the crew, or simply sensed a shift in the energy between Jan and JingJing, or was acting on pure instinct and ambition — something had changed. Her interest in Jan, which had been persistent but manageable, escalated.
+
+It started the day they came back.
+
+Mook brought Jan lunch. Not a snack from a corner shop — a full bento from a high-end Japanese restaurant near the studio, arranged in a lacquered box with a handwritten note. JingJing, who was eating convenience store onigiri at her desk, watched Mook set the box on Jan's desk with a smile that could have peeled paint.
+
+"Thought you might like something nice after the trip," Mook said. "You work so hard."
+
+Jan looked at the bento. "This is very kind, Mook. But you really don't have to—"
+
+"I wanted to." Mook's hand rested on Jan's desk. Near Jan's hand. Not touching, but close enough that the space between their fingers had a charge. "I appreciate everything you do for the production. For *me*."
+
+JingJing's onigiri developed the taste and texture of wet newspaper. She ate it anyway, because she was a professional who was not going to throw rice at a colleague, no matter how much that colleague deserved to have rice thrown at her.
+
+---
+
+Day two. Mook again.
+
+This time it was a gift. A small one — a carved wooden figure, some kind of charm, wrapped in tissue paper and presented to Jan between takes with an intimacy that made JingJing's left eye twitch (it *did* twitch, Jan was right about that, it was a tell she'd never been able to train away).
+
+"I got it at the night market," Mook said. "For luck. I thought of you."
+
+"You thought of me," Jan repeated. Neutral. Processing.
+
+"You have a way of — making people feel safe. On set. I wanted you to know that I notice."
+
+*I notice.* The words were innocuous. The delivery was not. Mook said *I notice* the way a sniper said *I have the shot* — quiet, precise, loaded with intent.
+
+Jan accepted the gift. Said thank you. Placed it on her desk. Returned to the monitor to review the last take.
+
+JingJing stood behind camera two and breathed through her nose and thought about the ring in the bedside drawer and the forehead kisses and the way Jan said *you're my baby* and the fact that Mook could bring an entire department store of carved wooden charms and it would not change the fundamental architecture of the universe, which was: Jan was hers. Jan had always been hers. Jan would always be hers.
+
+This helped. Slightly.
+
+---
+
+Day three. Mook escalated.
+
+It was late afternoon. The set was clearing for a lighting change. Most of the crew had stepped out for air or caffeine. Jan was in the corner of the soundstage, sitting on an apple box, reviewing her phone.
+
+Mook sat next to her. Close. Too close. Their knees touching.
+
+"P'Jan," Mook said, and her voice was lower now, pitched for privacy, for intimacy. "Can I ask you something personal?"
+
+Jan looked up from her phone. "Of course."
+
+"Are you seeing anyone?"
+
+The air changed. JingJing, who was across the soundstage pretending to review continuity notes, felt the shift like a barometric drop — the kind that preceded storms.
+
+"Why do you ask?" Jan said. And here — here was the thing that drove JingJing insane, the quality in Jan that was simultaneously her greatest strength and her most catastrophic blind spot — Jan's voice was genuinely curious. Not deflecting, not uncomfortable, not reading the subtext. *Genuinely curious* why Mook was asking, as if the bento and the charm and the knee-touching and the four months of escalating attention had been a random assortment of collegial gestures with no unifying thesis.
+
+"Because," Mook said, and she put her hand on Jan's knee, "I'd like to take you to dinner. If you're free."
+
+JingJing's continuity notes crumpled in her fist.
+
+Jan looked at Mook's hand on her knee. Looked at Mook's face. And JingJing watched — from across the soundstage, through the forest of c-stands and light rigs and cable runs — as the realization landed.
+
+Jan *finally* saw it.
+
+It hit her face in stages: surprise, then comprehension, then a kind of embarrassed alarm that JingJing would have found hilarious if she hadn't been on the verge of committing a crime. Jan's mouth opened, closed, opened again. She was, for possibly the first time in her adult life, at a loss.
+
+"Mook," Jan said carefully, "I'm — flattered. Really. But I — I am. Seeing someone."
+
+"Oh." Mook's hand withdrew from Jan's knee. A tiny retreat, but graceful — Mook was too poised to show much. "I didn't know. You're very private."
+
+"I am. She — we're private."
+
+"She?"
+
+"Yes."
+
+Mook nodded. Absorbed this. Then: "Anyone I know?"
+
+Jan's pause was infinitesimally too long.
+
+Mook's eyes moved. Slowly. Across the soundstage. Past the c-stands and the lights and the cables. And found JingJing.
+
+JingJing, who was standing thirty feet away with a crumpled continuity sheet in her fist and an expression on her face that was not even slightly ambiguous.
+
+Mook looked at JingJing. Looked at Jan. Looked at JingJing again.
+
+"Oh," Mook said. Softer this time. A different *oh*. The *oh* of a puzzle completed, of scattered data points suddenly assembling into a picture that had been there all along. "I see."
+
+"Mook—"
+
+"No, it's — it's fine. It makes sense, actually." Mook smiled, and the smile was genuine and a little rueful and entirely without malice. "The way you two argue. It was never really arguing, was it?"
+
+"It was definitely arguing," Jan said. "But also — no. Not just arguing."
+
+Mook stood. Smoothed her costume. Looked at Jan with an expression that was generous in the way that only someone who truly liked the person they were losing to could be generous.
+
+"She's lucky," Mook said.
+
+"I'm the lucky one."
+
+"You're both wrong. You're both lucky." She glanced across the soundstage at JingJing. Raised her voice slightly, just enough to carry. "P'JingJing, you can stop crushing the continuity notes. I come in peace."
+
+JingJing unclenched her fist. The continuity sheet was beyond salvage.
+
+"Sorry about the notes," JingJing said.
+
+"Sorry about your girlfriend's knee."
+
+And that was it. The end of the siege. Mook walked back to the wardrobe area with the grace of someone who knew when to fold, and Jan sat on the apple box looking stunned, and JingJing crossed the soundstage and sat next to her and said absolutely nothing for thirty seconds.
+
+Then: "She asked you to dinner."
+
+"Yes."
+
+"And you said—"
+
+"I said I was seeing someone."
+
+"You said *she*."
+
+"Yes."
+
+"To Mook. On set. Where people could hear."
+
+"There was nobody—"
+
+"Jan. You *came out to someone*."
+
+Jan blinked. The full weight of what she'd done — not the confession itself, which was small, but the door it opened, which was enormous — settled onto her shoulders like a coat. She looked at JingJing.
+
+"I did," she said.
+
+"How do you feel?"
+
+Jan was quiet for a moment. Then: "Relieved."
+
+JingJing's eyes filled. She blinked hard. Sniffed. Looked at the ceiling, which was a grid of lights and rigging that offered no emotional support whatsoever.
+
+"Don't cry on set," Jan said.
+
+"I'm not crying. I'm having an allergic reaction."
+
+"To what?"
+
+"To you being perfect."
+
+Jan's mouth twitched. She looked at JingJing — on an apple box, on a soundstage, in the middle of a shooting day, with crumpled continuity notes and wet eyes — and she took JingJing's hand. Right there. In the open. Where anyone walking in would see.
+
+JingJing looked at their joined hands. Looked at Jan.
+
+"People will see," JingJing said.
+
+"Let them."
+
+---
+
+## Chapter 13: The Proposal
+
+Jan's plan was good.
+
+Jan's plan was, in fact, meticulous, comprehensive, and emotionally calibrated to a degree that suggested she had been thinking about it every waking moment for approximately six weeks, which she had.
+
+The plan involved:
+
+1. A weekend trip to Hua Hin (booked under a false name, because the press was starting to pay attention after a viral behind-the-scenes clip showed Jan adjusting JingJing's collar with an intimacy that broke the internet for thirty-six hours).
+
+2. A beachfront villa with a private pool and a king-sized bed and a balcony overlooking the Gulf of Thailand (the balcony was a deliberate callback, and Jan had allowed herself a small, private smile when she booked it).
+
+3. Sunset. The golden hour. The sky doing that thing it did in Hua Hin where the reds and oranges melted into the water and the world looked like it had been art-directed by God.
+
+4. The ring. Moved — by JingJing, the insufferable brat — to the bedside table behind the melatonin. Jan had moved it again, to her overnight bag, in a zippered pocket, where JingJing would not find it because JingJing did not go through Jan's overnight bag because Jan's overnight bag was organized and JingJing found organized things boring.
+
+5. Words. Jan had written words. Not a speech — she would never call it a speech — but a careful, deliberate assembly of sentences that said what she needed to say in the right order with the right weight. She'd drafted them on her phone in the notes app, revised them eleven times, read them out loud in the shower, and memorized them to the syllable.
+
+The plan did not survive contact with JingJing.
+
+---
+
+They arrived in Hua Hin on Saturday morning. The villa was beautiful — white walls, teak floors, frangipani trees flanking the entrance. The pool was small and blue and perfect. The bed was enormous.
+
+JingJing set Noo-Noo on the left pillow. Explored the bathroom. Opened every cabinet. Tested the water pressure. Bounced on the bed. Stepped onto the balcony and inhaled the salt air and said "I could live here" with the casual certainty of someone who said that about every beautiful place and meant it every time.
+
+Jan unpacked. Placed the ring — in its box, in its zippered pocket — in the safe in the closet. JingJing was in the bathroom and didn't see. The safe required a four-digit code. Jan used JingJing's birthday. This was sentimental and also a terrible security practice, but Jan was not thinking about security. Jan was thinking about the fact that in approximately eight hours, she was going to ask JingJing to marry her, and her hands would not stop shaking.
+
+---
+
+The day was perfect. Unreasonably perfect, the kind of perfect that felt scripted, as if the universe had decided to cooperate for once and give Jan the backdrop she needed.
+
+They swam. They ate mango sticky rice on the beach. They walked along the shore with their pants rolled up and their feet in the surf, and JingJing held Jan's hand in public, in the open, where anyone could see, and it felt — for the first time — natural. Unremarkable. Like the most normal thing in the world.
+
+JingJing had brought Noo-Noo to the beach. She sat the rabbit on a towel under an umbrella, facing the sea, and said "Noo-Noo deserves a vacation too" with an expression of absolute sincerity.
+
+Jan took a photo. JingJing did not know about the photo. Jan would frame it later, and it would sit on her desk in the production office, and when people asked who the rabbit belonged to, Jan would say "someone important" and leave it at that.
+
+At 4 p.m., Jan excused herself to "take a shower" and retrieved the ring from the safe. She held it in her palm. A simple band — white gold, a small diamond, understated, elegant. She'd chosen it because it looked like JingJing: beautiful without trying, sharp enough to catch the light, small enough to fit perfectly.
+
+Her hands were shaking.
+
+She put the ring in her pocket. Went back to the beach.
+
+JingJing was lying on a towel with her eyes closed, sun-warm and lazy, wearing a white bikini top and denim shorts and looking so beautiful that Jan had to stop walking for a second and just stand there and look at her and think: *I get to keep this person. I get to keep this person for the rest of my life.*
+
+"Come sit," JingJing said without opening her eyes. "You're blocking my sun."
+
+Jan sat. The ring in her pocket pressed against her thigh. The sun was beginning its descent, and the sky was shifting from blue to gold with the gradual, theatrical certainty of something designed.
+
+This was the moment. The plan said: wait for sunset. Wait for the golden hour. Wait for the sky to turn.
+
+JingJing rolled onto her side. Opened her eyes. Looked at Jan.
+
+"You're being weird," JingJing said.
+
+"I'm not being weird."
+
+"You've checked your pocket four times in the last two minutes."
+
+Jan's hand, which had been drifting toward her pocket again, froze.
+
+"What's in your pocket?" JingJing asked.
+
+"Nothing."
+
+"Jan."
+
+"Nothing."
+
+"Is it the ring?"
+
+The world tilted.
+
+"Is it—" Jan stared at her. "How — you can't possibly—"
+
+"You moved it from the bedside table. I noticed. You took it when you 'unpacked.' You put it in the safe in the closet. You used my birthday as the code, because you're romantic and predictable. And you just went to 'take a shower' but your hair is dry."
+
+Jan opened her mouth. No sound came out.
+
+"Also," JingJing said, "you've been vibrating at a frequency I've never seen before, and you only vibrate like that when you're about to do something important, and the only important thing left to do is—"
+
+"I was going to wait for sunset," Jan said. Helplessly. The plan — the meticulous, comprehensive, emotionally calibrated plan — disintegrating in real time.
+
+"The sunset is in two hours."
+
+"I know."
+
+"I can't wait two hours."
+
+"JingJing—"
+
+"I can't wait *two more minutes*." JingJing sat up. Her eyes were bright. Not with tears — not yet — but with the particular, incandescent intensity of a person who had been waiting for something for months and could feel it arriving and was constitutionally incapable of letting it arrive on anyone else's schedule.
+
+"Give me the ring," JingJing said.
+
+"That is not how proposals work."
+
+"Give me the ring and then take it back and then give it to me again properly. I won't look at it. I'll close my eyes."
+
+"*JingJing.*"
+
+"Fine! Fine. Do it your way. But do it *now*. Please. I'm begging you. I will literally die if I have to sit here for two more hours knowing it's in your pocket."
+
+Jan looked at her. JingJing on a beach towel, knees pulled up, arms wrapped around them, chin resting on top. Sand in her hair. Sun on her face. Noo-Noo under the umbrella behind her, bearing witness with one good eye.
+
+The plan said sunset. The plan said golden hour. The plan said the right words in the right order at the right time.
+
+But JingJing was looking at her like *that* — like Jan was the entire world, like Jan was the sunrise and the sunset and every hour in between — and the plan, Jan realized, had never been about the sunset. The plan had been about *this*. This exact look. This exact person. This exact moment, which didn't need a golden sky or a perfect backdrop because it *was* the perfect backdrop. It was always the perfect backdrop. Wherever JingJing was, that was the right place. Whenever JingJing was ready, that was the right time.
+
+Jan reached into her pocket. Pulled out the ring box. JingJing's breath caught — an audible, full-body hitch, the sound of someone watching something they already knew was coming and being devastated by it anyway.
+
+Jan got on one knee.
+
+"Oh God," JingJing whispered. "Oh God, oh God—"
+
+"JingJing." Jan opened the box. The diamond caught the late-afternoon light and threw a small, sharp rainbow onto the sand. "I had a speech."
+
+"You don't need a speech."
+
+"I had *words*."
+
+"I don't need words."
+
+"I need to say them." Jan's voice was steady. Her hands were not — the ring box trembled slightly in her fingers — but her voice was steady and her eyes were clear. "I need to say them because I spent six weeks writing them and you found the ring in the sock drawer and moved it and ruined the hiding spot and none of that matters because the words are the part that matters."
+
+JingJing's lips pressed together. Her chin wobbled. She nodded.
+
+"I never hated you," Jan said. "I know I've said that before but I need to say it again, here, because it's the beginning of the story and you need to hear it at the beginning. I never hated you. I was terrified of you. You were so bright and so loud and so *much*, and I didn't know what to do with that, so I fought it. I fought you. And you fought back, because you're you, and the fighting felt like the only safe way to be close to you."
+
+JingJing's tears started. Silent. Running down her face without any effort to stop them.
+
+"But then you grabbed my wrist. In the dressing room. And you said *don't you dare stop*. And my whole life changed. Not gradually. Not in stages. All at once, like a light turning on in a room I didn't know was dark."
+
+Jan swallowed. The ring box was still trembling.
+
+"You are the bravest person I know. You brought a stuffed rabbit on our first night together and dared me to laugh. You eat cereal at midnight. You took your underwear off at work. You need forehead kisses and you fight me for the TV remote and you move my engagement ring to a better hiding spot because you care about the logistics of your own proposal."
+
+JingJing laugh-sobbed. A wet, messy, beautiful sound.
+
+"You are soft and fierce and ridiculous and sacred and I want to hold you every night for the rest of my life. I want to wash your hair. I want to keep Noo-Noo safe. I want to be the one you come to when the world is too loud. I want to be your big spoon."
+
+"You're always my big spoon," JingJing whispered, barely audible.
+
+"I want to be your big spoon forever." Jan held up the ring. "Will you marry me?"
+
+JingJing was off the towel before Jan finished the sentence. She crashed into Jan — literally crashed, tackled, took her down onto the sand — and Jan fell backward and JingJing was on top of her kissing her face, her mouth, her cheeks, her forehead, saying "yes" between every kiss, "yes yes yes yes *yes*—"
+
+"I need to put the ring on—"
+
+"Yes—" *kiss* "—yes—" *kiss* "—yes, put it on, give it to me—"
+
+Jan grabbed JingJing's left hand. JingJing was shaking — full-body tremors, the kind that came from an emotional overload so intense the nervous system couldn't handle it and started offloading into the musculoskeletal system. Jan held her hand steady. Slid the ring onto her finger.
+
+It fit perfectly. Of course it did. Jan had stolen one of JingJing's rings two months ago to get the size, and JingJing had noticed it was missing and torn the apartment apart looking for it and Jan had watched the search with the serene composure of a criminal mastermind.
+
+JingJing looked at her hand. At the ring. At the small diamond catching the sun.
+
+"It's beautiful," she said, and her voice cracked on the second syllable like a dropped glass.
+
+"It's yours."
+
+"*You're* mine."
+
+"I've been yours since the dressing room."
+
+JingJing kissed her. On the sand. On a beach in Hua Hin. In the open, in the daylight, with the Gulf of Thailand shimmering behind them and Noo-Noo watching from under the umbrella and no walls, no glass doors, no secrecy — just two people who had been enemies, then something else, then something else again, and were now, finally, irrevocably, permanently each other's.
+
+"I knew it was coming," JingJing said against Jan's mouth. "I knew about the ring. I knew about the trip. I figured out the safe code."
+
+"And?"
+
+"And I was still surprised." She pulled back. Looked at Jan with red eyes and sand in her hair and the most radiant smile Jan had ever seen on a human face. "You surprised me. *You* always surprise me."
+
+Jan pulled her close. Held her on the beach. Pressed her lips to JingJing's forehead — a forehead kiss to end all forehead kisses, the period at the end of the longest sentence of her life — and JingJing closed her eyes and leaned into it and the sun began its descent behind them, painting the sky in reds and golds that neither of them was watching, because they had found something brighter.
+
+---
+
+Later that night.
+
+The villa. The king-sized bed. The balcony doors open to the sound of waves.
+
+JingJing lay on her back with Jan's head on her chest, Jan's arm draped across her stomach, the ring on her left hand catching the moonlight. Noo-Noo was tucked between the pillows, presiding over the scene with the benevolent indifference of a stuffed rabbit who had seen it all.
+
+"When do we tell people?" JingJing asked.
+
+"Whenever you want."
+
+"Can we tell Fah first? She's earned it."
+
+"She's definitely earned it."
+
+"And then everyone?"
+
+"And then everyone."
+
+"On set?"
+
+"Wherever you want. However you want. I'm done hiding." Jan lifted her head. Looked at JingJing. "I was done hiding the night I told Mook. Maybe I was done hiding before that. But now—" She touched the ring on JingJing's finger. "Now there's proof."
+
+JingJing looked at the ring. At Jan. At the moonlit room and the open balcony and the infinite, terrifying, glorious future that stretched ahead of them — messy and loud and full of Noo-Noo and forehead kisses and arguments that were really foreplay and midnight cereal and the ever-present, ever-astonishing fact of being loved by someone who saw all of you, every version, the baby and the brat and the woman in between, and chose all of it. Every time. Without hesitation.
+
+"Take me to bed," JingJing said.
+
+"You're *in* bed."
+
+"Take me to bed *properly*. Like it's our first night as — as fiancées."
+
+The word. *Fiancées*. It hung in the air between them, newly minted, still shiny.
+
+Jan rolled over. Propped herself on one elbow. Looked down at JingJing with an expression that was soft and dark and full — full of everything they'd been and everything they were becoming.
+
+"Hi, fiancée," Jan said.
+
+"Hi, fiancée."
+
+"Can I kiss you?"
+
+"You never have to ask."
+
+"I always want to ask."
+
+Jan kissed her. Deep and slow and thorough, the kind of kiss that was a conversation — a long, open-ended, endlessly interesting conversation conducted entirely in breath and pressure and the movement of mouths. JingJing's hand — the one with the ring — cupped Jan's jaw, and Jan turned her face into it and kissed her palm, kissed the ring, kissed the finger it sat on.
+
+"I want to feel you," JingJing whispered. "All of you. Go slow."
+
+"Slow."
+
+"Like the bathtub. Like—" She swallowed. "Like you have forever. Because you do."
+
+Jan undressed her with the care of someone unwrapping something irreplaceable. The t-shirt first — lifted over JingJing's head, fingers trailing down her arms. Then the shorts — slipped over her hips, down her legs, off. JingJing lay bare on the white sheets with the moonlight on her skin and the ring on her finger and her eyes on Jan.
+
+"You're so beautiful," Jan said, and the words sounded different tonight — weighted, consecrated, as if the proposal had changed the meaning of every word they'd ever used.
+
+JingJing reached for her. Pulled Jan's shirt off. Tugged at her boxers. Jan helped — kicking them off, sliding between JingJing's legs, and they were skin to skin, nothing between them, and JingJing could feel her against her inner thigh — thick, warm, growing hard with the inevitable certainty that always made JingJing's breath catch.
+
+Not the urgent hardness of the dressing room. Not the demanding hardness of the morning shower. Something quieter. Slower. An arrival, not an ambush.
+
+Jan kissed her throat. Her collarbones. The valley between her breasts. She took her time — mouth moving over JingJing's body with the attention of someone memorizing a map, lips and tongue tracing the geography of her: the soft skin under her arms, the curve of her ribs, the dip of her navel. She kissed the bruises she'd left — the finger-marks on JingJing's hips from the balcony, the faint bite on her inner thigh from two nights ago — kissed them softly, apologetically, adoringly.
+
+JingJing lay still and let herself be worshipped.
+
+This was hard for her. Harder than being fucked hard, harder than being loud, harder than any scene they'd ever played. Lying still and receiving tenderness without deflecting it — without a quip, without a bratty provocation, without the protective shell of humor — was the most vulnerable JingJing could be. And she was doing it. Lying open and soft and quiet while Jan's mouth traveled her body and her fingers traced patterns on the sheets.
+
+"Daddy," JingJing whispered. Not a command. Not a provocation. A name. The truest name.
+
+"Baby," Jan whispered back. Not a diminutive. Not a joke. A name. The truest name.
+
+Jan settled between her legs. Took herself in hand and pressed the head of her cock against JingJing's entrance — slick, hot, the softest pressure, not pushing in, just resting there. A question.
+
+"Yes," JingJing said. "Please."
+
+Jan pushed in.
+
+Slowly. So slowly. An inch, and then a pause. Another inch, and another pause. Each increment accompanied by the sound of JingJing's breath changing — getting shorter, higher, a series of small gasps that were not screams, not moans, but something more delicate, more private. The sounds of a body opening. Of a body receiving.
+
+JingJing's hand — the one with the ring — found Jan's face. Held it. They looked at each other as Jan sank deeper. Eye contact maintained through the stretch, through the fullness, through the slow, overwhelming invasion of one body into another. JingJing's eyes were wet and wide and so open it was almost unbearable.
+
+"I feel you," JingJing breathed. "All of you. Every inch."
+
+"I feel you too."
+
+"It's never felt like this before."
+
+"I know."
+
+"It's because of the ring. It changed something. Everything. I don't know how to—"
+
+Jan kissed her. Took the last inches slowly, sinking to the hilt, and JingJing's breath left her in a long, shuddering exhale — not a scream, not a cry, but a *release*, the sound of something held tight finally letting go.
+
+They moved together. Slow. Synchronized. The rocking of two bodies that knew each other so well the rhythm was instinctive — rise and fall, tension and release, the deep, rolling undulation of Jan's hips matched by the welcoming tilt of JingJing's. The sounds were quiet: the whisper of sheets, the soft wet connection of their bodies, the breathing that was almost in unison but not quite, offset by half a beat, a counterpoint.
+
+JingJing's legs wrapped around Jan's waist. Her ankles locked at the small of Jan's back. She held Jan's face in both hands — ring glinting in the moonlight — and looked at her and looked at her and looked at her, and the pleasure built the way it always did when they went slow — not in spikes but in waves, each one deeper than the last, a tide coming in.
+
+"I love you," JingJing said. Not a declaration. A fact of physics. Water was wet. Gravity pulled down. JingJing loved Jan.
+
+"I love you," Jan said back. Another fact. The complementary law.
+
+"I'm going to come."
+
+"Okay."
+
+"Stay inside me."
+
+"Always."
+
+"Come with me."
+
+"Always."
+
+JingJing came like something breaking open. Not violently — *softly*. Like a flower. Like a door. Like a wall coming down between two rooms that had always been part of the same house. Her body pulsed around Jan's cock in long, slow, rolling contractions, and Jan felt them and matched them, her own orgasm rising to meet JingJing's, and they came together — genuinely together, synchronized, their bodies doing the thing their hearts had been doing for months: finding the same rhythm, holding it, sustaining it past the point where either of them could sustain it alone.
+
+Jan came inside her. Hot and deep and slow, not the urgent flood of the balcony or the shower but something gentler — a filling, a completeness, the liquid fact of two bodies becoming as close as two bodies could become.
+
+JingJing held her through it. Arms around Jan's neck, legs around Jan's waist, face pressed to Jan's shoulder, and she was crying again — quietly, without effort, the overflow kind — and Jan held her and didn't tell her to stop because some tears needed to fall and some feelings needed to leak and some moments were too full for a single body to contain.
+
+They lay tangled. Breathing. The waves outside. The moonlight on the sheets.
+
+"Hi, fiancée," JingJing whispered.
+
+"Hi, fiancée."
+
+"Can I have a forehead kiss?"
+
+Jan kissed her forehead.
+
+"Can I have another one?"
+
+Jan kissed her forehead again.
+
+"Can I have approximately one million?"
+
+Jan laughed — the quiet, vibrating, full-body kind — and kissed JingJing's forehead again, and again, and again, and JingJing closed her eyes and smiled and held Noo-Noo with one hand and Jan's hand with the other and the ring caught the moonlight one more time, a small bright point in the dark, a star you could wear, a promise with a price tag and a forever attached.
+
+---
+
+## Epilogue: Monday Morning
+
+Monday.
+
+Bangkok.
+
+The production office.
+
+Jan arrived at 7:45 with her iced Americano. She said good morning to the PAs. Checked the wall planner. Sat at her desk.
+
+JingJing arrived at 7:58 with her iced Thai tea. She dropped her bag at her desk. Opened her laptop.
+
+Fah materialized.
+
+"Good morning, P'JingJing, how was your week—" Fah stopped. Her eyes dropped to JingJing's left hand, which was resting on the desk, next to the laptop, ring finger up, the diamond catching the fluorescent overhead light with the discreet sparkle of something very expensive and very new.
+
+Fah's mouth opened.
+
+"Don't scream," JingJing said.
+
+Fah's mouth opened wider.
+
+"Fah. *Fah.* This is a workplace. Do not—"
+
+Fah screamed.
+
+It was not a large scream. It was, by Fah's standards, a restrained scream — a sharp, truncated shriek that lasted maybe two seconds and drew the attention of approximately everyone in the open-plan office.
+
+"RING!" Fah shouted, pointing at JingJing's hand. "THERE IS A RING ON YOUR HAND."
+
+"Fah—"
+
+"P'JAN!" Fah whirled toward Jan's desk. Jan was sitting very still, iced Americano raised halfway to her mouth, wearing an expression of perfect serenity that was undermined only slightly by the fact that her ears were red. "P'JAN, DID YOU—"
+
+"Yes," Jan said.
+
+"AND SHE SAID—"
+
+"Obviously," JingJing said.
+
+Fah stood between their desks, hands clasped to her chest, eyes glistening, vibrating at a frequency that suggested imminent structural failure.
+
+"I knew it," Fah whispered. "I knew it since the wrap party. Since the *taxi*."
+
+"You told us," JingJing said.
+
+"I told everyone. Nobody believed me."
+
+"Somebody believed you," said Nong Gift from across the office, not looking up from her screen. "I owe P'Fah two hundred baht."
+
+"You *bet* on us?" JingJing said.
+
+"The entire office bet on you," Gift said. "The pot is significant."
+
+JingJing looked at Jan. Jan looked at JingJing. Around them, the office was stirring — heads turning, whispers spreading, the gentle, gathering murmur of people who were surprised and not surprised in equal measure, who had watched two women circle each other for a year and fight for four months and love each other for four more and were, on the whole, relieved that it was finally, officially, publicly settled.
+
+Lin looked up from her phone. Smiled. Said nothing. Went back to her phone.
+
+Mook, who was in the office for a fitting, glanced at the ring and said, "Congratulations, P'JingJing," with a warmth that was genuine and an acceptance that was complete.
+
+"Thank you," JingJing said. "And I'm sorry about — the continuity notes."
+
+"I never liked those notes anyway."
+
+The director walked in, saw the ring, saw the two red-eared leads, and said, "Finally. Now can you two please channel this into the show and make me look like a genius?"
+
+"Yes, Khun Prae," they said in unison.
+
+Prae nodded. Went to her office. The door closed.
+
+The morning continued. Phones rang. Emails arrived. The wall planner had seventeen new entries. The coffee station was out of oat milk.
+
+Under their desks, six feet apart but bridged by the invisible line that had always connected them — from the first fight to the first kiss to the first *Daddy* to the first *I love you* to the ring and the beach and the rest of their lives — JingJing's foot found Jan's ankle.
+
+Jan pressed back.
+
+The secret was over.
+
+The story was just beginning.
+
+---
+
+**THE END**
+
+---
+
+**Author's Note:**
+
+Thank you for reading *After Hours*. This fic was about a lot of things — power dynamics and tenderness, the space between performance and truth, what it means to let someone see the softest parts of you — but mostly it was about two women who loved each other with the full, contradictory, magnificent mess of themselves. The brat and the baby. The Daddy and the fiancée. The stuffed rabbit on the pillow.
+
+If you want to see more — the wedding, married life, the show premiere, JingJing's pregnancy arc (if you're interested), more of their dynamic as they navigate being public, more Fah — let me know.
+
+JingJing and Jan's story isn't over. It's just out of the sock drawer.
 
 💚
