@@ -4780,3 +4780,345 @@ In the group chat, thirty seconds later:
 **Fah:** I hate that I have to be.
 
 ---
+
+## Chapter 17: Sirin Knows
+
+Sirin asked for the meeting on a Friday. Off the record. Just the two of them. A coffee place off campus — not the GMMTV canteen, not the production office, somewhere neutral, somewhere that didn't smell like set lights and urgency.
+
+Jan said yes because Jan said yes to most things and because the part of her brain that should have registered *off-the-record meeting with the journalist who has been watching you for six weeks* as a threat was still occupied by the memory of JingJing against the fitting mirror two days ago, which had been replaying on a loop behind Jan's eyes like a film she'd directed and starred in and couldn't stop screening.
+
+The coffee place was in Lat Phrao. Small. Quiet on a Friday afternoon. Sirin was already there when Jan arrived — corner table, iced latte, notebook closed. The notebook being closed was notable. In six weeks on set, Jan had never seen Sirin without the notebook open.
+
+Jan ordered a black coffee. Sat down. Looked at Sirin the way she looked at most people who weren't JingJing: with friendly, even attention, the warm but surface-level engagement of someone whose emotional bandwidth was almost entirely allocated elsewhere.
+
+"Thank you for meeting me," Sirin said.
+
+"Of course."
+
+"I want to be direct. Is that okay?"
+
+"I prefer it."
+
+Sirin wrapped both hands around her glass. The condensation wet her fingers. She was quiet for a moment — the specific quiet of someone choosing words with the care of a surgeon choosing instruments.
+
+"I'm not trying to out you," Sirin said. "I want you to hear that first, before anything else. I'm not trying to write an exposé. I'm not trying to break a story. I'm not trying to hurt you or JingJing or the production."
+
+Jan's coffee arrived. She wrapped her hands around the cup. Mirrored Sirin's posture without realizing it.
+
+"Okay," Jan said.
+
+"I've been on your set for six weeks. I've watched you work. I've watched the crew. I've watched the way people move around you and JingJing — the choreography of it, the coordination. I've watched Fah appear in doorways. I've watched Lin leave rooms. I've watched your director redirect conversations with a precision that borders on military."
+
+"Prae is very professional."
+
+"Prae is protecting you. The whole crew is protecting you. They're protecting you from *me*, which I understand and respect, and they're protecting you from something else — something you don't seem to know you need protection from."
+
+Jan drank her coffee. The bitterness grounded her. She was listening — really listening, the way she listened to direction from Prae, with the full attention of someone who recognized competence and gave it space.
+
+"What I'm trying to write," Sirin said, "is something true. About the space between performance and reality. About what happens when two people play a love story and the love story becomes — or already was — real. I've been writing about this phenomenon for years. I've written about GL couples who perform chemistry and go home to separate lives. I've written about couples who perform chemistry and go home together. The difference between those two things is visible, if you know how to look."
+
+"And you know how to look."
+
+"I do. It's my job." Sirin paused. "Jan. I'm not asking you to confirm anything. I'm not asking for a quote. I'm asking for your trust — to let me write something beautiful about something real, without naming what I can see."
+
+The coffee shop was quiet. A blender whirred behind the counter. Traffic moved outside the window. A motorcycle courier checked his phone under a canopy.
+
+Jan looked at Sirin. Really looked — past the journalist, past the notebook, past the professional apparatus. At the woman underneath. Early thirties. Careful eyes. The specific quality of someone who cared about the truth and cared about the people the truth belonged to and understood that those two things were sometimes in conflict.
+
+"You already know," Jan said.
+
+It was the closest Jan had come to saying it. To anyone. To the world outside the apartment and the garden and the twelve people who would stand under a mango tree in thirty-two days.
+
+"I know what I see," Sirin said. "I see two people who love each other. I see a crew that loves them. I see a production that has become a container for something genuine. I see a ring on a chain that JingJing touches forty times a day."
+
+Jan's breath caught. Forty times a day. Sirin had counted.
+
+"I see you," Sirin continued. "Off-script. Saying things to JingJing that aren't in any screenplay. Looking at her like the room is empty when it's full. I see the way your body orients toward her — automatic, gravitational. I see the way the crew flinches when you touch her face, because the crew knows what I know and the crew is afraid, and you're not afraid because you don't seem to know there's anything to be afraid of."
+
+"I'm not afraid."
+
+"I know. That's the story, Jan. That's the piece. Two people so in love they've become immune to fear, and sixty people who love them enough to be afraid on their behalf."
+
+Jan put down the coffee. Looked at her hands. At the ring she wore on her right hand — the one that matched JingJing's, the one she wore openly because nobody except Fah and Prae and the twelve wedding guests knew it was a matching set.
+
+"I want to say yes," Jan said.
+
+The words came out before the thinking. Before the calculation, the risk assessment, the careful weighing of consequences that Jan was supposed to do and never did because JingJing had colonized the part of her brain where caution used to live.
+
+"I want to say yes, we're together, we're engaged, we're getting married, she's the love of my life and I can't keep my hands off her and the reason Lin looks like she's going to faint every day is because she knows and it's killing her. I want to say all of that. I've wanted to say it for a year."
+
+"But."
+
+"But it's not just my story. It's JingJing's. It's the crew's. It's the show's. If I say yes to you, I'm saying yes for all of them, and I don't have the right to do that."
+
+Sirin nodded. Slowly. The nod of someone who had expected this answer and respected it.
+
+"Then I won't ask," Sirin said. "I'll write what I can see, and I'll leave the center empty, and the reader can draw their own conclusions. The piece will be about the phenomenon — about performance and truth and the space between them. It won't name what you are to each other. It won't have to."
+
+"Because anyone who reads it will know."
+
+"Because anyone who reads it will *feel* it. And feeling is different from knowing. Knowing requires proof. Feeling requires — attention."
+
+They sat with this. Two women in a coffee shop, on opposite sides of a table, on opposite sides of a truth that one of them carried and the other had observed. The traffic moved. The blender stopped. The silence was comfortable — the silence of two people who had reached an understanding without needing to formalize it.
+
+"Sirin," Jan said.
+
+"Yes?"
+
+"The piece you wrote before. 'Behind the Screen.' I read it."
+
+"When?"
+
+"Last night. After the third floor — after a thing that happened this week. I was lying in bed and JingJing was asleep and I googled you and read the piece and—" Jan stopped. Swallowed. "It was beautiful. It was fair. You wrote about those couples with — with care. Like their love mattered to you."
+
+"It does."
+
+"Why?"
+
+Sirin was quiet for a long moment. Her hands tightened on the glass. Something shifted behind her eyes — a door opening, briefly, onto something personal.
+
+"Because I know what it's like," Sirin said. "To love someone and not be allowed to say so. To perform one version of yourself while living another. I know how it feels, Jan. Personally. Not just professionally."
+
+The admission hung between them. Jan received it the way she received all important information: with the steady, amber-eyed attention that made people want to tell her things.
+
+"Thank you," Jan said. "For telling me that."
+
+"Thank you for meeting me."
+
+"Will you — one thing."
+
+"Name it."
+
+"When the time comes — when we're ready to tell our own story — will you let us tell it first? Before the piece runs. Will you give us that?"
+
+"Yes."
+
+"Promise?"
+
+"I promise."
+
+Jan finished her coffee. Stood. At the door, she turned back. Sirin was watching her — the journalist's gaze, the observer's attention, the specific, careful look of someone who was witnessing a love story from the outside and choosing, deliberately, to protect it.
+
+"She touches the ring forty times a day?" Jan said.
+
+"At least."
+
+"I never counted."
+
+"You don't need to count. You're the ring."
+
+Jan left. Drove home. Sat in the parking garage for five minutes with her hands on the wheel and her eyes on nothing, processing something that felt like the beginning of the end of hiding and the beginning of something else — something that didn't have a name yet but that tasted, when she tested it on her tongue, like relief.
+
+She went upstairs. JingJing was on the couch with Noo-Noo and her phone and a bowl of cereal she was eating with her hands.
+
+"How was coffee?" JingJing asked.
+
+"Sirin knows."
+
+JingJing's hand paused in the cereal box. "Knows what?"
+
+"Everything. Us. The ring. The crew. Everything."
+
+JingJing ate a handful of cereal. Chewed. Swallowed.
+
+"Good," she said.
+
+"Good?"
+
+"I'm tired of her not knowing. I'm tired of everybody performing around us like we're a bomb that might go off. At least now one more person knows the shape of the bomb."
+
+"She promised to let us tell our story first."
+
+"Do you believe her?"
+
+"Yes."
+
+"Then I believe her. Come eat cereal."
+
+Jan sat on the couch. JingJing swung her legs into Jan's lap. Noo-Noo sat between them, button eyes facing the TV, which was playing a cooking show neither of them was watching.
+
+"Thirty-two days," JingJing said.
+
+"Thirty-two days."
+
+"And then everybody knows."
+
+"And then everybody knows."
+
+JingJing held out the cereal box. Jan took a handful. They sat on the couch in the apartment they shared and ate cereal with their hands and watched a cooking show about pastries and the secret was still a secret but the circle had widened by one and the one was someone who understood and the understanding was, in its own way, a kind of mercy.
+
+---
+
+## Chapter 18: The Network
+
+Khun Dao's office was on the fourteenth floor of the GMMTV building. Corner office. Glass walls. A view of Bangkok that said *I make decisions about other people's lives from a room that overlooks the city those lives happen in.* The desk was immaculate. The woman behind it was immaculate. Khun Dao wore her hair in a geometric bob and her expressions the way most people wore clothes — deliberately selected, maintained throughout the day, swapped only when the occasion demanded.
+
+The occasion demanded.
+
+JingJing had done a press photo that morning — a promotional still for *Married to My Enemy*, shot in the GMMTV lobby against a backdrop of the show's purple-and-rose-gold palette. Standard stuff. Smile. Hit the mark. Hold the pose. The photographer had shot forty frames. JingJing had been flawless in thirty-nine of them.
+
+In the fortieth, she'd turned slightly to laugh at something Jan said off-camera, and the motion had pulled her blouse taut across her chest, and the outline of the ring on the chain — small, circular, unmistakable to anyone who knew what an engagement ring looked like when it was hidden under fabric — had been visible for exactly one frame.
+
+The photographer hadn't noticed. The lighting crew hadn't noticed. Jan, off-camera, had been too busy making JingJing laugh to notice.
+
+Khun Dao noticed.
+
+Khun Dao noticed because noticing was her profession. She reviewed every press image before release the way a bomb technician reviewed detonation sequences: carefully, methodically, looking for the one detail that would explode if it reached the public.
+
+The ring was the detail.
+
+She called them at 3 p.m. Both of them. "My office. Now."
+
+They sat across from her desk — two chairs, side by side, close enough that their elbows touched. They hadn't moved the chairs. The chairs were already that close because Khun Dao's assistant, who knew, had placed them that way months ago.
+
+Khun Dao turned her monitor around. The image filled the screen: JingJing, mid-laugh, blouse pulled taut, the circular outline of the ring visible under the fabric like a secret pressing to get out.
+
+"Tell me that's not what I think it is," Khun Dao said.
+
+JingJing's hand went to her chest. To the chain. The tell.
+
+"It's—" JingJing started.
+
+"It's an engagement ring," Jan said. Flat. Clear. The voice of someone who had spent six weeks hiding and had just been told, in a coffee shop, that hiding was a performance and the performance was over, and who had decided — in this moment, in this chair, with JingJing's elbow warm against hers — that she was done performing for this particular audience.
+
+Khun Dao was quiet for four seconds. Four seconds was, in Khun Dao's emotional vocabulary, the equivalent of a screaming breakdown.
+
+"How long?" Khun Dao asked.
+
+"The engagement? Five months."
+
+"The relationship?"
+
+"Over a year."
+
+Khun Dao looked at the ceiling. Then at the desk. Then at them.
+
+"I have managed this production's public image for eighteen months," she said. "I have coordinated your Instagram strategy. I have arranged press coverage. I have managed the fan account interactions. I have positioned both of you — carefully, precisely, with considerable expense and expertise — as the most compelling, most marketable, most *available* GL pair in the industry. Available. Do you understand what that word costs? Do you understand what the *possibility* of you is worth, commercially, to this network?"
+
+"We understand," Jan said.
+
+"The *possibility* — the *maybe* — the fans imagining, hoping, projecting — that is worth more than the *certainty*. The certainty is a news cycle. Twenty-four hours of trending, a week of think pieces, and then you're a confirmed couple and the fantasy is over and the fan accounts pivot from yearning to congratulations and the *energy* — the engine that drives your marketability — stalls."
+
+"Or," Jan said, "the certainty is the biggest story in Thai entertainment this year."
+
+Khun Dao looked at her.
+
+"Two women in a confirmed GL relationship," Jan said. "Not subtext. Not queerbait. Not fan service. Real. Engaged. Getting married. The first GL lead pair to go public while still actively producing content. Every entertainment outlet in Southeast Asia will cover it. Every fan account will amplify it. The fancon at Thunder Dome on November 21 — twelve thousand seats — will sell out in minutes instead of weeks."
+
+"That's one scenario."
+
+"What's the other?"
+
+"The sponsors pull out. The conservative audience base rejects it. The network takes a hit. The show gets reframed as a controversy instead of a romance. The documentary becomes an outing instead of a feature. Your careers become the story instead of your work."
+
+JingJing, who had been silent — which was unusual and should have been warning enough — spoke.
+
+"We're not asking permission."
+
+Khun Dao's geometric bob turned toward her.
+
+"We're not asking you to approve of our relationship," JingJing said. "We're informing you that we're engaged and that we intend to go public. The question isn't whether. It's when and how."
+
+"The *when* and *how* are exactly what I—"
+
+"The when and how are ours. Not the network's. We will not let you time our announcement to maximize ratings. We will not let you turn our engagement into a marketing event. We will not let you schedule our love for the Thursday before the fancon because it gives you a weekend news cycle."
+
+Khun Dao was quiet again. Longer this time. Six seconds.
+
+"Then what do you want?" she asked.
+
+"We want to go public on our terms," Jan said. "An Instagram post. Both accounts. Coordinated. Our words. Our timing. No press release. No scheduled exclusive. Just — the truth, when we're ready."
+
+"And when will you be ready?"
+
+Jan and JingJing looked at each other. The look. The one that contained the garden and the mango tree and the jasmine and the ring pillow and Noo-Noo and the thirty-two days.
+
+"After the wedding," Jan said.
+
+Khun Dao's left eye twitched. "The wedding."
+
+"We're getting married. In thirty-two days."
+
+"You're getting MARRIED."
+
+"Twelve guests. Private ceremony. No press."
+
+Khun Dao stood up. Sat down. Stood up again. Walked to the window. Looked out at Bangkok — the skyline, the traffic, the city where two women in her office had just told her they were getting married and intended to tell the world on their own schedule and there was nothing her eighteen months of careful image management could do about it.
+
+"I need a drink," Khun Dao said to the window.
+
+"It's 3 p.m.," JingJing said.
+
+"It's 3 p.m. and my two leads are secretly engaged and getting married in a month and my entire PR strategy is—" She turned around. The face was different now. The professional mask had cracked, and underneath it — briefly, unexpectedly — was something human. "Are you happy?"
+
+The question surprised all three of them.
+
+"Yes," Jan said. "Very."
+
+"Are you — is this—" Khun Dao searched for the word. "Is this good? Are you treated well?"
+
+JingJing looked at Jan. Jan looked at JingJing. The look that said: *she's asking if we're okay. She's asking because she cares. Under the marketing strategy and the brand management and the geometric bob, she cares.*
+
+"She treats me like I'm the only person in the world," JingJing said.
+
+"She treats me like I deserve her," Jan said.
+
+Khun Dao sat down. Pressed her palms flat on the immaculate desk. Breathed.
+
+"Okay," she said. "Okay. Here's what's going to happen. You're going to get married. You're going to go public on your terms. And I am going to spend the next thirty-two days building a contingency plan so that when this breaks, the network is ready to pivot from *possibility* to *certainty* without losing a single sponsor. Because I am very good at my job, and my job is about to become the most interesting job in the building."
+
+"Thank you, Khun Dao."
+
+"Don't thank me. Buy me a drink at the wedding."
+
+"You're not invited to the wedding."
+
+"Then buy me a drink at the wrap party."
+
+"Deal."
+
+They stood. At the door, Khun Dao called out.
+
+"JingJing."
+
+"Yes?"
+
+"Take the ring off the chain. Wear it on your hand. Under your costume. The chain shifts under fabric — that's how I caught it. On your finger, under a glove or a long sleeve, nobody sees it."
+
+JingJing looked at Jan. At Khun Dao. At the monitor, where the image of the ring outline was still displayed — the ghost of a secret pressing through cotton.
+
+"Thank you," JingJing said.
+
+"And Jan."
+
+"Yes?"
+
+"Stop going off-script. Every time you improvise something true in a room with a journalist, an angel loses its wings and my blood pressure gains ten points."
+
+"I'll try."
+
+"You won't. But I appreciate the lie."
+
+They left. Elevator. Ground floor. The doors opened. The building continued around them — PAs with schedules, camera crews with equipment, Ciize rushing between sets with script pages in both hands. The machine of production, grinding forward, indifferent to the fact that two of its central components had just told their PR chief they were getting married and dared her to make it work.
+
+In the parking garage, in the car, JingJing unclasped the chain. Slid the ring off. Put it on her finger.
+
+Her left hand. Ring finger. Where it belonged.
+
+She looked at it. The ring on her finger, in the car, in the light.
+
+"I'll put it back on the chain for set," she said. "But right now — right now I just want to wear it like a person who's getting married."
+
+Jan took her hand. Kissed the ring. Kissed the finger. Kissed the knuckle.
+
+"Thirty-two days," Jan said.
+
+JingJing leaned across the console and kissed her — quick, hard, the kind that was a period at the end of a sentence. Then sat back. Buckled up. Held her left hand up to the windshield, letting the afternoon sun catch the diamond, watching it throw tiny prisms across the dashboard.
+
+"It looks different on my finger," she said.
+
+"It looks right."
+
+It did. It looked right.
+
+---
