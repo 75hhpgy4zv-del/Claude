@@ -3486,3 +3486,421 @@ Seven marks. Seven promises. Seven ways of saying what *very good friends* could
 *Mine.*
 
 ---
+
+## Chapter 12: The Article Draft
+
+Prae read the draft on a Thursday afternoon, in her office, with the door closed and a glass of iced Americano sweating on a coaster she hadn't looked at in thirty minutes.
+
+Sirin had emailed it at 2 p.m. with a note: *Khun Prae — attached is the first section of the documentary feature. It covers the first three weeks of production. I'd welcome your thoughts before I continue. As discussed, this is a first pass — the final piece will include the full production arc through the premiere. No rush, but I'd love to talk before end of week.*
+
+The piece was titled "Between the Lines: A Season Inside *Married to My Enemy*."
+
+Prae read it once. Read it again. Put the glass down. Picked it up. Put it down again.
+
+The writing was exceptional. That was the first problem.
+
+Sirin wrote the way she spoke — with precision, with warmth, with the specific, devastating clarity of someone who saw things other people didn't see and could describe them in a way that made the reader see them too. She had the instinct for detail that separated great journalists from good ones: the ability to identify the single observation in a crowded room that told you everything, to isolate the moment that contained the truth even when the truth was hiding.
+
+The piece opened with the set itself. A paragraph about the *Married to My Enemy* production design — the garden set being built in stages, the costume department's interpretation of Lal and Wine's wedding looks, the collaborative energy of a crew returning to a world they'd already built once for *Enemies with Benefits*. Standard feature material. Well-written, richly observed, completely safe.
+
+Then it shifted.
+
+*The chemistry between Ployshompoo Supasap (Jan) and Prariyapit Yu (JingJing) is, by now, well-documented. Two seasons of fan accounts, trending hashtags, and viral compilations have established them as one of GL's most compelling pairs — on screen and in the public imagination. What is less documented, because it is harder to photograph, is the way the space around them changes when they are together.*
+
+*I do not mean this metaphorically. I mean it literally, physically, as observable fact. When Jan and JingJing are in a room, the room reorganizes itself around them. Not because they demand attention — they are remarkably unselfconscious, more comfortable with each other's proximity than most married couples I've observed in two decades of reporting. It is the people around them who change. The crew. The production staff. The director herself.*
+
+*They move differently when Jan and JingJing are together. Not cautiously — protectively. There is a choreography to it — a wordless, coordinated shifting of bodies and sightlines that I have never seen in any production of this scale. It is as if the crew has developed a collective instinct — a sixth sense for the moments when Jan and JingJing's natural intimacy reaches a frequency that might, in another context, raise questions.*
+
+*The questions, I should note, are the obvious ones. The ones the fans ask. The ones the press asks. The ones the internet asks with increasing urgency every time a new fan-taken photo surfaces of two women who look at each other the way most people look at a sunset — with awe, and wonder, and the quiet awareness of something beautiful that won't last.*
+
+*I am not asking those questions here. I am asking a different one: what does it mean when sixty people organize their days around the emotional weather of two?*
+
+Prae stopped reading. Looked at the ceiling. The Americano was now room temperature.
+
+She read the next section. It was about the table read.
+
+*The vow scene rehearsal is, in twenty years of arts reporting, one of the most remarkable pieces of acting I have witnessed — if "acting" is the right word. I am not certain it is.*
+
+*Jan read Lal's vows with the steady, amber-eyed intensity that has made her one of the most compelling performers of her generation. And then she went off-script. She said something that was not in the screenplay, something that carried a weight the written vows did not: "I never hated you. I wanted you so badly it felt like hate."*
+
+*The line is beautiful. It is also specific in a way that fictional dialogue rarely is — specific to a particular kind of longing, a particular kind of revelation, the kind that comes not from imagination but from memory. Whether the memory belongs to Jan or to Lal is, perhaps, the wrong question. The better question is whether there is still a difference.*
+
+*JingJing's response — her hand going to her chest, finding something under her clothing, holding it — was not in the stage directions. Neither was Lin's departure from the room. Neither was the silence that followed, which lasted longer than any scripted pause I have ever witnessed and which no one, including the director, broke.*
+
+*What I remember most is not the words. It is what happened in the room after the words. Sixty people held their breath. Not because the writing was good — it was — but because something true had entered the space, something that exceeded the script, something that the room recognized without naming.*
+
+*Something the room was protecting.*
+
+Prae closed the laptop. Opened it. Closed it again.
+
+The piece went on for another three pages — observations about the costume fittings, the fan meet, the Instagram strategy, the careful curation of a public image that Sirin described as "the architecture of ambiguity." Each section was the same: beautifully written, deeply observed, technically about the production, and circling — always circling — the thing at the center that Sirin never named.
+
+She didn't name it. That was the second problem. That was the problem that was worse than naming it would have been, because naming it would have been a fact to deny, a claim to counter, a line in the sand. What Sirin had done was something more dangerous: she had described the *shape* of the secret without saying what the secret was, and the shape was so precise, so clearly rendered, that any reader with a functional brain would fill in the blank themselves.
+
+She hadn't written *Jan and JingJing are together*. She had written around it — had drawn the outline and left the center empty and trusted the reader to color it in. And the outline was unmistakable.
+
+Prae called Jan.
+
+"Can you come to my office?"
+
+"Now?"
+
+"Now."
+
+Jan arrived in four minutes. Still in the Lal costume — the tailored blazer, the pencil skirt, the heels that made her two inches taller and that JingJing, three studios away, was pretending not to think about. She sat in the chair across from Prae's desk and crossed her legs and looked at Prae with the easy, attentive focus of someone who had no idea she was about to be given bad news.
+
+"Sirin sent me a draft," Prae said.
+
+Jan's expression didn't change. This was not the controlled non-change of someone suppressing a reaction — it was the genuine non-change of someone who did not understand why this information should produce a reaction. Sirin was writing a piece. Sirin had sent a draft. These were facts about the world, and they ranked approximately equal in Jan's emotional hierarchy to the fact that it was Thursday.
+
+"Okay," Jan said.
+
+"It's good. It's very good. It's one of the best pieces of entertainment journalism I've read in years."
+
+"That's good."
+
+"Jan." Prae leaned forward. "It's good in a way that should concern you."
+
+"Why?"
+
+"Because she sees you."
+
+Jan frowned. Not confused — just not tracking. "She's been on set for a month. She sees all of us."
+
+"She sees the crew, Jan. She sees the way the crew *moves*. She's not watching you and JingJing — she's watching what happens around you. She's watching Fah appear at doors. She's watching Lin leave rooms. She's watching the production rearrange itself around the two of you like — like an immune response. Like the body of the production is trying to protect you from a virus it can see and you can't."
+
+"The crew is professional."
+
+"The crew is *terrified*. And Sirin can tell the difference between professional and terrified, because Sirin is a very good journalist who has spent her career studying the space between what people show and what they feel, and what our crew is showing is a very specific, very coordinated kind of fear, and the thing they're afraid of is—"
+
+"What?"
+
+Prae stopped. Looked at Jan's face — open, patient, the face of someone who was listening carefully and comprehending nothing, because the danger was in a frequency Jan's brain had stopped receiving the day she put a ring on JingJing's finger and decided, consciously or not, that the rest of the world's opinion was a variable she had solved for.
+
+"Jan. She quoted you. The off-script line. 'I never hated you. I wanted you so badly it felt like hate.' She quoted it and then she wrote — she wrote that the line carried 'a weight that fictional dialogue rarely carries' and that the room recognized 'something true' and that—"
+
+"It was true."
+
+"That's — Jan, that's exactly the problem."
+
+"Why?"
+
+Prae opened her mouth. Closed it. Opened it again.
+
+"Because the article implies — without stating — that the truth you spoke as Lal is also the truth you live as Jan. And if that implication makes it into a published feature in a national magazine, then everything — the show, the fancon at Thunder Dome, the PR strategy, the wedding—"
+
+She stopped herself. She did not know about the wedding. She knew about the relationship. She knew about the engagement — Fah had told her, in a moment of crisis-driven honesty, three weeks ago. But the wedding itself — the garden, Nonthaburi, twelve guests, Noo-Noo as ring bearer — that was Fah's secret to carry.
+
+"—the engagement," she corrected. "Everything becomes public on someone else's timeline."
+
+Jan was quiet. She looked at Prae's desk — at the closed laptop, at the sweating Americano, at the post-it notes and scripts and production schedules that constituted the physical infrastructure of a show whose fictional love story was a mirror of the real one its director was trying to protect.
+
+"Is it a good piece?" Jan asked.
+
+"It's a beautiful piece."
+
+"Does it respect us? Does it — does it treat us like people and not content?"
+
+Prae thought about the passage about the fan meet. About Sirin's description of JingJing holding the shaking girl's hands: *a moment of unperformance — the mask falling not because it cracked but because the moment was too true to hold one up*. About the way Sirin had written about Jan's off-script line with the reverence of someone describing a prayer.
+
+"Yes," Prae said. "It respects you. That's what makes it dangerous, Jan. It's not a hit piece. It's a love letter. And love letters are the hardest things to defend against because you can't discredit them."
+
+Jan nodded. Slowly. The nod of someone processing information the way she processed everything: thoroughly, carefully, with the patience of a person who would eventually arrive at the right conclusion and would not be rushed into the wrong one.
+
+"What do you want me to do?" Jan asked.
+
+"I want you to be careful."
+
+"Careful how?"
+
+"Careful with — with the way you look at her. In front of Sirin. The way you touch her. The line between Lal and Jan — Sirin is looking for where it blurs, and you keep erasing it."
+
+"I'm not erasing it."
+
+"You went off-script in a room full of people and a journalist and said something that was obviously, transparently, personally true. That's not blurring, Jan. That's removing the line entirely."
+
+Jan looked at her. The amber eyes. Steady. Warm. The eyes that Sirin had described as containing *a general, undirected intensity* and that Prae knew — because Prae had been watching Jan for two years, had directed her through a love story that had become real on her watch — contained nothing general and nothing undirected.
+
+They contained JingJing. They always contained JingJing.
+
+"I'll be careful," Jan said.
+
+She would not be careful. Prae knew this. Jan knew this. The Americano, room temperature and abandoned on the coaster, knew this.
+
+"Go back to set," Prae said. "We have the garden scene at three."
+
+Jan stood. At the door, she paused. Turned back.
+
+"Prae."
+
+"Yes?"
+
+"What's JingJing wearing under the Wine costume today? The — the new one, for the ceremony sequence?"
+
+Prae stared at her. "What?"
+
+"The underpinnings. The costume department sometimes uses period-appropriate undergarments for the wedding sequences and I — I was wondering—"
+
+"Get out of my office."
+
+"It's a legitimate costume question—"
+
+"*OUT.*"
+
+Jan left. The door closed. Prae sat in the silence and listened to Jan's heels recede down the hallway — confident, unhurried, the footsteps of a woman who had just been warned about the most dangerous piece of journalism anyone had ever written about her and whose primary cognitive response was to wonder what her fiancée was wearing under her costume.
+
+Prae opened the desk drawer. Took out the gin she kept for emergencies.
+
+This qualified.
+
+---
+
+## Chapter 13: The Secret Venue
+
+The garden was in Nonthaburi, twenty minutes north of the city center, down a side road that turned into a dirt road that turned into a gate that opened onto something JingJing was not emotionally prepared for.
+
+She knew what they were coming to see. She had helped choose it — Fah had narrowed the options to three venues and sent photos to a group chat that consisted of exactly four people (Jan, JingJing, Fah, and Love, who had been added to the wedding planning chat under the contact name "Wedding Consultant" despite having no qualifications for this title beyond being JingJing's best friend and crying harder at engagement announcements than the people getting engaged).
+
+JingJing had looked at the photos on her phone, in bed, at 1 a.m., with Noo-Noo under her arm and Jan asleep beside her. She had examined each venue with the critical eye of someone who had spent six months imagining this day and who had specific, non-negotiable requirements: it had to be private. It had to be small. It had to be beautiful in a way that felt *theirs* — not magazine-beautiful, not Instagram-beautiful, but the kind of beautiful that made you stop breathing for a second because the world had arranged itself into something that matched the feeling inside your chest.
+
+The garden in Nonthaburi had been unanimous.
+
+But photos were photos. Photos were flat surfaces that contained light and color and composition and told you nothing about the way a place *felt* — the temperature of the air, the weight of the silence, the specific quality of the green when sunlight came through the canopy and landed on stone and grass and turned everything the color of a promise.
+
+JingJing stepped through the gate and stopped.
+
+The garden was smaller than she'd imagined — more intimate, more contained, a walled space that felt like the inside of a secret. Frangipani trees lined the perimeter, their branches forming a loose canopy overhead, the white-and-yellow flowers scenting the air with something sweet and clean that JingJing would associate with this moment for the rest of her life. The grass was manicured — soft, level, the green of something tended with attention. A stone path wound from the gate to a small pergola at the far end, draped in jasmine that hadn't bloomed yet but would, the owner assured them, be in full flower by the wedding date.
+
+In the center: a single mango tree. Old. Gnarled. Its branches spread wide enough to shade a table for twelve, which was the number of people who would sit beneath it in six weeks and watch Jan and JingJing say the words they'd been writing in separate rooms.
+
+"Oh," JingJing said.
+
+Not a word. A sound. The sound a person makes when something they have been imagining in the abstract suddenly becomes concrete and the concrete version is better than the imagined one and the gap between what they expected and what they got is filled entirely with the emotion they had been saving for this exact moment.
+
+Jan's hand found hers. The grip — automatic, unconscious, the hand that always found hers, in cars and elevators and hallways and now here, in this garden, in the place where it was going to happen.
+
+"This is it," JingJing said.
+
+"Yeah."
+
+"This is where we're getting married."
+
+"Yeah."
+
+"P'Jan, I'm going to cry."
+
+"I know."
+
+"I haven't started yet. I'm just — informing you. For logistical purposes."
+
+"Noted."
+
+The garden's owner was a woman named Khun Noi — sixties, small, with silver-streaked hair and the calm, rooted energy of someone who had spent thirty years tending a space and understood, intuitively, the difference between a garden and a *place*. She showed them the grounds with the quiet pride of a person who knew what she had built and did not need to oversell it: the pergola, the jasmine, the stone path, the koi pond in the far corner where the fish caught the afternoon light and turned gold.
+
+"The ceremony usually takes place here," she said, gesturing to the pergola. "But some couples prefer the mango tree. It depends on the light — morning ceremonies get better coverage under the tree, evening ceremonies photograph better at the pergola."
+
+"Evening," Jan said. "We're planning for sunset."
+
+"The jasmine catches the last light beautifully at sunset. You'll have about forty minutes of golden hour."
+
+JingJing squeezed Jan's hand. Hard enough that Jan's ring pressed into her own finger — the ring she wore openly only here, only in spaces where no camera and no journalist and no PR strategy could reach. She had put it on in the car, sliding it from the chain to her finger with the reverence of someone performing a private sacrament, and she would take it off before they drove back to the city and it would return to the chain and the chain would return to her chest and the secret would go on being a secret for thirty-seven more days.
+
+But right now: the ring was on her finger. In a garden. In the sun.
+
+"Can we taste the cake?" JingJing asked, and the request came out in the small voice — the Noo-Noo voice, the 3 a.m. voice, the voice that Jan heard when JingJing was being her most undefended self, the self that existed underneath every other version and was, Jan believed, the most beautiful thing in the world.
+
+Khun Noi smiled. "I have three options. Come."
+
+The tasting was set up under the mango tree, on a table covered in white linen: three small cakes, each plated with a fork and a card describing the flavors. Coconut-pandan. Mango-passionfruit. Thai tea with white chocolate.
+
+JingJing tasted each one with the seriousness of a food critic and the emotional volatility of someone who was eating cake at the place where she was going to get married and was not, despite her earlier prediction, handling it well.
+
+"The coconut-pandan," she said.
+
+"That one?" Jan tried it. "It's good."
+
+"It's not *good*, it's *perfect*. It tastes like — it tastes like my grandmother's kitchen. Like Saturday mornings. Like—" she stopped. Her eyes were full. "Like the kind of thing you serve at a wedding that means something."
+
+Jan put down her fork. Wiped the corner of JingJing's eye with her thumb — gently, carefully, the way she handled JingJing's tears: as sacred objects, things to be caught and held, not dismissed.
+
+"Coconut-pandan," Jan confirmed to Khun Noi, who nodded and wrote it down as if couples cried over cake in her garden every day, which, given the nature of her business, they probably did.
+
+The flowers were next. Khun Noi's garden had its own greenhouse — a small, humid space filled with orchids and roses and the jasmine that would drape the pergola. JingJing wanted frangipani. Jan wanted jasmine. They compromised on both — frangipani for the bouquets, jasmine for the pergola, white roses for the table.
+
+"And a peony," JingJing said. "One peony. For the centerpiece."
+
+"A peony?"
+
+"Love's favorite flower. She's going to be there and she's going to cry and she needs a flower to hold."
+
+Jan's mouth curved. "Love can hold Milk's hand."
+
+"Love needs BOTH. A flower and a hand. That's Love's minimum crying equipment."
+
+"One peony," Jan told Khun Noi.
+
+They walked the garden again. Slowly this time — not as visitors but as occupants, people learning the geography of a place that would hold the most important hour of their lives. JingJing paced the stone path from the gate to the pergola — twenty-two steps, she counted — and tried to imagine walking it in a dress, in front of twelve people, toward Jan.
+
+"I'm going to trip," she said.
+
+"You won't."
+
+"I trip on flat surfaces in sneakers. I'm going to trip on a stone path in heels."
+
+"I'll catch you."
+
+"You always say that."
+
+"I always do it."
+
+JingJing stood at the pergola and looked back down the path. The garden stretched before her — the mango tree, the koi pond, the frangipani, the gate at the far end through which she would walk in thirty-seven days. In her imagination, the walk was already happening — she could see herself, in a dress she hadn't chosen yet, carrying frangipani she hadn't held yet, walking toward a woman she'd been walking toward since the day they met in a production office and argued about line readings and didn't know that the argument was the first sentence of a story that would end here, in a garden, with jasmine and cake and a stuffed rabbit that Fah was going to strap to a pillow because Noo-Noo was the ring bearer and this was real, this was *happening*, they were getting married in this garden in thirty-seven days.
+
+JingJing cried.
+
+Not the quiet kind this time. The full, ungoverned, mascara-destroying, nose-running kind — the cry that came from a place deeper than sadness or happiness, from the place where the two emotions merged into something that had no name because languages hadn't gotten around to naming the specific feeling of standing in the place where your life was about to change and realizing, with your whole body, that you were ready.
+
+Jan held her. Of course Jan held her. Jan held her in a garden in Nonthaburi with the afternoon sun coming through the frangipani and the koi turning gold in the pond and the jasmine not yet blooming but promising to, and JingJing pressed her face into Jan's shoulder and cried until the crying became laughing and the laughing became crying again and the whole spectrum of human emotion played out in the space of ninety seconds against the cotton of Jan's t-shirt.
+
+"I'm a mess," JingJing said.
+
+"You're beautiful."
+
+"I have snot on your shirt."
+
+"Beautiful."
+
+"I'm going to cry this much at the actual wedding and Love is going to cry *more* and Milk is going to pretend she's not crying and Fah is going to cry because she always cries and Lin—" JingJing stopped. "Is Lin coming?"
+
+"Lin doesn't know about the wedding."
+
+"She should be there."
+
+Jan was quiet. The quiet of someone weighing a risk — not the risk of exposure, not the risk of Sirin, but the deeper risk of leaving someone out, of not inviting the woman who had spent months running interference, developing insomnia, sitting in her car trying not to throw up from the stress of protecting a secret she hadn't asked to carry.
+
+"We'll tell her," Jan said. "Soon. She deserves to be there."
+
+"She deserves to be there more than anyone."
+
+"Then she'll be there."
+
+JingJing pulled back. Wiped her eyes on Jan's already-ruined shirt. Looked up at her with the post-cry face — swollen, red, devastated, luminous, the face of someone who had just emptied herself of every emotion she'd been carrying and was now standing in the cleared space, light and ready.
+
+"Take a picture of me," JingJing said.
+
+"Here?"
+
+"Here. Under the tree. In the place where — where it's going to happen."
+
+Jan took out her phone. JingJing stood under the mango tree — tear-streaked, ring-wearing, wearing Jan's snot-stained shirt over her own tank top because she'd gotten cold and Jan had given her the shirt without being asked, the way Jan gave her everything without being asked. JingJing smiled. Not the lighthouse — the private one, the one that lived in the space between the performer and the person, the one that was for Jan and for the garden and for the koi pond and for no camera that the world would ever see.
+
+Jan took the photo.
+
+Then JingJing took Jan's phone and took a selfie of both of them — Jan behind her, chin on her shoulder, arms around her waist, both of them in the frame with the pergola and the jasmine and the future. JingJing held up her left hand. The ring caught the light.
+
+"We can never post this," JingJing said, looking at the photo.
+
+"No."
+
+"It's the best photo anyone has ever taken of us and we can never show it to anyone."
+
+"Thirty-seven days."
+
+"Thirty-seven days until I can show the world the best photo of us." JingJing saved it. Opened her photo app. Created a new album. Named it "groceries."
+
+"Groceries," Jan said.
+
+"If anyone ever asks to see my grocery list, they'll open this album and see the garden where I'm getting married and have a very confusing experience."
+
+"No one is going to ask to see your grocery list."
+
+"You don't know that. What if Sirin asks? What if Sirin says, 'JingJing, I noticed you have a locked photo album, may I see it for the documentary?' and I have to say 'it's just groceries, very boring, nothing to see' and she opens it and it's us under a mango tree with matching rings?"
+
+"Then we'll deal with it."
+
+"'We'll deal with it' is not a strategy, P'Jan."
+
+"It's our only strategy. It's always been our only strategy."
+
+JingJing couldn't argue with this. Their entire relationship had been conducted on a plan that consisted of *we'll deal with it* — the dressing room, the balcony, the engagement, the ring, every near-miss and close call and intercepted disaster managed not by careful planning but by the basic, unkillable, structurally irrational conviction that love was enough and the details would work themselves out.
+
+The details had, against all odds, worked themselves out so far. Mostly because Fah was a logistics genius and Lin had the stress tolerance of a fighter jet and Prae could redirect a conversation faster than most people could start one. But still. The details had worked out.
+
+"Come on," Jan said. "We need to go. I told Prae we'd be back by four."
+
+"One more minute."
+
+"JingJing—"
+
+"*One more minute.*"
+
+JingJing walked to the pergola. Stood in the spot where they would stand — she on the left, Jan on the right, Fah somewhere nearby probably having a silent breakdown while holding the clipboard. She closed her eyes. Felt the jasmine. Heard the koi pond. Let the garden hold her for sixty seconds.
+
+Then she opened her eyes. Walked back to Jan. Took her hand.
+
+"Okay," she said. "I'm ready."
+
+In the car, JingJing took the ring off her finger. Threaded it back onto the chain. Dropped it inside her shirt. The metal was warm from her skin — warm from the garden, warm from the sun, warm from the thirty minutes of being worn openly in the only place in the world where it could be.
+
+She felt it settle against her sternum. The familiar weight. The tether.
+
+Thirty-seven days.
+
+In the group chat — the wedding one, not the crisis one:
+
+**JingJing:** We picked the cake. Coconut-pandan. And the flowers. Frangipani for bouquets, jasmine for the pergola, white roses for the table. And one peony.
+
+**Fah:** One peony?
+
+**JingJing:** For Love. She'll need something to hold while she cries.
+
+**Love:** I'm not going to cry.
+
+**JingJing:** Love, you cried at the ANNOUNCEMENT. You cried at the announcement and then you called Milk and cried at Milk and then you called me back and cried again.
+
+**Love:** Those were SITUATIONAL tears.
+
+**JingJing:** They were ARCHITECTURAL tears. You cried for forty minutes. That's not a reaction. That's a construction project.
+
+**Love:** The peony is appreciated. What color?
+
+**JingJing:** Pink. Your favorite.
+
+**Love:** 🌸💕😭
+
+**JingJing:** See?? ALREADY CRYING. Three EMOJIS of crying.
+
+**Fah:** I have the ring pillow prototype ready. Noo-Noo fitting is scheduled for Sunday. I need to take measurements.
+
+**JingJing:** You are not putting a MEASURING TAPE on my RABBIT.
+
+**Fah:** I need to know the dimensions to build the pillow harness.
+
+**JingJing:** A HARNESS?
+
+**Fah:** A SMALL harness. Decorative. Ribbon-based. Noo-Noo will look beautiful.
+
+**Jan:** This is the most unhinged wedding planning conversation in human history.
+
+**JingJing:** You proposed on a BEACH with NO PLAN. You don't get to judge unhinged.
+
+**Jan:** I had a plan.
+
+**JingJing:** Your plan was "bring the ring and hope for the best."
+
+**Jan:** It worked.
+
+**JingJing:** ...it worked.
+
+**Love:** I'm not crying. I'm WATERING MY FACE.
+
+**Fah:** Noo-Noo fitting: Sunday. 3 pm. Non-negotiable.
+
+JingJing put her phone down. Looked out the window. The city was coming back — the expressway, the billboards, the skyline, the world that didn't know about the garden or the cake or the jasmine or the ring. The world that saw two actresses in a car on a Thursday afternoon and thought: colleagues. Friends. Costars returning from a location scout.
+
+The world was wrong, and the world would stay wrong for thirty-seven more days, and then the world would be right, and the rightness would be permanent, and the garden would be the place where it happened — the place where the lie ended and the truth began and Noo-Noo sat on a ribbon harness holding two rings and twelve people watched and the jasmine bloomed and the cake tasted like Saturday mornings and JingJing walked twenty-two steps down a stone path toward the rest of her life.
+
+She was ready. She had been ready since the dressing room. She would be ready for the rest of her life.
+
+Jan's hand found hers on the center console. Their fingers interlaced. The ring on the chain pressed warm against JingJing's chest. The city moved outside. Inside: certainty.
+
+---
