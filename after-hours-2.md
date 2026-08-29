@@ -5122,3 +5122,395 @@ JingJing leaned across the console and kissed her — quick, hard, the kind that
 It did. It looked right.
 
 ---
+
+## Chapter 19: The Ultimatum
+
+The network's response came on Monday, in the form of a calendar invite from Khun Dao's assistant titled "Strategy Session — Confidential" that blocked out two hours and listed the attendees as: Khun Dao, Jan, JingJing, Prae, and a name Jan didn't recognize — Khun Somchai, Head of Programming.
+
+Two hours. Head of Programming. The machinery was engaging.
+
+Jan called Milk from the parking lot before the meeting.
+
+"They're escalating," Jan said.
+
+"How bad?"
+
+"Khun Dao brought in her boss. Two-hour block. 'Strategy session.'"
+
+Milk was quiet for a beat. Jan could hear the Ditto set in the background — someone calling for a lighting change, the distant clatter of equipment.
+
+"Love got pulled into a marketing meeting last week," Milk said. "They want her to do a dating variety show. *Finding Love's Love.* That's the actual title. A dating show. For an actress who comes home to me every night."
+
+"What did she say?"
+
+"She said 'I'll think about it,' which is Love for 'absolutely not, but I'm too polite to say fuck off in a boardroom.'"
+
+"Did they push?"
+
+"They push. They always push. It's what they do — they push until we push back or until we break, and they're betting on break because break is cheaper." Milk's voice dropped. Quieter. The Milk-voice that was reserved for real talk, for the conversations that happened under the bravado. "Jan. The wedding is in twenty-eight days."
+
+"I know."
+
+"Don't let them move the goalposts. The timeline is yours. The announcement is yours. If they try to make it theirs, you tell them — you tell them that you and JingJing are going to get married in a garden and then you're going to post a photo and the world is going to deal with it, and the network's job is to be ready, not to be in charge."
+
+"Since when are you the strategic one?"
+
+"Since Love taught me that soft power is still power. She's five foot two and she moves mountains by asking nicely. I'm six feet and I move mountains by not asking at all."
+
+Jan laughed. It helped. Milk's voice helped — the solidity of it, the reminder that she wasn't the only person navigating this current.
+
+"After the wedding," Milk said.
+
+"After the wedding."
+
+"We should burn the whole industry down."
+
+"After the wedding."
+
+---
+
+The meeting was in the fourteenth-floor conference room. Glass walls. Whiteboards. The aggressive corporate neutrality of a room designed for decisions that affected people who would never sit in it.
+
+Khun Somchai was a compact man in his fifties with the energy of someone who had been managing talent since before Jan was born and who viewed personal relationships as variables in a spreadsheet that needed to balance. He shook both their hands. He smiled. The smile was professional, warm, and completely unrelated to any emotion.
+
+"Let's talk about timing," Khun Somchai said.
+
+"Let's talk about autonomy," Jan said.
+
+Prae, at the end of the table, closed her eyes briefly.
+
+"The network respects your privacy," Khun Somchai said. "The network also has a fiduciary responsibility to its shareholders, its sponsors, and its audience. A revelation of this magnitude — and make no mistake, this will be the entertainment story of the year — requires careful management."
+
+"We agree it requires management," Jan said. "We disagree about who manages it."
+
+"The network is offering you a platform. A controlled reveal — timed with the *Married to My Enemy* premiere, amplified by the fancon, supported by a comprehensive media strategy. Your story, told at maximum volume, with the full weight of GMMTV behind it."
+
+"Our story," JingJing said, "told on someone else's schedule."
+
+"Your story told at the *optimal* schedule."
+
+"Optimal for whom?"
+
+Khun Somchai recalibrated. Jan watched the recalibration happen — the slight adjustment behind the eyes, the shift from *pitch* to *negotiate*, the recognition that these two women were not going to be managed into compliance.
+
+"What do you want?" he asked.
+
+"We want to go public after our wedding," Jan said. "On Instagram. Our words. Our photo. No press release, no coordinated media blitz, no network branding. Just us."
+
+"And the wedding?"
+
+"Private. Twenty-eight days from now. Not a network event."
+
+"And the fancon?"
+
+"We'll attend the fancon. We'll do the Q&A. We'll sign autographs. And if, by then, we've posted — if the world knows — then the fancon becomes a celebration instead of a performance."
+
+Khun Somchai looked at Khun Dao. Khun Dao looked at Prae. Prae looked at the table.
+
+"The sponsors," Khun Somchai said. "Three of our top-tier sponsors have conservative audience profiles. If this breaks without preparation—"
+
+"Then prepare them," Jan said. "You have twenty-eight days. That's four weeks of sponsor briefings, contingency planning, alternative revenue sourcing. That's your job. Our job is to love each other. Your job is to figure out how to sell it."
+
+The room was silent. JingJing's hand, under the table, found Jan's thigh. Squeezed. The squeeze that said: *you're doing it. You're being the person I need you to be right now.*
+
+"I'll need approval on the Instagram post before it goes live," Khun Somchai said.
+
+"No," JingJing said.
+
+"Khun JingJing—"
+
+"No. The post is ours. The words are ours. You don't get to edit the way we tell the world we love each other."
+
+Khun Somchai was quiet for a long time. Jan counted — nine seconds.
+
+"Fine," he said. "Post what you want. Give us twenty-four hours' notice so we can have a response strategy in place. That's all I'm asking."
+
+"Twenty-four hours," Jan agreed.
+
+"And — congratulations." He said it the way he said everything — with professional warmth and no visible emotion. But his hand, when he shook Jan's again at the door, held slightly longer than protocol required.
+
+---
+
+In the car afterward, JingJing called Love.
+
+"We told the network."
+
+"AND?"
+
+"They wanted to control the reveal. We said no."
+
+"JingJing. I am so proud of you."
+
+"Jan was incredible. She sat across from the Head of Programming and told him his job was to figure out how to sell our love and our job was to love each other."
+
+"Jan said THAT?"
+
+"Jan said that and Khun Somchai looked like someone had slapped him with a fish."
+
+Love laughed — the full Love laugh, the one that Milk described as "the sound that makes my entire chest hurt in a good way." JingJing could hear Milk in the background asking what was funny.
+
+"Tell Milk that Jan told the network to prepare the sponsors in twenty-eight days or get out of the way."
+
+Love relayed. Milk's voice came through, muffled: "Tell Jan she's my fucking hero."
+
+"Jan is driving. She can hear you. She's smiling."
+
+Jan was smiling. The private one. The one she kept for JingJing and for moments when the world arranged itself into something that looked, briefly, like justice.
+
+"Love," JingJing said. "When you and Milk go public — when you're ready — you can use us as the precedent. We'll be the first. We'll take the hit. And when it's your turn, the hit will be smaller, because we'll have already proven it can be done."
+
+Love was quiet. The Love-quiet that meant she was crying and didn't want Milk to see, even though Milk could always see, even though Milk was probably already handing her a tissue without being asked because Milk had a sixth sense for Love's tears the way Jan had a sixth sense for JingJing's.
+
+"I love you," Love said. Thick-voiced. Wet.
+
+"I love you too. Stop crying. You're going to dehydrate."
+
+"I'm FINE."
+
+"You're crying."
+
+"I am WATERING MY FACE."
+
+"That's not a thing, Love."
+
+"It's a THING and it's MY THING and—"
+
+Milk's voice, clearer now, having taken the phone: "JingJing. Thank you. We'll be ready when it's our turn."
+
+"Take your time."
+
+"We will. Now go home and celebrate. You just told a network executive to go fuck himself in business-casual language."
+
+"I didn't say that."
+
+"You said it in subtext. It was beautiful."
+
+Jan drove. JingJing sat in the passenger seat with her ring on her finger — she'd stopped putting it back on the chain after meetings, had started wearing it openly in the car, in the apartment, in every space that wasn't a camera's range. The diamond caught the late-afternoon light and threw it across the dashboard in tiny rainbows.
+
+Twenty-eight days.
+
+---
+
+## Chapter 20: The Vow Scene
+
+They filmed the wedding on a Wednesday.
+
+The fictional wedding. Lal and Wine's. The centerpiece of *Married to My Enemy* — the scene that the entire special had been building toward, the twelve pages of script that Snow Leopard had written with the care of someone constructing a cathedral out of sentences.
+
+The garden set had been built to match the Nonthaburi garden so closely that JingJing's stomach dropped when she walked onto it. The same layout — a pergola, a stone path, a tree (a prop, bolted to the stage floor, but realistic enough to fool a camera). The same jasmine, draped over the pergola in silk replicas that the production designer had sourced from a supplier in Chiang Rai. The same chairs — twelve of them, arranged for twelve guests, because Snow Leopard had written a small wedding for Lal and Wine without knowing that the real wedding would have exactly the same number.
+
+The irony was no longer ironic. The irony had passed through irony and come out the other side into something closer to pain.
+
+JingJing stood at the end of the stone path in the Wine wedding dress — a fitted ivory gown with a mandarin collar and long sleeves that covered her hands, which covered her ring, which was on her finger, where Khun Dao had told her to put it. The dress was beautiful. The dress was not the dress she would wear in twenty-six days, which was still being fitted, which she and Jan had chosen together from a bridal shop in Silom on a Sunday morning when the shop was closed and the owner — Fah's aunt, because Fah's network of family connections was itself a kind of superpower — had opened it privately.
+
+But the dress was close enough to make her throat tight.
+
+Across the set, Jan waited at the pergola. The Lal tuxedo — midnight blue, single-breasted, a gardenia on the lapel. Her hair was pulled back. Her jaw was sharp. She looked the way she always looked in formal wear: like someone who had been designed to stand at the end of an aisle and make the person walking toward her forget how to breathe.
+
+"Okay," Prae said. "This is the big one. Jan, JingJing — you know the blocking. Path to pergola. Stop at the mark. Face each other. The officiant steps back. You deliver the vows. We're shooting coverage from three angles — I want to do this in as few takes as possible, because the emotional truth of this scene doesn't survive twenty repetitions."
+
+"Understood," Jan said.
+
+"JingJing?"
+
+JingJing nodded. Her hands were shaking. She hid them in the long sleeves.
+
+"Sirin is on set," Prae added, carefully neutral. "East wall. Two cameras, no audio. She will not approach during filming."
+
+Lin, standing by the monitor bank, looked like someone had told her the building was on fire and the exits were locked.
+
+"Rolling," the AD called. "Scene forty-seven, take one. Action."
+
+The music started — a solo piano piece the composer had written for this scene, a melody that climbed and opened and ached in the way that music ached when it was doing the work that words couldn't. JingJing walked the path. Stone under her feet. Jasmine above her. The twenty-two steps she had counted in the real garden, replicated here, on a soundstage, in front of cameras.
+
+Jan watched her come. The amber eyes. Steady. Full.
+
+JingJing reached the pergola. Stopped at the mark. Faced Jan. The officiant — played by a veteran actress named Khun Ratchanee who had been in Thai television since before either of them were born — stepped back.
+
+"Lal," JingJing said. Wine's voice. Wine's words. Snow Leopard's script. "I wrote these vows in a room by myself at three in the morning, and I'm going to say them now, and if I cry, that's your fault."
+
+The audience — the twelve extras in the chairs, playing wedding guests — laughed softly. The laugh was in the script. The cry on JingJing's face was not.
+
+"I was cold," JingJing read. "I was cold because cold was safe and warm meant trusting someone and I didn't trust anyone. I built a life out of spreadsheets and protocols and distance, and the distance was my armor, and then you walked through it like it wasn't there. Like I hadn't spent years building it. Like it was made of paper."
+
+She wasn't reading anymore. She knew the words. She'd lived the words. The script was a translation of something that had already happened in a dressing room a year ago, when a woman she was pretending to hate had kissed her and she'd said *don't you dare stop*.
+
+"You walked through my walls and you didn't break them — you just made them irrelevant. You made the whole architecture of my defense irrelevant, because you weren't attacking. You were — you were just standing there, being yourself, being warm and impossible and *there*, and I couldn't keep the cold going in the presence of that much warmth."
+
+Jan's ears were red. The tell. The ears that went red when the composure was holding but the feeling underneath it was not.
+
+"So I'm standing here," JingJing continued, "and I'm not cold anymore. I'm terrified. Being loved by you is the most terrifying thing that's ever happened to me, because it requires me to be seen, and being seen means you might see the parts I've been hiding, and you might not like them—"
+
+"I like them," Jan said.
+
+Off-script. Again. The same instinct — the inability to let JingJing stand in uncertainty, even fictional uncertainty, even for the duration of a scripted pause. The need to answer, to reassure, to close the gap between the question and the comfort.
+
+"That's not your line yet," JingJing whispered.
+
+"I know. But I like them. All of them."
+
+Prae didn't call cut. The cameras kept rolling. The room had entered the space it had entered before — the space where the script was a vehicle and the destination was somewhere else.
+
+"Your turn," JingJing said. Not Wine's line. JingJing's.
+
+Jan took her hands. The long sleeves hid the ring. The cameras couldn't see it. But Jan could feel it — the hard circle of diamond and metal under the fabric, pressing into her palm.
+
+"Wine," Jan said. Lal's voice. Jan's words. "I never hated you."
+
+The line. The off-script line from the table read. Prae had kept it in the final script. It had become Lal's. But it had never stopped being Jan's.
+
+"I wanted you so badly it felt like hate. And now I'm standing in a garden with you and you're wearing white and I'm supposed to say something that captures what you mean to me, and the truth is — the truth is there aren't enough words. Not in Thai. Not in English. Not in any language. There aren't enough words for the specific way you changed my life by being in it."
+
+JingJing's eyes were full. The tears held. Didn't fall. Held by sheer will, by the professionalism that ran underneath everything, by the actress who knew that falling tears were take two and held tears were take one and take one was truth.
+
+"So I'll say this," Jan continued. "I'll say: you are the bravest person I know. You are brave because you let me see you. You are brave because you cry and you laugh and you fight and you love and you do all of it at full volume, and the world tells you to be quieter and you refuse, and that refusal — that *loudness* — is the thing I love most about you."
+
+The tears fell. JingJing couldn't hold them anymore. They ran down her face and the makeup tracked and the cameras caught every second and somewhere on the east wall Sirin's cameras caught it too and Lin, at the monitor bank, was crying silently with her hand pressed over her mouth.
+
+"I promise," Jan said, "to never ask you to be quiet."
+
+"Cut," Prae said. Her voice was thick. "Cut. That's — that's the take."
+
+The room exhaled. Twenty people. Three cameras. One journalist. All of them aware that they had just watched something that exceeded the script, exceeded the performance, exceeded the entire apparatus of professional filmmaking and landed in the territory of confession.
+
+Jan was still holding JingJing's hands. JingJing was still crying. The tears were real, had always been real, would be real when the cameras played back and when the audience watched and when the fans screenshotted and when the @janjingjing_th account posted and when the world saw two women standing in a garden saying things that were too true to be acting.
+
+"Can I kiss you?" Jan asked. Not in the script. The script called for a hug. The script called for the safe, PG, broadcastable embrace that GL wedding scenes required.
+
+Prae, from behind the monitors: "Yes."
+
+Jan kissed her. On a soundstage, in front of cameras, in front of a crew and a journalist and a director who had just authorized something that would probably give Khun Dao a stroke when she saw the dailies. Jan kissed JingJing the way she kissed her at home — slow, complete, both hands cupping her face, the kiss that was a sentence and a paragraph and a chapter and a whole book, the kiss that said everything the vows hadn't said because some things couldn't be said, only done.
+
+The extras applauded. The crew applauded. Prae was crying. Lin had given up trying not to cry and was sitting on the floor behind the monitor bank with her knees pulled up and her face in her hands.
+
+Sirin, on the east wall, lowered her camera. She didn't write anything down. Some things were not notes. Some things were just witness.
+
+"That's a wrap on the vow scene," Prae said. "Thank you. Everyone. Thank you."
+
+---
+
+That night. The apartment. The bed. Noo-Noo on the shelf.
+
+JingJing was still in the post-cry state — the emptied-out, translucent state that came from crying on camera for eight hours of filming and then crying off camera for the entire drive home. Her eyes were swollen. Her voice was raw. She was wearing Jan's shirt and nothing else and she was curled against Jan's side like something that had been wrung out and needed to be held until the shape came back.
+
+"Twenty-six days," she said.
+
+"Twenty-six days."
+
+"And then we do it for real."
+
+"We already did it for real. Today was real."
+
+"Today was real on camera. The garden will be real without one."
+
+Jan's hand moved in JingJing's hair. Slow. The scalp massage that JingJing loved, that settled her nervous system, that turned the brat and the performer and the crier into something soft and sleepy and pliant.
+
+"I meant it," Jan said. "Every word. The off-script ones. The on-script ones. All of it."
+
+"I know."
+
+"I meant the kiss."
+
+"I know." JingJing shifted. Looked up. Her swollen eyes found Jan's. "I want you."
+
+"You've been crying for twelve hours."
+
+"I want you anyway. I want you because I've been crying for twelve hours. I want you because we just rehearsed our wedding and now I need the part that comes after."
+
+"The reception?"
+
+"The consummation."
+
+Jan's hand stilled in her hair. The word — *consummation* — landed with the weight of everything the day had been: the vows, the kiss, the cameras, the tears, the garden that was a set that was a mirror that was a prophecy.
+
+"Come here," Jan said.
+
+JingJing climbed on top of her. Straddled her. The shirt rode up. Jan's hands found her hips — the grip, the always-grip, the one that said *I have you*.
+
+"This is the wedding night," JingJing said. "The practice one. The dress rehearsal for the actual wedding night."
+
+"We need a dress rehearsal for sex?"
+
+"We need a dress rehearsal for *married* sex. I need to know what it feels like when you fuck me as my wife."
+
+"I'm not your wife yet."
+
+"Close enough. Twenty-six days close enough." JingJing leaned down. Kissed Jan's jaw. Her ear. The spot below the ear. "Take me like I'm yours. Like the vows are said. Like the rings are on."
+
+Jan rolled them. JingJing on her back, Jan above her, the weight and the heat and the presence. Jan's hands pinned JingJing's wrists above her head — one-handed, both wrists, the grip that JingJing loved because it reduced the world to two facts: Jan's hand and her inability to move.
+
+"The rings are on," Jan said. And they were — JingJing's ring on her finger, Jan's ring on hers, the diamonds pressing into each other where Jan's hand held JingJing's wrists and the rings met between their fingers, metal to metal, a small, hard, continuous point of contact.
+
+Jan's free hand went between them. Found JingJing. Already wet — had been wet since the vow scene, since the kiss on camera, since the specific, devastating experience of hearing the person you loved promise to never ask you to be quiet in front of forty people and two cameras and a journalist.
+
+"You're soaked," Jan said.
+
+"I've been turned on since the garden set. Since you said 'I never hated you.' Since you went off-script AGAIN and I had to stand there with a camera on me and act like my fiancée wasn't making me wet in front of the entire crew."
+
+"Did anyone notice?"
+
+"PRAE noticed. Prae looked at my face and authorized a kiss that wasn't in the script because Prae could tell that if she didn't let you kiss me, I was going to kiss you and it was going to be less PG."
+
+Jan pushed two fingers inside her. JingJing arched — the full-body arch, the one that lifted her hips off the bed and pressed her chest against Jan's and drove Jan's fingers deeper.
+
+"Daddy—"
+
+"What do you want?"
+
+"You. All of you. The — I want—"
+
+"Say it."
+
+"Your cock. I want your cock. I want you inside me like you were inside me the first time — in the dressing room, when you pushed me against the wall and I didn't know what was happening and I didn't care, I just wanted more, I wanted all of it—"
+
+Jan withdrew her fingers. Shifted. The sleep shorts came off. The cock pressed against JingJing's thigh — hard, thick, the full ten inches that JingJing had learned to take and love and need with an urgency that bordered on addiction.
+
+"Slow," JingJing said. "Tonight. Slow."
+
+Jan pushed in. Slow. The way they rarely did it — inch by inch, the long slide that let JingJing feel every ridge, every inch of thickness, the stretch and the fill and the deep, low ache that started in her center and radiated outward like heat.
+
+"Oh — oh *god* — Daddy—"
+
+"I've got you."
+
+"I know — I know you've got me — you've always got me — don't stop—"
+
+"Never."
+
+Jan fucked her slow. Long strokes. The vow-scene rhythm — deliberate, emotional, each thrust a sentence in a conversation that didn't need words. JingJing's legs wrapped around her. Her hands, freed from the pin, went to Jan's back — nails digging in, pulling her closer, the desperate attempt to reduce the distance between their bodies to zero.
+
+"I'm going to marry you," JingJing said, between thrusts, between breaths. "In twenty-six days. In a garden. With Noo-Noo. And I'm going to say vows and I'm going to cry and you're going to hold me and then — and then this. Every night. For the rest of my life. This. You. Inside me. *This.*"
+
+"Yes."
+
+"Promise?"
+
+"I promise."
+
+"Say the line. The off-script one."
+
+Jan kissed her. Slow. Deep. Matching the rhythm below with the rhythm above, the synchronization of two bodies that had learned each other so thoroughly that the learning had become instinct.
+
+"I never hated you," Jan said against her mouth. "I wanted you so badly it felt like hate."
+
+JingJing came. The slow orgasm, the deep one, the one that built and built and crested like a wave that took its time, that rolled in from far out and arrived on shore with the full weight of the ocean behind it. She came saying Jan's name — the real name, the first name, the name that meant everything and would mean everything in the garden, on the rings, in the vows.
+
+Jan came inside her — together, almost, the timing close enough to feel synchronized, the shared peak that they achieved maybe one time in ten and that felt, when it happened, like proof of something — proof that two bodies could become one system, one rhythm, one heartbeat.
+
+Afterward. Still connected. Breathing.
+
+"That's what married sex feels like," JingJing murmured.
+
+"How is it?"
+
+"It feels like coming home. Every time."
+
+Jan kissed her forehead. The slow one. The prayer. JingJing closed her eyes under it.
+
+"Twenty-six days," JingJing whispered.
+
+"Twenty-six days."
+
+Noo-Noo on the shelf. The rings on their fingers. The garden waiting.
+
+---
