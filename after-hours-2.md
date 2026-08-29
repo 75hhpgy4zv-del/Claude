@@ -7198,3 +7198,453 @@ The space between, closed. The truth, told. The world, knowing.
 And in the knowing, in the public fact of their love, Jan and JingJing discovered something they hadn't expected: that being known felt exactly like coming home.
 
 ---
+
+## Chapter 29: The Honeymoon
+
+They flew on December tenth.
+
+Suvarnabhumi Airport at six AM. The terminal already crowded — the morning rush, the business travelers, the families with rolling suitcases and children trailing like ducklings. JingJing walked through the departures hall with Noo-Noo under one arm and Jan's hand in hers and didn't care who saw.
+
+Everyone saw.
+
+The fans spotted them within thirty seconds of entering the terminal. The phones came up — the automatic response, the Pavlovian trigger of recognizing a celebrity in public and reaching for the camera. But the energy was different from the old days, the pre-reveal days, when a sighting of Jan and JingJing together would generate whispered speculation and carefully angled photos designed to capture ambiguity. Now the energy was joy. Pure, unfiltered, the joy of people seeing a couple they had rooted for walking through an airport holding hands and carrying a stuffed rabbit.
+
+"P'Jan! P'JingJing! Have a good trip!"
+
+A group of college students. Four of them. Matching fan shirts — the JanJingJing logo, the one the fan account had designed, printed on black cotton. They were beaming. One of them was holding a sign that said *HONEYMOONERS* with a drawing of Noo-Noo wearing sunglasses.
+
+Jan waved. JingJing held up Noo-Noo and waved the rabbit's paw. The students screamed with the contained, vibrating intensity of people trying not to be too loud in an airport and failing.
+
+"Where are you going?" one of them called.
+
+"Japan," JingJing called back, because JingJing was JingJing and the concept of operational security had never taken root in her personality no matter how many times Lin explained it. "Kyoto!"
+
+"KYOTO!" The students looked at each other. Phones out. Typing. The information was on the fan accounts within seconds. JingJing imagined Lin, somewhere in Bangkok, waking up to a notification that said *JanJingJing spotted at Suvarnabhumi, honeymoon destination: Kyoto* and going back to sleep because Lin had slept twelve hours a night every night since the reveal and was making up for fourteen months of insomnia and had decided, with the clarity of a woman who had survived a war, that Jan and JingJing's whereabouts were no longer her problem.
+
+They checked in. Business class — Fah had booked it, Fah had booked everything, the flights and the ryokan and the transfers and the restaurant reservations, because Fah's organizational instincts did not have an off switch and she had pivoted seamlessly from wedding planner to honeymoon coordinator.
+
+At the gate, JingJing posted her first Instagram story as a public wife. The boarding passes — side by side, Jan's name and hers, the seats adjacent. A ring emoji. No caption. The story got four hundred thousand views in the first hour.
+
+Jan posted too. JingJing asleep on her shoulder in the boarding area. Noo-Noo tucked under JingJing's arm. The morning light through the terminal windows, catching the ring on JingJing's hand, the gold glinting against the cream fur of the rabbit.
+
+Love commented first: *FINALLY* with seventeen crying emojis. The consistency of Love's response was, at this point, a running joke that had transcended humor and entered the realm of ritual.
+
+Milk commented: 👊. The single fist bump. Every time. The Milk emoji, the Milk signature, the entire depth of Milk's feelings compressed into a single Unicode character that somehow communicated love, solidarity, pride, and the specific warmth of a woman who understood exactly what Jan and JingJing had gone through because she was going through it herself.
+
+---
+
+Kyoto in December. Cold — the real cold, the cold that made JingJing burrow into Jan's coat on the walk from the station to the ryokan, the cold that turned their breath to fog and their cheeks to pink and the city into a woodblock print of bare branches and grey sky.
+
+The ryokan was small. Traditional. Tatami floors, sliding screens, a private hot spring bath that opened onto a garden enclosed by bamboo fencing so high it blocked everything except the sky. Fah had chosen it for the privacy. Jan had chosen it for the bath. JingJing had chosen it for the futon, which was on the floor, which meant the headboard problem — the noise, the neighbor problem, the wall problem — didn't exist, because there was no headboard.
+
+"No headboard," JingJing observed, dropping her bag on the tatami. She was still in her airport clothes — oversized hoodie, leggings, the outfit of a woman who prioritized comfort over fashion on flights and who knew that Jan found her in oversized hoodies irresistible for reasons Jan had never adequately explained.
+
+"No headboard," Jan confirmed.
+
+"No neighbors."
+
+"The nearest room is across the garden."
+
+"So I can be loud."
+
+Jan looked at her. The amber eyes. The slow smile — the one that started at the corners and moved inward, the one that meant Jan was calculating something and the calculation was about to reach its conclusion.
+
+"You can be whatever you want," Jan said.
+
+JingJing pulled the hoodie over her head.
+
+---
+
+The first time was on the futon. Afternoon light through the shoji screens — diffused, soft, the quality of light that turned skin to silk and shadows to watercolor. JingJing naked on the tatami-scented sheets. Jan over her. The travel-worn urgency of two people who had been on a plane for five hours and who had spent those five hours in adjacent seats unable to touch each other the way they wanted to touch each other and who were now, in a private room in a Kyoto ryokan with no neighbors and no headboard and no reason to be quiet, making up for lost time.
+
+Jan fucked her with the door to the garden open. The cold air coming in — the December chill, the smell of cedar and frost and the particular scent of Kyoto in winter, which was the scent of age and stone and the kind of beauty that existed because it was temporary. The cold on JingJing's skin. Jan's warmth above her. The contrast — the air and the body, the outside and the inside, the world and the private fact of Jan's cock moving inside her.
+
+"We're in *Japan*," JingJing gasped, as if the geographical context changed the physical reality of being fucked, which it did, somehow — the foreignness of it, the newness, the disorientation of pleasure in an unfamiliar place that made the pleasure itself feel unfamiliar, feel first-time, feel like they were learning each other again in a new language.
+
+"We are."
+
+"On our *honeymoon*."
+
+"We are." Jan's hips. Steady. Deep. The strokes that filled her completely, that she felt in her whole body, that made her toes curl against the tatami. "Is this what you imagined?"
+
+"Better." JingJing pulled Jan down. Kissed her. Tasted the airplane coffee and the toothpaste and the specific Jan-ness of Jan's mouth. "I imagined a lot of things. This is better than all of them."
+
+"What did you imagine?"
+
+"You. Here. Doing this." JingJing's legs tightened around Jan's waist. "I imagined you fucking me in every room. On the futon. In the bath. Against the — the sliding door thing—"
+
+"The shoji screen."
+
+"Against the shoji screen." She gasped — Jan had shifted angles, the adjustment that found the deep place, the place that made JingJing's voice crack and her back arch. "I imagined you — ah, *fuck* — I imagined you doing this to me and then holding me afterward and then doing it again and then we'd go look at temples and then you'd do it again—"
+
+"We can do that."
+
+"Promise?"
+
+"I promise to fuck you in every room, hold you after, fuck you again, take you to a temple, and fuck you a third time."
+
+"Fourth. You forgot the shoji screen."
+
+"Fourth." Jan kissed her throat. Her collarbone. Her breast — the left one, the sensitive one, the one that made JingJing's hips buck when Jan's tongue found the nipple and circled. "Any other requests?"
+
+"The bath." JingJing's voice was getting higher. The pitch that signaled proximity — Jan knew it, tracked it, adjusted for it the way a musician tuned to a rising note. "I want you in the bath. The hot spring. Outside. Where—"
+
+"Where what?"
+
+"Where someone could hear." The words came out breathy. Quiet. The confession that was also a dare, the exhibition kink that Jan wore and that JingJing, in the privacy of their bedroom and now in the privacy of a Kyoto ryokan, reflected back at her. "The bamboo fence is high but it's not — the sound carries. If I'm loud enough."
+
+Jan's rhythm changed. Harder. The thrusts that pushed JingJing up the futon, that she felt in her teeth, in her skull, in the place where thought dissolved into sensation. "You want them to hear you?"
+
+"I want you to make me loud enough that they hear me." JingJing's nails in Jan's back. The scratches. The marks. "Make me loud, Jan. Make me—"
+
+Jan's hand covered her mouth. Firm. The control — sudden, total, the Daddy energy that JingJing craved and provoked and received. JingJing's eyes went wide. Her moan muffled against Jan's palm.
+
+"Not yet," Jan said. Low. The voice. "I'll make you loud in the bath. Right now, I want you quiet. Right now, I want to feel you come without hearing you."
+
+The paradox of it — the demand for silence that made the desire to scream unbearable — crested inside JingJing like a wave that had nowhere to break. She came against Jan's hand. The orgasm muffled, contained, the shaking violent because the sound couldn't go anywhere and the body compensated, the pleasure converting to motion because it couldn't convert to noise. She came with her eyes on Jan's — the amber, steady, watching her, watching the silent orgasm happen with the focus of someone who found the silence itself erotic.
+
+Jan came inside her. Deep. The pulse. JingJing felt it and gasped behind Jan's hand — the secondary wave, the feeling of being filled, of Jan's release inside her body, the warmth of it, the claim of it.
+
+Jan removed her hand. JingJing breathed. Gasped. Laughed.
+
+"You're insane," JingJing said.
+
+"You married me."
+
+"I did. And I'd do it again." She pulled Jan down. Forehead to forehead. Breathing together. The futon, the tatami, the cold air through the open door, the garden visible, the bamboo fence, the December sky.
+
+"Bath?" Jan asked.
+
+"Give me ten minutes."
+
+"Five."
+
+"You're relentless."
+
+"I'm on my honeymoon."
+
+---
+
+The bath. The private hot spring — the rotenburo, the outdoor bath, the stone-and-cedar tub set into the garden behind the bamboo fence. The water was hot — volcanic, mineral-rich, the kind of heat that soaked into bone and muscle and dissolved everything except the present tense.
+
+JingJing sank in and moaned. The sound echoed. The bamboo fence was high but the acoustics of the garden amplified everything — the splash, the sigh, the particular sounds of two bodies in hot water in a Japanese winter.
+
+Jan slid in across from her. The water up to her chest. The cock visible beneath the surface — the distortion of water bending the image, the shimmer of it.
+
+"Come here," Jan said.
+
+JingJing crossed the bath. Through the water. The resistance of it against her body — the slow motion, the deliberate approach, the bride walking the aisle again except the aisle was a hot spring and the altar was her wife's lap. She straddled Jan. The water displaced. The heat of the spring and the heat of Jan's body — two kinds of warmth, the natural and the human, combining.
+
+Jan's hands on her hips. Under the water. The weight of the water making everything slower, heavier, more deliberate. JingJing reached between them. Found the cock. Guided it.
+
+"Slow," Jan said.
+
+"Slow?"
+
+"We have all night. We have all week." Jan's thumbs tracing circles on JingJing's hipbones. "Slow."
+
+JingJing sank down. Slow. The water making the entry different — easier, warmer, the lubrication of mineral water and her own arousal combining. She took Jan inch by inch, the stretch familiar and new in the new context, in the heat, in the steam that rose around them and obscured their bodies in fog.
+
+All the way down. Full. Jan inside her in the hot spring, in the cold air, in the December dusk. Stars beginning — just the first ones, visible through the steam, pinpricks of light in a darkening sky.
+
+"Move," Jan said. "Slow."
+
+JingJing moved. The water resisting, adding weight to every rise and fall, the rhythm necessarily languid — the bath dictating the tempo, the tempo dictating the mood. Slow. Deep. Each stroke complete. Each stroke a sentence in a conversation conducted entirely in sensation.
+
+"Loud," Jan said. "You wanted to be loud."
+
+JingJing didn't need permission. The first moan came naturally — drawn from her by the depth of a stroke that hit perfectly, by the angle that the water created, by the buoyancy that let her take Jan deeper than she could on dry land. The moan echoed off the bamboo fence and scattered into the garden and carried over the wall and into the Kyoto evening.
+
+"Louder," Jan said.
+
+JingJing was louder. The sounds pulled from her by the rhythm, by the deep strokes, by the heat that was dissolving her boundaries between body and water and sensation. She moaned Jan's name. She said words — Thai and English and the fragments of language that preceded their meaning, the sounds that meant pleasure before they meant anything else.
+
+"Everyone in this ryokan—" JingJing gasped, rising, falling, the water splashing over the stone rim "—is going to know—"
+
+"Let them."
+
+"—that I'm—"
+
+"Let them know." Jan's hands tightening on her hips. Guiding her. The pace building despite the water's resistance, building because JingJing's body was stronger than the water, because want was stronger than physics. "Let the whole city know. Let everyone know that my wife—"
+
+"*Yes—*"
+
+"—is loud—"
+
+"*Yes*—"
+
+"—and mine—"
+
+JingJing came. In the bath. In Kyoto. In December, under the first stars, in the steam and the mineral water and the cold air on her shoulders and the hot water on everything else. She came loud — the sound she'd been promised, the sound she'd been holding, the full-throated, echo-off-the-bamboo, carry-across-the-garden, wake-the-neighbors sound of a woman who had been quiet for a year and had decided, on her honeymoon, to stop.
+
+Jan came inside her. In the water. The warmth of it indistinguishable from the warmth of the spring, the two heats merging, the boundaries between the natural and the human dissolving the way they had dissolved between performance and truth, between the show and the life, between Lal and Jan and Wine and JingJing.
+
+They stayed in the bath. The stars emerging. The steam rising. JingJing's head on Jan's shoulder, the water lapping at their collarbones. Two rings visible above the surface. Two women in a hot spring in Kyoto, married, public, loud, alive.
+
+"We should see a temple tomorrow," JingJing murmured.
+
+"We should."
+
+"And then come back here."
+
+"And then come back here."
+
+"And then the shoji screen."
+
+Jan laughed. The sound echoed too — over the bamboo fence, into the garden, into the Kyoto evening, where it joined JingJing's earlier sounds in the acoustic record of a honeymoon that the ryokan staff would discuss, discreetly, for years.
+
+---
+
+They spent a week. Kyoto in winter — the temples, the gardens, the narrow streets of Gion where they walked hand in hand and JingJing took photos of everything and Jan carried Noo-Noo in her coat pocket because JingJing insisted the rabbit should see Japan and Jan had stopped questioning Noo-Noo's travel requirements approximately eight months ago.
+
+They posted on Instagram. The stories, the photos, the casual documentation of a honeymoon that half a million followers consumed with the intensity of a fandom watching the happily-ever-after they'd manifested unfold in real time.
+
+Jan's story: JingJing asleep on her shoulder on the shinkansen, Noo-Noo tucked under her arm. The ring visible. The window showing the landscape blurring past. No caption needed.
+
+JingJing's story: Jan at Fushimi Inari, standing in the torii gates, the red pillars framing her like a painting. JingJing's caption: *My wife.* That was all. That was everything.
+
+Love commented on every post. Every single one. Crying emojis. Heart emojis. A running commentary of reaction that constituted its own narrative — the story of a best friend watching her best friend be happy and being unable to contain her response.
+
+Milk commented on one post. The photo of Jan and JingJing at the Arashiyama bamboo grove, foreheads touching, rings aligned. Milk's comment: *👊❤️*. The fist bump and a heart. The first time Milk had used a heart emoji. Love screenshotted it. Posted it to her own story. Caption: *MILK USED A HEART. THIS IS NOT A DRILL.*
+
+They had sex every day. Every kind. The futon in the morning — slow, warm, the wake-up sex that transitioned from sleep to arousal without a clear border between them. The bath in the afternoon — the hot spring, the steam, the echoes that JingJing no longer tried to suppress. The shoji screen on the third night — Jan pressing JingJing against the paper partition, the fragility of it adding a frequency of caution that made the recklessness sharper, JingJing's palms flat against the screen, the shadow of her body visible from the other side if anyone had been looking, which no one was, which didn't diminish the thrill.
+
+Against the ryokan room's low table on the fourth night, JingJing bent forward over the lacquered surface, Jan behind her, the position that let Jan go deep and let JingJing be loud and let the table creak in a rhythm that matched the rhythm above it. The yukata pushed up around JingJing's waist. Jan's hands on her hips. The room smelling like tatami and sex and the jasmine perfume JingJing wore because it reminded her of the garden, of the wedding, of the pergola where she'd said *forever* and meant it.
+
+On the fifth morning, something new.
+
+They lay in the futon. Post-sex. The sheets tangled. JingJing on her back. Jan beside her. The morning light — the Kyoto version, softer than Bangkok, filtered through the shoji screens into a glow that made the room feel like the inside of a lantern.
+
+"Jan."
+
+"Mm."
+
+"This is different."
+
+"What's different?"
+
+JingJing turned her head. Looked at Jan. The amber eyes, half-closed, the post-orgasm drowsiness, the soft face.
+
+"The sex," JingJing said. "It's different. Since the reveal. Since we went public." She paused. Finding the words for something she'd been feeling for days — the shift, the change, the subtle alteration in the frequency of their bodies. "It's — freer. It's the same moves, the same positions, the same everything. But it's different."
+
+Jan opened her eyes. Fully. Looking at JingJing with the attention she gave to everything that mattered.
+
+"The hiding was part of it," JingJing continued. "The secrecy. The getting-caught risk. The exhibitionism — your thing, the dressing room, the conference room, the almost-getting-seen." She smiled. "I loved it. I love it. But now that we're public — now that everyone *knows* — the sex isn't about getting caught anymore. There's no one to get caught by. The danger is gone."
+
+"Is that bad?"
+
+"No." JingJing sat up. Cross-legged. Naked. The ring catching the light. "It's — the hiding was hot. But it was hiding. And now we're not hiding and the sex is — it's free. It's just us. We're not stealing time in a dressing room. We're not sneaking. We're just — two married people who want each other and can have each other openly."
+
+"Free sex," Jan said.
+
+"Free sex." JingJing grinned. "The kind where I can scream and you don't cover my mouth and nobody is timing us and Lin isn't going to knock on the door."
+
+"You miss the mouth-covering."
+
+"I miss the mouth-covering a little bit." She leaned over. Kissed Jan. "But I like this more. I like being able to take my time. I like being able to be loud. I like being your wife in a ryokan in Japan and not caring who hears."
+
+Jan pulled her down. Into the futon. JingJing went — willingly, laughing, the tangle of limbs and sheets and the morning light and the ring and the rabbit (Noo-Noo was on the pillow, facing the shoji screen, the permanent orientation of privacy even in a country where the rabbit had never been).
+
+"Free sex," Jan said against JingJing's throat. And her hand moved between JingJing's legs. And JingJing made a sound — the free sound, the unrestricted sound, the sound of a woman who had nothing left to hide and nothing left to fear and who was discovering, in the gentle light of a Kyoto morning, that the best kind of intimacy was the kind that didn't need a locked door.
+
+---
+
+## Chapter 30: Epilogue — One Year Later
+
+October. Bangkok. The GMMTV lot.
+
+The dressing room had a new lock. A better lock — a deadbolt, installed by a maintenance worker who had been tipped generously by an actress who had explained, with a completely straight face, that she needed enhanced privacy for "vocal warm-ups." The maintenance worker had installed the deadbolt and had not asked follow-up questions and had received a bottle of whisky the following week from a woman whose vocal warm-ups he would never have to hear about.
+
+JingJing sat on the love seat. Noo-Noo in her lap. The rabbit was worn now — more worn than before, the button eyes slightly loose, the cream fur thinning at the ears where JingJing held her. Noo-Noo had been to a wedding and a honeymoon and a fancon and had appeared on national television and had been photographed more times than most human celebrities. Noo-Noo had her own fan account. Noo-Noo had merchandise. Noo-Noo was, by any measurable standard, the most famous stuffed rabbit in Thailand.
+
+Noo-Noo faced the wall. Some things didn't change.
+
+"You're going to be late," JingJing said, without looking up from her phone. She was scrolling Instagram. The @janjingjing_th fan account — two million followers now, a sprawling empire of edits and compilations and fan art and the obsessive documentation of two women's public love that had, against all odds and against all Lin's best efforts, become one of the largest GL fan communities in Southeast Asia.
+
+Jan was at the mirror. New costume — a different show, a new character, a new script. The career that continued. The work that remained after the love story went public, the professional life that existed alongside the private life, the actress who was also a wife who was also a person who was standing in a dressing room on the GMMTV lot trying to get her hair to cooperate.
+
+"I'm not late," Jan said. "I have ten minutes."
+
+"You have seven minutes."
+
+"Seven is ten."
+
+"Seven is seven. Math is not subjective." JingJing set her phone down. Looked at Jan. The amber eyes in the mirror, catching JingJing's reflection. The ring on Jan's finger — visible, permanent, the gold band that caught the dressing room lights the way it had caught the garden lights, the stage lights, the Kyoto morning light. "You look good."
+
+"I always look good."
+
+"You look especially good." JingJing stood. Crossed the room. Stood behind Jan at the mirror. Wrapped her arms around Jan's waist. Chin on Jan's shoulder. Two faces in the glass — JingJing's smaller, rounder, pressed against Jan's neck; Jan's sharp, composed, the jaw that could cut paper. Two rings visible. "New costume suits you."
+
+"It's the same color as the Lal tuxedo."
+
+"Maybe that's why."
+
+Jan turned in JingJing's arms. Faced her. The height difference — the chin-tilt, the look-up, the geometry that hadn't changed and would never change and that JingJing loved because it meant Jan's face was always slightly above hers, which meant Jan could always look down at her with that specific expression — the soft one, the real one, the one that meant *I see you and you are my favorite thing I've ever seen*.
+
+"Milk and Love are across the lot," Jan said.
+
+"I know. Love texted me this morning. Four hundred words. She's excited about the new show." JingJing paused. "She's also excited because Milk proposed."
+
+Jan blinked. "When?"
+
+"Last night. Love said — and I'm quoting from the text, which was mostly exclamation points — 'SHE DID IT. IN THE KITCHEN. SHE WAS MAKING PAD THAI AND SHE JUST STOPPED AND SAID MARRY ME AND I DROPPED THE WOK.' There was a photo of the ring. And a photo of the dropped wok. The kitchen floor has pad thai stains."
+
+Jan's face cracked. The laugh — the real one, the rare one, the one that broke through the composure with the force of genuine surprise and joy. "Milk proposed while making pad thai."
+
+"Milk proposed while making pad thai."
+
+"That is the most Milk thing that has ever happened."
+
+"Love said the pad thai was good. She ate it off the floor while crying."
+
+"That is the most Love thing that has ever happened."
+
+JingJing grinned. "We're going to have to help them plan a wedding."
+
+"Fah is going to plan their wedding. Fah has already planned their wedding. Fah started planning their wedding the day Milk and Love started dating. There is a folder."
+
+"There's always a folder." JingJing kissed Jan's jaw. The quick one. The stolen one. The kiss that still felt stolen even though there was nothing left to steal, even though the door had a deadbolt and the world knew and the hiding was over. Some things still felt like theft. The best things.
+
+A knock on the door.
+
+"Five minutes," Lin's voice said. Calm. Professional. Rested — Lin was rested now, had been rested for months, the dark circles gone, the clipboard carried loosely, the woman who had survived the war and found peace on the other side of it. "Also, Milk is here. She says congratulations are in order."
+
+Jan opened the door. Milk was standing beside Lin. Grey jacket. Hands in pockets. The face carefully neutral — the Milk mask, the stoicism, the composure that was so similar to Jan's that their friendship sometimes felt less like a relationship and more like a mirror.
+
+"I heard," Jan said.
+
+"Love texted."
+
+"Love texted at six AM. Four hundred words."
+
+"She texted me twelve hundred words." Milk's composure cracked. A smile — small, real, the rare one. "She said yes."
+
+"She was always going to say yes."
+
+"I know. I was still nervous." Milk looked at her hands. The ring — simple, silver, different from Jan's gold but carrying the same weight. "I dropped the pad thai."
+
+"I heard."
+
+"The kitchen is stained."
+
+"I heard."
+
+They looked at each other. Jan and Milk. The two women who had navigated parallel waters — the same industry, the same closets, the same fear and defiance and the specific loneliness of loving someone you couldn't talk about. They had talked about it. To each other. In phone calls and dressing rooms and the quiet moments between the public moments. They had been each other's infrastructure.
+
+Jan held out her fist. Milk bumped it. Then Jan pulled her into the hug — the brief one, the tight one, the one that communicated everything.
+
+"Congratulations," Jan said.
+
+"Thank you." Milk pulled back. Eyes red. She would deny this. "Love wants a big wedding."
+
+"Of course she does."
+
+"She wants matching dresses."
+
+"Of course she does."
+
+"She wants JingJing to be her maid of honor."
+
+"Of course she—" Jan stopped. Looked at JingJing.
+
+JingJing was already crying. Standing in the doorway of the dressing room with Noo-Noo under her arm and tears running down her face and the smile that meant the feeling was too big for the container and was leaking out through every available opening.
+
+"Tell her yes," JingJing said.
+
+Milk smiled. The real one. The one that Love had found first and that the rest of the world saw now, sometimes, in interviews and Instagram stories and the unguarded moments that cameras caught and fans preserved. She looked at JingJing and at Jan and at the dressing room behind them and at the ring on Jan's finger and at Noo-Noo, who faced the wall and saw nothing and knew everything.
+
+"Same dressing room," Milk said.
+
+"Same lot," Jan said.
+
+"Same industry." Milk put her hands back in her pockets. The composure returning. The mask going on. But the smile stayed — the crack in the stoicism that Love had made permanent. "Different dressing room, though. Love needs her own space. She has a lot of — accessories."
+
+"Accessories?"
+
+"Ballet shoes. Seventeen pairs. And a stuffed animal."
+
+JingJing's eyes went wide. "Love has a stuffed animal?"
+
+"A bear. She's had it since she was six. His name is Moo."
+
+"*Moo.*" JingJing held Noo-Noo up. "Noo-Noo needs to meet Moo."
+
+"Noo-Noo is a stuffed rabbit."
+
+"Moo is a stuffed bear. They'd be friends."
+
+"They're not — they can't be *friends*, they're—" Milk stopped. Looked at Jan. The look that said *help me*.
+
+Jan shrugged. "Noo-Noo makes friends."
+
+"Noo-Noo is fabric and buttons."
+
+"And yet."
+
+Milk stared at them. Then she shook her head. Then she smiled — the real smile, the one that meant she had accepted that her life now included conversations about the social lives of stuffed animals and that this acceptance was, in its own absurd way, a kind of happiness.
+
+"I'll tell Love," Milk said. "About Moo and Noo-Noo."
+
+"Tell Love that Noo-Noo has a white ribbon," JingJing said. "From the wedding. She's been wearing it for a year. Moo should get one too."
+
+"I am not—"
+
+"A little blue one. To match Love's favorite color."
+
+Milk opened her mouth. Closed it. Opened it again. Said nothing. Turned and walked down the corridor toward the Ditto set, her hands in her pockets, her ring catching the fluorescent light, the smile still on her face.
+
+Lin watched her go. Clipboard in hand. The grip loose. The expression on Lin's face — the one she wore now, in the after, in the peace — was the expression of a woman who had built a career on managing chaos and was now managing calm and finding, to her surprise, that calm was harder.
+
+"Two minutes," Lin said. "Set is ready."
+
+Jan looked at JingJing. JingJing looked at Jan. The same dressing room. The same lot. The same lock on the door — upgraded, but the same. The same JingJing, holding Noo-Noo. The same Jan, composure in place, amber eyes soft.
+
+"Kiss for luck?" JingJing asked.
+
+"You don't need luck."
+
+"Kiss for love, then."
+
+Jan kissed her. Quick. Soft. The forehead kiss — the prayer, the blessing, the gesture that had started in a dressing room a year ago and had become the punctuation mark of their daily life, the thing Jan did every morning before JingJing opened her eyes and every evening before JingJing closed them.
+
+"I love you," Jan said.
+
+"I love you."
+
+"Go be brilliant."
+
+"Go be Jan."
+
+JingJing watched her walk to set. The suit. The posture. The walk that owned every room it entered and would own rooms for decades.
+
+JingJing set Noo-Noo on the shelf. The shelf. Their shelf, in their dressing room, the same shelf that Sirin had written about, the shelf that had become, in the public imagination, a symbol of something larger — the small accommodations of love, the domestic instincts that betrayed the private truth.
+
+The rabbit sat on the shelf. Button eyes. Drooping ears. The white ribbon. Facing the wall. Seeing nothing. Knowing everything.
+
+"Watch the room, Noo-Noo," JingJing said. "I'll be back."
+
+She closed the door. The deadbolt clicked. The corridor stretched toward the set — toward the lights, the cameras, the new show, the continued career, the life that happened between the private moments and was made possible by them.
+
+Behind the closed door, on the shelf, in the quiet dressing room, Noo-Noo sat facing the wall. The ring bearer. The witness. The cream-colored, button-eyed keeper of every secret, every kiss, every locked door and fogged mirror and whispered name.
+
+The ring on JingJing's finger caught the corridor light as she walked. Gold. Warm. Permanent.
+
+The hiding was over. The performing was over. The space between — between Jan and JingJing, between the show and the life, between the fiction and the truth — had closed, and what remained was this: two women who loved each other, walking to set, wearing rings, carrying a story that had been private and was now public and was, in both forms, the same story.
+
+A love story. The truest one. Theirs.
+
+---
+
+*END*
+
+---
+
+**Author's Note:**
+
+*After Hours 2: The Double Wedding* is a work of fan fiction based on *Enemies with Benefits* (ลัลล์ไม่ชอบไวน์, 2026) by Snow Leopard, produced by GMMTV for GMM 25. All characters, shows, and real persons referenced are used fictitiously in accordance with RPF conventions. This work is not affiliated with, authorized by, or endorsed by GMMTV, GMM 25, Snow Leopard, or any persons depicted herein.
+
+MilkLove's story continues in *Ditto: Falling.*
+
+---
+
+**Tags:** G!P Jan, Bratty Sub JingJing, DD/lg Dynamics, Exhibitionism, Secret Relationship, Secret Marriage, MilkLove, Noo-Noo the Stuffed Rabbit, Not RPF We're Just Playing, Dressing Room Sex, Hot Spring Sex, Wedding Night Sex, Sirin Is a Good Journalist, Lin Deserves a Vacation, Fah Has a Folder, Love Cries at Everything, Milk Uses a Heart Emoji Once, The Space Between
