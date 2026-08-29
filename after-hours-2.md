@@ -2234,3 +2234,431 @@ Under the post, in the comments, @jingjingyu36 liked it. Then unliked it. Then c
 Noo-Noo watched from the headboard shelf. Button eyes. Knowing everything.
 
 ---
+
+## Chapter 8: Sirin Notices
+
+Three weeks in, Sirin had a board.
+
+Not a physical board — she didn't pin things to walls like a conspiracy theorist or a TV detective. She had a document. A running file on her laptop, organized by date, cataloguing observations the way a biologist catalogues specimens: with precision, without judgment, each entry a data point waiting for a pattern to emerge.
+
+The observations were not about Jan and JingJing.
+
+That was the thing. That was the thing that made Sirin better at this than most people would have been — she had spent three weeks watching the leads, watching them on set and off set, watching them rehearse and eat and walk and talk, and what she had observed was: nothing. Or rather — everything that was consistent with two actresses who had extraordinary chemistry and a warm professional relationship and the comfortable intimacy of colleagues who spent a lot of time together.
+
+Jan and JingJing did not behave like people hiding something. They behaved like themselves. They touched each other constantly — but GL lead pairs often did. They arrived together — but they'd been open about carpooling since the original series. They shared food — but that was Thai. They looked at each other with an intensity that bordered on combustion — but that was acting. Maybe. Probably.
+
+If Sirin had been looking at Jan and JingJing alone, she might have filed the story under "compelling chemistry, plausibly professional" and moved on.
+
+She was not looking at Jan and JingJing alone. She was looking at the ecosystem around them. And the ecosystem was *screaming*.
+
+The document:
+
+*Sept 15: Fah appears at the dressing room door three times in one hour. Each time, she knocks, waits, and enters only after Jan responds verbally. No other talent's dressing room receives this protocol.*
+
+*Sept 17: During the table read, Jan improvises a line — "I don't want a future where waking up isn't this." JingJing's eyes fill. Lin, sitting at the end of the table, grips her pen until her knuckles go white. The reaction is not to the line itself but to something ABOUT the line. The room changes temperature.*
+
+*Sept 19: I approach the craft services table while Jan and JingJing are eating. Before I reach them, three crew members independently redirect my path — one asks about my credentials, one offers to show me the set, one physically steps between me and the table. The coordination is unconscious. They don't look at each other before they move. They have REHEARSED this.*
+
+*Sept 22: Lin excuses herself from a production meeting when I ask about Jan and JingJing's off-set dynamic. Her reason: "stomach pain." She returns twelve minutes later. She does not appear to have been in the bathroom. She appears to have been in her car.*
+
+*Sept 24: I find the hallway between Studio A and the costume department blocked by a PA I haven't seen before. She tells me the hallway is "under maintenance." There is no maintenance equipment visible. Jan and JingJing are not in the studio. They are not in the costume department. They are not in any location I can determine for approximately twenty minutes.*
+
+*Sept 26: Prae redirects a conversation about Jan and JingJing's chemistry three times in a single interview. Each redirection is subtle, professional, and exactly the kind of thing a director does when she is protecting her cast from a question she considers dangerous. The question I asked was: "They seem very close." This should not be a dangerous question.*
+
+Sirin closed her laptop. Sat back. Looked at the ceiling of the small workspace she'd claimed in the production office — the one Fah had offered her in the east wing, far from the dressing rooms, far from the hallway, far from everywhere Jan and JingJing tended to be alone.
+
+Far from everything.
+
+That, too, was a data point.
+
+---
+
+On Thursday, Sirin changed her approach.
+
+She stopped watching Jan and JingJing. She started watching Lin.
+
+Lin was the weak point — not because Lin was careless, but because Lin was *honest*. Lin's face did not know how to lie. Lin's body did not know how to pretend. Every emotion Lin experienced was legible on her surface within half a second of its occurrence, and the emotion Lin experienced most frequently in the vicinity of Jan and JingJing was: abject, bone-deep, physiologically compromising terror.
+
+Sirin didn't interview Lin. She didn't approach her. She simply adjusted her own position in the production ecosystem so that she was in Lin's periphery more often — eating in the same area, sitting in the same rehearsal rooms, being present when Jan and JingJing were present, which was when Lin's tells were most active.
+
+She observed:
+
+Lin's jaw clenched when Jan touched JingJing's face during a rehearsal take.
+
+Lin's breathing changed — shallow, controlled, the breathing of someone managing a stress response — when JingJing leaned against Jan's shoulder during a break.
+
+Lin's eyes tracked not Jan and JingJing but the *space around* them — the door, the window, the hallway, the position of every person in the room relative to the two women at the center — with the systematic, threat-assessing precision of a bodyguard.
+
+Lin left rooms when Sirin entered them.
+
+Not obviously. Not rudely. Lin would check her phone, murmur something about a line she needed to run, and exit with the practiced ease of someone who had been finding reasons to leave rooms for months. But the timing was specific: Lin left when Sirin arrived, and only when Jan and JingJing were also present. When Jan and JingJing were absent, Lin stayed.
+
+The inference was simple: Lin was not avoiding Sirin. Lin was avoiding the *combination* of Sirin and Jan and JingJing. She was removing herself from the equation that she considered most dangerous: journalist + subjects + witness.
+
+A witness to what?
+
+Sirin didn't know yet. But she knew the shape. She could feel it — the contour of the unspoken, the architecture of the secret, defined not by what people said but by what they didn't say and by how carefully they didn't say it. Sixty people in a production, all performing the same coordinated ignorance, all flinching at the same cues, all moving with the same synchronized avoidance pattern.
+
+Sirin had spent a decade writing about the space between performance and truth. She knew what performance looked like from the inside — the effort of it, the seams, the places where the stitching showed. And what she was seeing on the set of *Married to My Enemy* was not two performers hiding something. It was an entire production hiding something *about* two performers who didn't seem to know there was anything to hide.
+
+That was the strangest part. That was the piece that didn't fit.
+
+Jan and JingJing were not performing. They were not careful. They were not calibrated or controlled or any of the things people were when they were protecting a secret. They were — natural. Easy. Unselfconscious in a way that made the crew's hypervigilance even more conspicuous, because the contrast was so stark: the leads gliding through the building like they were in their own private world, and the crew orbiting them like a defense system, intercepting threats the leads didn't even see.
+
+If Jan and JingJing were hiding something, they were doing it without trying. Which meant either they were the best actors Sirin had ever encountered — better on screen than off, which was impossible — or they weren't hiding anything at all.
+
+Or — and this was the possibility that kept Sirin up at night, that made her stare at the ceiling and turn the stone over and over — they had something to hide but they didn't *know* they needed to hide it. They were walking through a minefield and they thought it was a garden.
+
+And sixty people were trying to clear the mines before they stepped on them.
+
+---
+
+On Friday, Sirin had lunch with Prae.
+
+This was not unusual — they ate together twice a week, a standing arrangement that served both parties. Prae got to monitor what Sirin knew. Sirin got to observe how Prae monitored.
+
+They sat in the production office, at the small table by the window that overlooked the parking lot. Prae had pad see ew. Sirin had green curry. Between them: professionalism, mutual respect, and the specific, adversarial warmth of two smart women who understood each other's positions and were playing a game neither acknowledged existed.
+
+"The production is going well," Sirin said. "The vow rehearsals are extraordinary. There's an emotional depth to what Jan and JingJing are doing that goes beyond the script."
+
+"They're talented," Prae said. Neutral. The neutrality of a director protecting her cast the way a mother protects her children: instinctively, comprehensively, without appearing to do so.
+
+"They are. They're also — connected. In a way I don't usually see in GL productions. Most pairs have chemistry ON camera. These two have it off camera too. It doesn't diminish when the director calls cut. If anything, it intensifies."
+
+Prae ate a noodle. "They're close friends."
+
+"Very close."
+
+"As you'd expect from co-leads who've been working together for over a year."
+
+"Of course." Sirin paused. "Khun Prae, can I ask you something off the record?"
+
+Prae's chopsticks paused for a fraction of a second. Then continued. "You can ask."
+
+"The crew — not Jan and JingJing, but the people around them. They seem very... coordinated. In how they relate to the leads. There's a pattern I'm seeing — a kind of protective choreography that I don't usually see in productions this size. People move around Jan and JingJing differently than they move around the rest of the cast. It's subtle, but it's consistent."
+
+Prae looked at her. The director's gaze — sharp, evaluative, the eyes of someone who had spent two decades reading performances and could tell the difference between a question and a fishing expedition.
+
+"My crew is professional," Prae said. "They care about the production. They care about the talent. If they seem protective, it's because they are. Jan and JingJing are — they're special. Not just as performers. As people. The crew respects them. That's all."
+
+"I'm not suggesting anything else."
+
+"Good."
+
+They ate in silence for a moment. Outside, the parking lot baked in the September sun. A motorcycle courier delivered something to the front desk. The air conditioning hummed.
+
+"Sirin," Prae said.
+
+"Yes?"
+
+"What are you writing? Not the documentary. The piece. What is it going to be?"
+
+Sirin set down her spoon. Met Prae's eyes.
+
+"I'm writing about the space between fiction and reality in GL production," Sirin said. "About what happens when a story becomes more than a story — when the performance starts to resonate at a frequency that feels like truth. I'm not writing an exposé. I'm not writing gossip. I'm writing about the phenomenon itself — the way an audience can sense authenticity, the way a production can become a container for something real, the way the line between acting and being can blur until even the people living it can't tell the difference."
+
+Prae was quiet for a long time.
+
+"That's a good piece," she said finally.
+
+"I think so."
+
+"Just — be careful with it. With them. They're not a phenomenon, Sirin. They're people."
+
+"I know. That's why I want to get it right."
+
+Prae nodded. Finished her noodles. Stood. At the door, she paused.
+
+"Sirin."
+
+"Yes?"
+
+"If you find the line — the one between fiction and reality — tell me where it is. I've been directing this show for a year and I still can't see it."
+
+She left. The door closed.
+
+Sirin sat alone with her green curry and her notebook and the growing, sharpening, undeniable sense that she was looking at a picture that was almost complete, and the missing piece was not something she would find but something that would find her — would present itself, in a moment of unguarded truth, the way all the best stories did: not because the journalist was clever, but because the truth, given enough time, refused to stay hidden.
+
+The crew could build their perimeter. Fah could run her intercepts. Lin could block every sightline and stand in every hallway and develop every stress-related illness in the medical literature. They could defend Jan and JingJing with everything they had, and Sirin believed they would, because the defense was genuine and the love behind it was obvious and that, too, was part of the story.
+
+But Jan and JingJing were not being defended by their own behavior. They were defended *despite* it. And eventually — inevitably — the gap between the shield and the sword would widen, and something would show through.
+
+Sirin would be watching when it did.
+
+Not to expose. Not to harm. But to witness.
+
+Because that was what journalists did. They witnessed. And then they told the truth — or the version of it they chose to tell, with all the weight and responsibility that choice implied.
+
+Sirin chose carefully. She always had.
+
+She finished her curry. Opened her laptop. Added a new entry to the document:
+
+*Sept 29: Prae asks me what I'm writing. Not a casual question — a deliberate one, delivered with the precision of a director blocking a scene. She wants to know the shape of my piece. She wants to know if it's safe. She wants to know if HER CAST is safe. The question tells me more than any answer could: there is something to protect. She knows what it is. She has decided, deliberately, that protecting it is more important than the documentary going well. This is a director choosing her people over her production. I respect this. I also note it.*
+
+She closed the laptop. Sat back. Thought about Jan's smile — the sunrise one, the one that appeared when she talked about marriage, the one that was not Lal's smile but Jan's.
+
+She thought about JingJing's hands, going to her chest, finding something under her shirt, holding it like a prayer.
+
+She thought about Lin's face — white, tight, the face of someone standing between two people she loved and a truth that could hurt them.
+
+The picture was almost complete.
+
+---
+
+## Chapter 9: The Rehearsal
+
+The table read for the vow scene was scheduled for Tuesday at 10 a.m. in the main rehearsal room — a large, windowless space with good acoustics and bad lighting and a conference table that seated twenty and a whiteboard where Prae had diagrammed the blocking in three colors of dry-erase marker.
+
+The vow scene was the centerpiece of *Married to My Enemy*. Twelve pages of script. Lal and Wine, standing in a garden — the garden, the Nonthaburi garden, the same garden where Jan and JingJing would stand in seven weeks — exchanging vows they had written themselves. The script called for emotion but not sentiment, honesty but not melodrama, the specific kind of vulnerability that came from saying something true in front of people who mattered.
+
+Everyone was there. Prae at the head of the table. The secondary cast — including Kapook, who was reading Tangkwa's reaction shots, and Ciize, who was reading Proud's and who had arrived from the Ditto set across the lot with the harried energy of someone who was living in two shows at once and sleeping in neither. Lin, reading her supporting role. Fah, in the corner with the clipboard, vibrating at her baseline frequency of controlled crisis. The script supervisor. The continuity editor. Two camera operators who needed to understand the emotional arc for their shot planning.
+
+And Sirin. In her usual spot. Chair against the wall. Notebook open. Pen uncapped.
+
+Lin had tried to exclude Sirin from the table read. She had made the case to Prae — privately, in a supply closet, at 7 a.m. — that table reads were sacred, that actors needed to feel safe to be vulnerable, that the presence of a journalist would compromise the emotional authenticity of the performance.
+
+Prae had listened. Considered. Said: "You're right. And we can't exclude her. Her access agreement specifically includes table reads. If I block her now, she'll know I'm blocking her, and she'll wonder why, and wondering why is worse than watching."
+
+"Worse for whom?" Lin had asked.
+
+Prae hadn't answered.
+
+Now Lin sat at the table with her script open and her hands folded on top of it and the specific, rigid composure of someone who had taken a Xanax at 6 a.m. and was hoping it would last until noon.
+
+Jan and JingJing arrived together. As always. Jan carrying both coffees. JingJing half a step behind, wearing an oversized cardigan that swallowed her hands and made her look — as Jan privately, silently, hopelessly noted — like a child being swallowed by a blanket. Her hair was in the two small buns. The chain was under the cardigan. The keychain Noo-Noo was clipped to the inside of her bag, which was on the floor next to her chair, positioned so the bag was open and the keychain was visible — to JingJing — if she looked down.
+
+She would look down. During the hard parts.
+
+"Good morning," Prae said. "Let's begin. Page forty-seven. The garden. Exterior. Day. Lal and Wine face each other. The officiant has stepped back. The vows are unscripted — the characters have written them privately, and neither knows what the other will say. This is the emotional apex of the special. I need truth. I need rawness. I need you to forget the room is here."
+
+Jan opened her script. The page was marked — a small pencil star in the margin, the kind of mark Jan made when a passage mattered to her more than professionally. The stage direction read: *Lal takes Wine's hands. Holds them. Looks at her. Speaks.*
+
+Jan looked up from the script. Across the table. At JingJing.
+
+JingJing was looking at her script. Reading the words. Her lips were moving slightly — a silent run-through, the actor's habit of tasting the lines before saying them aloud.
+
+"When you're ready, Jan," Prae said.
+
+Jan was ready. Jan had been ready for this moment since the beach at Hua Hin, since the ring, since the day she understood that the vows she was writing for Lal were the vows she was writing for JingJing and the only difference was the name.
+
+She took a breath. And she read:
+
+"Wine. I spent a year pretending I didn't want you. I was — I was good at it. I was professional. I was controlled. I stood on my side of the room and you stood on yours and the distance between us was a performance I gave every day, a show I put on for everyone including myself, and the whole time — the *whole time* — the distance was a lie. Every argument was a love letter. Every insult was a confession. Every time I said 'I hate you,' what I meant was 'I want you so badly it feels like hate, because wanting someone this much is supposed to be painful, it's supposed to cost something, and the cost was pretending I didn't.'"
+
+Jan's voice was steady. Clear. The voice of someone who had rehearsed this — not the lines, but the truth underneath them, the truth she had been rehearsing since the day she met JingJing and understood, in the way you understand a natural law, that her life was about to be reorganized around this person.
+
+The room was silent.
+
+"And now I'm standing here," Jan continued, "and I'm done pretending. I'm done performing distance. I'm done being controlled and professional and careful, because careful is another word for afraid, and I'm not afraid anymore. I'm not afraid of wanting you. I'm not afraid of people seeing that I want you. I'm not afraid of any of it, because the only thing I was ever really afraid of was losing you, and you're here, and you're staying, and I—"
+
+Jan stopped. The script said more. The script had four more sentences — careful, crafted, balanced sentences that Snow Leopard had written with precision and care.
+
+Jan didn't read them.
+
+Jan looked at JingJing across the table and said something that was not in the script. That had never been in the script. That came from the place below the character, below the performance, below the architecture of acting, from the bedrock where Jan lived:
+
+"I never hated you. I wanted you so badly it felt like hate."
+
+The room didn't breathe.
+
+JingJing's hands were flat on the table. Her script was forgotten. Her eyes were full — not the performative wet, not the actor's shimmer, but the real thing, the tears that came from the place where JingJing was not JingJing-the-performer or JingJing-the-brat or JingJing-the-brand but JingJing-the-woman who had said *don't you dare stop* in a dressing room and had meant it for the rest of her life.
+
+"That's not in the script," JingJing whispered.
+
+"No," Jan said.
+
+"P'Jan—"
+
+"Read your vows. Wine's vows. Read them to me."
+
+JingJing looked down at her script. The words swam. She blinked — once, twice — and the words clarified, and she read:
+
+"Lal. I was cold because warm was too dangerous. I was strict because loose meant falling, and falling meant — meant trusting someone to catch me, and I didn't trust anyone. I built walls. I organized my life into spreadsheets and protocols and rules, and every rule was a way of saying 'don't touch me, don't see me, don't get close enough to find out what's underneath the cold, because what's underneath the cold is—'"
+
+JingJing's voice cracked.
+
+"'—is someone who loves you so much she doesn't know how to say it without the walls. Someone who needs the walls because without them the love is too big. It's too much. It fills every room I'm in, it takes up every thought I have, it makes me want to do things I've never done — be vulnerable, be soft, be *seen* — and those things terrify me, Lal. Being seen terrifies me. But you see me anyway. You've always seen me. Through the cold and the walls and the spreadsheets and the bullshit, you've always — you've always seen the person I actually am, and you loved her, and that's—'"
+
+JingJing stopped reading. Her hand went to her chest. Found the chain. Held the ring through the fabric.
+
+"That's the bravest thing anyone has ever done for me," she finished. The words were in the script, but the way she said them was not. The way she said them was the way she said *I love you* at 3 a.m., in the dark, in their bed, with Noo-Noo under her arm and Jan's heartbeat under her ear — small, honest, undefended.
+
+The room was silent. Not the silence of a rehearsal pause. The silence of a room full of people who had just witnessed something they weren't supposed to see — something private, something real, something that had used the script as a vehicle but had been driving toward its own destination the whole time.
+
+Prae was the first to move. She looked at her own hands. Then at Jan. Then at JingJing. Then at the script, which was irrelevant now, which had been made irrelevant by whatever had just happened between her two leads across a conference table.
+
+"That," Prae said carefully, "was very good."
+
+"Thank you," Jan said. Her voice was normal. Her ears were red.
+
+"We'll work with that in blocking. The off-script line — 'I wanted you so badly it felt like hate' — I'm keeping it. I'll talk to the writers."
+
+"Okay."
+
+"Let's move to the reaction shots. Lin — page fifty."
+
+Lin did not respond. Lin was sitting very still at the end of the table, her script untouched, her pen motionless, her face the specific color of someone who was either going to cry or faint and hadn't decided which. Her eyes were fixed on a point somewhere between Jan's left ear and the whiteboard, a neutral zone where she didn't have to look at either of them directly.
+
+"Lin," Prae said.
+
+"I need — I'm sorry. I need a minute."
+
+Lin stood. Her chair scraped. She walked toward the door — not fast, not slow, the careful, measured pace of someone whose knees were not entirely reliable — and left.
+
+Sirin watched her go.
+
+In her notebook, she wrote: *Lin left the room during the vow scene rehearsal. She was not acting. She was REACTING — to something the vows meant to her, something that exists outside the script. Her response was not aesthetic (moved by good writing) but personal (moved by something true). She knows something. She is carrying something. It is heavy.*
+
+Sirin closed her notebook.
+
+And wrote one more line: *"I never hated you. I wanted you so badly it felt like hate." Off-script. Jan's own words. Note where this line appears in the final documentary.*
+
+---
+
+That night, in the apartment, Jan and JingJing wrote their real vows.
+
+They did it separately. Different rooms. This was the tradition — the only tradition they'd agreed on, the one point of wedding planning where they had been absolutely, inflexibly unified: the vows would be private until the moment they said them. No drafts. No previews. No sneaking looks at each other's notebooks. The vows would be heard for the first time in the garden, in front of twelve people, and the surprise was sacred.
+
+Jan sat at the kitchen table. A notebook open. A pen in her hand. The pen was from the hotel in Chiang Mai — she'd taken it without thinking, a souvenir from the trip where everything changed, from the balcony where Lin almost caught them, from the night Jan realized that what she felt for JingJing was not a manageable fire but a wildfire, the kind that remade landscapes.
+
+She wrote slowly. Carefully. Each word weighed, tested, held up to the light.
+
+*JingJing. I —*
+
+She crossed it out. Started again.
+
+*The first time I saw you, I thought —*
+
+No. Too sentimental. Too expected. JingJing would roll her eyes. JingJing would say "P'Jan, you're not a greeting card" and she'd be right.
+
+*JingJing. You are the worst person I've ever met.*
+
+Jan stopped. Looked at the sentence. Smiled.
+
+*You are the worst person I've ever met, and I mean that as the highest compliment I know how to give. You are loud when silence would be easier. You are soft when hardness would be safer. You argue with me about things that don't matter and refuse to argue about things that do, which means I always know what you actually care about, because the things you go quiet about are the things that mean the most.*
+
+*You stole my favorite t-shirt and you've never given it back. You eat cereal out of the box with your hands. You can't be quiet — during anything, ever, for any reason — and I used to think that was a flaw and now I think it's the bravest thing about you, because being loud means being heard, and being heard means being known, and you have never, not once, been afraid of being known.*
+
+*I have been afraid of being known my entire life. And then you said "don't you dare stop" and I didn't, and I haven't, and I won't.*
+
+*I love you. I love Noo-Noo. I love your eleven-step skincare routine and your platform sneakers and the way you cry at things that aren't sad. I love the way you say "Daddy" — yes, that way, and also the other way, and also every way, because every time you say it you're giving me something you don't give anyone else, and I will spend the rest of my life earning the trust that word contains.*
+
+*I promise to kiss your forehead every morning. I promise to turn the rabbit to face the wall. I promise to never stop, because you told me not to, and I have never broken a promise to you and I never will.*
+
+Jan put the pen down. Read it back. Changed nothing.
+
+In the bedroom, behind the closed door, JingJing sat on the bed with Noo-Noo in her lap and a notebook and a pen that she'd stolen from Jan's desk because JingJing's relationship with office supplies was the same as her relationship with Jan's wardrobe: what's yours is mine and what's mine is also mine.
+
+She wrote fast. The way she did everything — impulsively, instinctively, without revision, because JingJing's first draft was always her most honest and her most honest was always her best.
+
+*Jan. P'Jan. Daddy. I have three names for you and they're all the same person and that person is my whole world and I want that on the record.*
+
+*I didn't know I was looking for you. I didn't know I needed someone who could hold both my wrists in one hand and also hold me when I cry and also make me coffee exactly how I like it without asking and also not flinch when I tell them I love them in front of other people. I didn't know that was a thing one person could be. But you are. You are all of those things and you are them SPECIFICALLY for me and I am — I am so grateful, P'Jan. I am so grateful it makes me stupid. I can't hide it. I've tried. Everyone can tell. Fah can tell and Lin can tell and the caterers can tell and I don't care. I don't care who knows. I want everyone to know. I want to stand on the roof of this building and scream it and I will, one day, I WILL, and when I do the scream will sound like your name.*
+
+*You asked me on a beach and I said yes before you finished and I would do it again. I would do it a thousand times. Every time you ask me anything — "come here," "say please," "are you mine" — the answer is yes. It has always been yes. It was yes in the dressing room when I didn't know what it meant and it's yes now that I know exactly what it means and it will be yes tomorrow and the day after and the day after that until there are no more days and then Noo-Noo will carry the yes forward because Noo-Noo is ETERNAL.*
+
+*I love you. I love your patience and your red ears and the way you think you're subtle when you're not subtle at all. I love that you turned the rabbit to face the wall the first time and every time because you understood, immediately, without being told, that Noo-Noo is real to me and that respecting what's real to me IS loving me.*
+
+*I promise to be loud. I promise to be soft. I promise to steal your clothes and eat cereal from the box and cry at things that aren't sad. I promise to say your name — all three of them — every day, in every way, until the word itself is worn smooth from use and all that's left is the feeling, which is: home.*
+
+*That's what you are. Home. My home has a mole under her left ear and a ten-inch cock and a stuffed rabbit on the headboard shelf, and I wouldn't change a single thing.*
+
+JingJing put the pen down. Cried. Wiped her eyes on Jan's Sizzy shirt. Held Noo-Noo tight.
+
+"What do you think?" she asked the rabbit.
+
+The rabbit, being a rabbit, said nothing.
+
+"Yeah," JingJing said. "Me too."
+
+She put the notebook in the nightstand drawer, under the book she was pretending to read, in the space behind the extra phone charger. Safe. Hidden. Seven weeks from being said.
+
+In the kitchen, Jan folded her vows into thirds and put them in the pocket of the jacket she'd worn to the Hua Hin beach. The jacket lived in the back of the closet. JingJing never looked there because JingJing's wardrobe territory had expanded to consume the entire front of the closet and Jan's clothes had been pushed to a dark corner where they existed in exile, which was fine, because Jan needed exactly one corner and one pocket and one piece of paper that would change both their lives.
+
+She turned off the kitchen light. Opened the bedroom door. JingJing was in bed, Noo-Noo under her arm, eyes red, the specific post-crying softness that made her look sixteen and invincible simultaneously.
+
+"Did you finish?" JingJing asked.
+
+"Did you?"
+
+"No peeking."
+
+"I would never."
+
+"Liar. You peeked at my Christmas list."
+
+"That was different. You asked for a horse."
+
+"I wanted a horse."
+
+"We live in an apartment."
+
+"I wanted a *small* horse."
+
+Jan climbed into bed. Pulled JingJing against her chest. JingJing came willingly — she always came willingly, eventually, after the brat had run its course and the softness took over, the softness that was the realest thing about her, the thing Jan loved most.
+
+"Today was—" JingJing started.
+
+"I know."
+
+"The table read. The vows. You went off-script."
+
+"I did."
+
+"You said 'I wanted you so badly it felt like hate.'"
+
+"I did."
+
+"That wasn't Lal, P'Jan."
+
+"No."
+
+JingJing was quiet. Her finger traced the line of Jan's collarbone — the idle, possessive tracing, the mindless cartography of a body she knew by heart.
+
+"Sirin was watching," JingJing said. Not worried. Not scared. Just — noting. The way you note the weather, or the time, or any neutral fact about the world.
+
+"I know."
+
+"She wrote something down."
+
+"Probably."
+
+"Do you care?"
+
+Jan thought about it. Really thought about it — not the reflexive dismissal, not the easy confidence, but the actual, honest consideration of whether she cared that a journalist had heard her say something real about the person she loved in a room full of people.
+
+"No," Jan said.
+
+"Me neither."
+
+"We should probably care."
+
+"Probably."
+
+"Lin would want us to care."
+
+"Lin would want us to be encased in bubble wrap and stored in a vault until the wedding."
+
+"Lin would want us to stop existing in public."
+
+"Lin wants a lot of things she's not going to get."
+
+Jan kissed the top of her head. "We're terrible."
+
+"We're in love. It's the same thing."
+
+"It really is."
+
+The room was dark. The vows were written — Lal's and Wine's, Jan's and JingJing's, the fictional and the real, the ones the camera would see and the ones it never would. In seven weeks, they would stand in a garden and say them, and the world would split into two: the before, where the truth was a secret, and the after, where the truth was just the truth.
+
+JingJing's breathing slowed. Deepened. The rhythm of falling asleep against someone she trusted completely. Jan held her and listened to the rhythm and felt the ring on the chain pressing against her chest — JingJing's ring, warm from JingJing's body, the small, hard proof of a future they were building one hidden day at a time.
+
+"Goodnight, Daddy," JingJing murmured, already half gone.
+
+"Goodnight, baby."
+
+"Goodnight, Noo-Noo."
+
+Noo-Noo, on the headboard shelf, faced the wall. Seeing nothing. Knowing everything.
+
+---
