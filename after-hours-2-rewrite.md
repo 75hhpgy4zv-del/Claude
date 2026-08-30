@@ -5851,3 +5851,231 @@ JingJing laughed. The laugh of someone who had just told a corporation to go to 
 Jan carried her.
 
 ---
+
+## Chapter 19: The Ultimatum
+
+The network's response came on Monday in the form of a calendar invite from Khun Dao's assistant: "Strategy Session — Confidential." Two-hour block. Attendees: Khun Dao, Jan, JingJing, Prae, and a name Jan didn't recognize — Khun Somchai, Head of Programming.
+
+Two hours. Head of Programming. The machine was engaging its heavier gears.
+
+Jan called Milk from the parking lot before the meeting.
+
+"They're escalating," Jan said.
+
+"How bad?"
+
+"Khun Dao brought in her boss. Two-hour block. 'Strategy session.'"
+
+Milk was quiet for a beat. Jan could hear the Ditto set in the background — someone calling for a lighting change, the distant clatter of equipment being moved.
+
+"Love got pulled into a marketing meeting last week," Milk said. "They want her to do a dating variety show. *Finding Love's Love.* That's the actual title."
+
+"A dating show."
+
+"For an actress who comes home to me every night. They want her to pretend to look for love in front of cameras while I'm at home making her dinner."
+
+"What did she say?"
+
+"She said 'I'll think about it,' which is Love for 'absolutely not, but I'm too polite to say fuck off in a boardroom.' They're still pushing. They always push. It's what they do — push until we break or push back, and they're betting on break because break is cheaper."
+
+Milk's voice dropped. The register shift Jan recognized — bravado to real talk, the frequency reserved for conversations that mattered.
+
+"Jan. The wedding is in twenty-eight days."
+
+"I know."
+
+"Don't let them move the goalposts. The timeline is yours. The announcement is yours. If they try to make it theirs, you tell them that you and JingJing are going to get married in a garden and post a photo and the world is going to deal with it, and the network's job is to be ready, not to be in charge."
+
+"Since when are you the strategic one?"
+
+"Since Love taught me that soft power is still power. She's five-two and she moves mountains by asking nicely. I'm six feet and I move mountains by not asking at all."
+
+Jan laughed. It helped. Milk's voice helped — the solidity of it, the reminder that she wasn't the only person navigating this current, that somewhere across town another tall woman was managing the same machinery with the same frustration and the same stubborn refusal to let the industry own her love story.
+
+"After the wedding," Milk said.
+
+"After the wedding."
+
+"We should burn the whole industry down."
+
+"After the wedding."
+
+---
+
+The meeting was on the fourteenth floor. Glass walls. Whiteboards. The corporate neutrality of a room designed for decisions that affected people who would never sit in it.
+
+Khun Somchai was compact, mid-fifties, with the energy of someone who had been managing talent since before Jan was born and who viewed personal relationships as variables in a spreadsheet. He shook their hands. He smiled the way executives smile — warm, professional, disconnected from anything resembling emotion.
+
+"Let's talk about timing," Khun Somchai said.
+
+"Let's talk about autonomy," Jan said.
+
+Prae, at the end of the table, closed her eyes.
+
+"The network respects your privacy," Khun Somchai said. "The network also has a fiduciary responsibility to its shareholders, sponsors, and audience. A revelation of this magnitude requires careful management."
+
+"We agree it requires management. We disagree about who manages it."
+
+"The network is offering you a platform. A controlled reveal, timed with the *Married to My Enemy* premiere, amplified by the fancon, supported by a comprehensive media strategy."
+
+"Our story," JingJing said, "told on someone else's schedule."
+
+"Your story told at the *optimal* schedule."
+
+"Optimal for whom?"
+
+Khun Somchai recalibrated. Jan watched it happen behind his eyes — the shift from pitch to negotiate, the recognition that these two were not going to be managed into compliance.
+
+"What do you want?"
+
+"We want to go public after our wedding," Jan said. "On Instagram. Our words. Our photo. No press release, no media blitz, no network branding."
+
+"And the fancon?"
+
+"We'll attend. We'll do the Q&A. If the world knows by then, the fancon becomes a celebration instead of a performance."
+
+"The sponsors. Three of our top-tier sponsors have conservative audience profiles—"
+
+"Then prepare them." Jan's voice was level. The level that JingJing recognized as the one that preceded an immovable position. "You have twenty-eight days. Four weeks of sponsor briefings, contingency planning, alternative revenue sourcing. That's your job. Our job is to love each other. Your job is to figure out how to sell it."
+
+Silence. Under the table, JingJing's hand found Jan's thigh. Squeezed. The squeeze that said: *you're doing it. Keep going.*
+
+"I'll need approval on the Instagram post before it goes live," Khun Somchai said.
+
+"No," JingJing said.
+
+"Khun JingJing—"
+
+"No. You don't get to edit the way we tell the world we love each other."
+
+Nine seconds of silence. Jan counted.
+
+"Fine," Khun Somchai said. "Post what you want. Give us twenty-four hours' notice so we can have a response strategy in place."
+
+"Twenty-four hours," Jan agreed.
+
+"And congratulations." He said it the way he said everything — with professional warmth and no visible feeling. But his handshake at the door held one beat longer than protocol.
+
+---
+
+In the car afterward, JingJing called Love.
+
+"We told the network."
+
+"AND?"
+
+"They wanted to control the reveal. We said no. Jan sat across from the Head of Programming and told him his job was to figure out how to sell our love and our job was to love each other."
+
+"Jan said THAT?"
+
+"Jan said that and Khun Somchai looked like someone had replaced his spreadsheet with a love letter."
+
+Love laughed — the full Love laugh, the one Milk described as the sound that made her entire chest hurt in a good way. JingJing could hear Milk in the background asking what happened.
+
+"Tell Milk that Jan told the network to prepare the sponsors in twenty-eight days or get out of the way."
+
+Love relayed. Milk's voice came through, muffled: "Tell Jan she's my fucking hero."
+
+"Jan is driving. She can hear you. She's smiling."
+
+Jan was smiling. The private smile. The one for JingJing and for moments when the world arranged itself into something that briefly resembled justice.
+
+"Love," JingJing said. "When you and Milk go public — when you're ready — you can use us as the precedent. We'll be the first. We'll take the hit. And when it's your turn, the hit will be smaller."
+
+Love went quiet. The Love-quiet that meant she was crying and trying not to let Milk see, even though Milk always saw, even though Milk was probably already reaching for a tissue.
+
+"I love you," Love said. Thick-voiced.
+
+"I love you too. Stop crying."
+
+"I'm not crying. I am watering my face."
+
+"That's not a thing, Love."
+
+"It is a THING and it is MY THING and—"
+
+Milk's voice, clearer, having taken the phone: "JingJing. Thank you. We'll be ready when it's our turn."
+
+"Take your time."
+
+"We will. Now go home and celebrate."
+
+---
+
+They didn't celebrate. They went home and ordered food and sat on the couch and the weight of what had converged in the past week settled over them like something geological.
+
+Sirin's fifty-one data points. The network's strategy session. The wedding in twenty-eight days. The finale shoot in three weeks. The fancon in November. The debt to Sirin. The contingency plan Khun Dao was building. The invisible machinery of an industry that wanted to own the narrative of their love and the counter-machinery of their refusal to let it.
+
+"We need to decide," JingJing said.
+
+She was lying with her head in Jan's lap. The cooking show was on. Noo-Noo was on the coffee table, button eyes toward the TV. Jan's hand was in JingJing's hair, moving slowly, the automatic gesture of someone whose fingers knew where to go without being told.
+
+"Decide what, specifically?"
+
+"The sequence. Wedding first, then the post, then Sirin's exclusive, then the fancon. Or some other order. But we need to decide because right now we have Sirin waiting and Khun Dao planning and Lin dying and Fah moving mirrors and everyone orbiting us like we're a binary star system and we haven't told any of them the actual plan because we don't have one."
+
+Jan's hand paused in JingJing's hair. Resumed.
+
+"Wedding first," Jan said. "That's non-negotiable. Nonthaburi. Mango tree. Twelve people. Noo-Noo on the ring pillow. We get married. Then everything else."
+
+"Then the post."
+
+"Then the post. Both accounts. The photo from the garden — the one Fah takes, because Fah will take photos, Fah will take a hundred photos, Fah has been planning the photography since before we booked the garden."
+
+"And then Sirin."
+
+"And then Sirin. Within twenty-four hours of the post. The exclusive sit-down. We tell her everything. She writes the piece. The piece she's been carrying for six weeks, the one she didn't publish, the one that cost her."
+
+"And then the fancon."
+
+"And then the fancon. Thunder Dome. Twelve thousand people. And by then, everyone knows, and the fancon isn't a performance. It's a party."
+
+JingJing turned her head in Jan's lap so she could look up at Jan's face. Jan looked down at her. The amber eyes. Steady.
+
+"That's the plan," JingJing said.
+
+"That's the plan."
+
+"It's a good plan."
+
+"It's our plan."
+
+JingJing's eyes closed. Jan's hand resumed its path through her hair. The TV murmured about soufflés. Outside, Bangkok hummed. The apartment held them the way it always did — the one space in the world where the performance stopped and the reality was allowed to sit on the couch in pajamas and eat takeout and fall asleep in someone's lap.
+
+Jan picked up her phone with her free hand. Texted Milk.
+
+**Jan:** We have a plan. Wedding first. Then post. Then exclusive. Then fancon.
+
+**Milk:** Good. Clean. No committee.
+
+**Jan:** No committee.
+
+**Milk:** Love wants to know if we're still on the guest list.
+
+**Jan:** You're on the guest list and Love is holding Noo-Noo's backup leash in case the ring pillow harness fails.
+
+**Milk:** Love just cried again. She says it's allergies.
+
+**Jan:** It's August.
+
+**Milk:** She's allergic to August.
+
+Jan smiled. JingJing was asleep in her lap. Jan's hand was in JingJing's hair. The ring on JingJing's finger — she'd stopped putting it back on the chain, wore it openly in the apartment now, only threading it back through the chain for set — pressed against Jan's thigh.
+
+She sat there. Phone in one hand, JingJing's hair in the other, the plan crystallized and solid in her chest for the first time. Not the vague *someday we'll tell them*. Not the abstract *after the wedding*. A sequence. A timeline. Wedding, post, exclusive, fancon. Four steps. Twenty-eight days.
+
+The cooking show played. Noo-Noo watched. JingJing breathed slowly against Jan's leg, the rhythm of deep sleep, and Jan held her hand in JingJing's hair and felt the intimacy that wasn't sexual but was more intimate than sex — the trust of unconsciousness, the vulnerability of falling asleep in someone's lap while the world outside arranged itself into a shape that would, in twenty-eight days, finally include them.
+
+Jan's phone buzzed. Milk, one more time.
+
+**Milk:** You're going to change everything, you know.
+
+**Jan:** We're just getting married.
+
+**Milk:** That IS changing everything. For all of us.
+
+Jan put the phone down. Kissed the top of JingJing's sleeping head. The TV showed a chef agonizing over a crème brûlée torch. The city hummed. The plan existed.
+
+Twenty-eight days.
+
+---
