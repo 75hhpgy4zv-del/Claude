@@ -5387,3 +5387,215 @@ Nobody would ever be able to have sex in front of that mirror again without bein
 Fah considered this her finest work.
 
 ---
+
+## Chapter 17: Sirin Knows
+
+Sirin asked for the meeting on a Thursday. Off the record. Just the two of them. Not the canteen, not the production office, not anywhere that smelled like stage lights and crew anxiety. A coffee shop in Lat Phrao, fifteen minutes from campus. Neutral ground.
+
+Jan said yes because Jan said yes to most things and because the word *off-the-record* didn't register as a warning signal in a brain that had been rewired, over the course of thirteen months, to treat JingJing as the primary input and everything else as background noise. A journalist asking for a private meeting should have sent her to Lin. Instead she texted back *sure, what time?* and drove herself there after the morning shoot.
+
+The coffee shop was small and half-empty at 2 PM on a Thursday. Sirin had the corner table. Iced latte. Notebook closed.
+
+The notebook being closed was the first thing Jan actually noticed. Six weeks on set, and Jan had never seen Sirin without the notebook open. It was as much a part of Sirin as the careful eyes and the digital recorder and the specific quality of attention that made people forget she was observing them until they remembered, suddenly, that she was.
+
+Jan ordered a black coffee. Sat down.
+
+"Thank you for coming," Sirin said.
+
+"Of course."
+
+"I need to be direct with you. Can I do that?"
+
+"I prefer it."
+
+Sirin didn't touch her glass. Didn't look away. The stillness was professional — not nervous, not aggressive. The stillness of a woman who had practiced this conversation in her head and was now delivering it with the precision of someone who understood that the words she chose in the next ten minutes would determine the shape of two people's lives.
+
+"I have sixty-one paired Instagram posts," Sirin said. "You and JingJing. Same location markers, average gap of eighteen minutes between posts. Sixty-one times in ninety days, you posted from the same place within the same half-hour window. The statistical probability of that being coincidental is effectively zero."
+
+Jan's coffee arrived. She picked it up. Her hand was steady.
+
+"I have hotel manifests from three location shoots," Sirin continued. "Chiang Mai. Hua Hin. Pattaya. Rooms 407 and 409 in Chiang Mai. Adjacent. Double breakfast order to 407 every morning. Zero breakfast orders to 409. The catering staff remember because one of them mentioned it in passing: 'The quiet room always gets double portions.'"
+
+"I like a big breakfast."
+
+"I have the documentary rough cut. Three seconds of footage I captured through a doorway: you adjusting JingJing's collar before a take. Not the adjustment itself — wardrobe does that. The way you did it. The domesticity. The ownership in the touch. It's not proof of anything. My editor would say it's two colleagues. But I've been covering this industry for eight years, Jan, and I know the difference between a colleague adjusting a collar and a partner adjusting a collar, and you did not touch JingJing's collar like a colleague."
+
+Jan drank her coffee. The bitterness grounded her. She was listening the way she listened to direction from Prae — with full attention, with the specific focus of someone who recognized competence when it sat across from her.
+
+"I have the crew's behavioral pattern," Sirin said. "Lin's stress responses when you touch JingJing. Fah's door-blocking. The camera operators who subtly reframe when a moment runs long. The staggered dressing room schedule that started six weeks ago and coincides exactly with my arrival. The social media lockdown. The shadow system. Your entire crew has been running a protection operation, and they've been running it *at me*, and they've been running it badly enough that I noticed the operation itself before I finished noticing what it was protecting."
+
+"Our crew is professional—"
+
+"Your crew is terrified." Sirin's voice was even. Not unkind. "Lin is running on cortisol. Fah's clipboard has become a shield. Prae redirects every conversation with a precision that only makes sense if there's something specific she's redirecting away from. They're terrified because they love you, and they know what I know, and they know that I know."
+
+The coffee shop was quiet. A ceiling fan turned slowly. Traffic moved outside the window.
+
+"And then there's the photo," Sirin said. "The fan account. @janjing_archive. Forty-seven thousand followers. A blurry image from Chiang Mai — two figures on a balcony in a posture that is not professional. I showed it to you last week. You didn't flinch."
+
+"It's blurry."
+
+"It is blurry. And the hotel manifests are circumstantial. And the Instagram timing is a pattern, not a confession. And the crew's behavior could be explained by general anxiety about a journalist on set. And the rough cut is three seconds of ambiguous footage." Sirin paused. Let the list settle. "None of it is a smoking gun. All of it together is a very clear picture."
+
+Jan put down her coffee. Looked at Sirin. The amber eyes that JingJing called her weapon — steady, warm, the eyes that made people feel seen. She trained them on Sirin and saw: a woman in her early thirties with careful hands and a careful voice and a year's worth of ambition and a career riding on the story that was sitting across the table from her.
+
+"Why are you telling me this?" Jan asked.
+
+"Because I'm choosing not to publish the picture."
+
+Jan was quiet.
+
+"I'm choosing not to use the hotel manifests. I'm choosing not to include the timing analysis or the crew pattern or the rough cut in my piece. I'm choosing to write around the center of the story instead of through it." Sirin's hands tightened on her glass. The condensation slipped between her fingers. "And I need you to understand what that choice is costing me."
+
+"What is it costing you?"
+
+"My editor wants the story. The real story. Not the 'behind the screen' meditation on performance and truth. The story. Jan and JingJing are together. Engaged. Getting married. The biggest GL revelation in the industry this year. My editor has been asking me for six weeks when I'm going to file, and I've been stalling, and the stalling is eroding my credibility."
+
+"I'm sorry—"
+
+"Don't be sorry. Listen." Sirin leaned forward. The calm cracked, just slightly, and underneath it Jan saw something she hadn't expected: anger. Not at Jan. At the situation. At the professional cost of a moral choice. "This story is my career. I've been building toward a piece like this for eight years. The access, the trust, the embedded position — this is the assignment that gets me the feature column. This is the one my editor remembers. And I am sitting on it because I think you deserve to tell it first."
+
+"Sirin—"
+
+"That's my gift to you. The silence. The sitting. The stalling. The professional cost of choosing not to take the shot. But I need something in return, and I need you to hear this as a professional negotiation, not a threat, because it is not a threat. I do not threaten people."
+
+"What do you need?"
+
+"When you're ready — when you and JingJing decide to go public — you come to me first. Not the network. Not another journalist. Not an Instagram post with a caption that scoops me after I spent six weeks protecting you. Me. An exclusive sit-down. Your story, in your words, on the record, through me. Because I earned it. I earned it by choosing not to take it."
+
+The ceiling fan turned. The traffic moved. Jan sat with her coffee and the weight of fifty-one data points she'd never seen assembled into a single, coherent picture before. She'd known Sirin was watching. She'd known, abstractly, that a journalist on set posed a risk. What she hadn't understood until this moment was the scope. The specificity. The precision of the evidence.
+
+Not because Sirin was a threat. Because Sirin was *good*. Because Sirin was a genuinely excellent journalist who had done her job the way Jan did her job — with rigor, with attention, with the dogged commitment to truth that defined the best version of any craft. And Sirin was offering to not use the product of that craft, and the offering was not generosity. It was sacrifice.
+
+"You're angry," Jan said.
+
+"Yes."
+
+"Not at me."
+
+"At the situation. At the fact that doing the right thing is going to cost me the best story I've ever had access to. At the fact that I care about you and JingJing enough to give up something I've worked eight years to earn." Sirin's jaw flexed. "I don't want to be noble about this, Jan. I'm not doing it because I'm a good person. I'm doing it because if I publish this without your consent, I become the journalist who outed two women for a byline, and I won't be that journalist, and the reason I won't be that journalist is that I've been that woman. The one who gets outed. The one whose story gets told by someone who didn't earn the right to tell it. And I swore I would never do that to someone else."
+
+The admission landed like a stone in still water. Jan received it the way she received all important things: with full attention, with the silence that meant she was taking the weight of it into herself.
+
+"I didn't know," Jan said.
+
+"You don't need to know. That's my business. But I want you to understand that this isn't a strategy. This is a woman who knows what it costs to have your truth taken from you, choosing not to take yours."
+
+Jan looked at the table. At her coffee, half-finished. At her hands, which were no longer steady — a fine tremor that JingJing would have noticed and Sirin, if she noticed, was kind enough not to mention.
+
+"When we're ready," Jan said. "You'll be first. I promise."
+
+"Thank you."
+
+"And Sirin."
+
+"Yes?"
+
+"The rough cut. The three seconds. You could have used it."
+
+"I could have."
+
+"You didn't."
+
+"I didn't."
+
+"Why not?"
+
+Sirin was quiet for a moment. Her hands loosened on the glass. The anger receded, and in its place was something quieter, something that looked like the exhaustion of a person who had been carrying a moral decision for six weeks and had just set it down.
+
+"Because it was beautiful," Sirin said. "The way you touched her collar. The way your hand knew exactly where to go. It was three seconds of something sacred, and I don't publish sacred things for clicks."
+
+Jan stood. Left money on the table. At the door, she turned back.
+
+"You said JingJing touches the chain forty times a day. On your data."
+
+"At least. I stopped counting at sixty-one."
+
+"What's on the chain?"
+
+"You tell me, Jan. When you're ready."
+
+Jan left. Drove home. Sat in the parking garage for a long time with her hands on the wheel and the engine off, processing something she didn't have a word for. Not fear — she still didn't feel fear, not the way Lin felt it, not the cellular dread. Something adjacent. The awareness of a debt. The weight of someone else's sacrifice held in trust.
+
+---
+
+JingJing was on the couch with Noo-Noo and a bowl of cereal she was eating with her hands. Some cooking show on the TV that neither of them ever actually watched.
+
+"How was coffee?" JingJing asked.
+
+Jan sat down. Took Noo-Noo from between the cushions and held her in her lap. The familiar weight of the plush cat grounded her the way the coffee's bitterness had grounded her at the table.
+
+"Sirin knows."
+
+JingJing's hand paused in the cereal box.
+
+"Knows what, exactly?"
+
+"Everything." Jan told her. The Instagram timing analysis. The hotel manifests. The catering logs. The rough cut. The crew's behavioral pattern. The Chiang Mai photo. The chain — Sirin had counted JingJing's gestures, the hand going to the ring, and the count was past sixty. Jan told her all of it, in order, the way Sirin had told her: precise, accumulated, undeniable.
+
+JingJing listened. She ate cereal while she listened, which was either a sign of extraordinary calm or the specific JingJing defense mechanism of performing normalcy while processing catastrophe. Jan couldn't always tell the difference.
+
+"And she's not publishing," JingJing said when Jan finished.
+
+"She's not publishing. She's writing around it. But she wants the exclusive when we go public."
+
+"Because she earned it."
+
+"She said that. Those words."
+
+JingJing put down the cereal. Pulled her legs up onto the couch. Tucked herself against Jan's side with the mechanical precision of a body that knew exactly where it fit. Her hand went to Jan's chest, to the ring under Jan's shirt — the mirror of the gesture Sirin had counted sixty-one times.
+
+"Is she right?" JingJing asked. "Did she earn it?"
+
+Jan thought about the three seconds of footage. The collar adjustment that Sirin had called sacred. The career Sirin was shelving. The personal history she'd disclosed as collateral.
+
+"Yeah," Jan said. "She earned it."
+
+"Then we give it to her. When it's time."
+
+"When it's time."
+
+They sat on the couch. The cooking show played. Noo-Noo sat in Jan's lap, button eyes facing the screen. JingJing's hand rested on Jan's chest, over the ring, and Jan covered JingJing's hand with hers and held it there.
+
+"Thirty-two days," JingJing said.
+
+"Thirty-two days."
+
+"Are you scared?"
+
+Jan considered the question honestly. Tested it against the inventory of everything she felt — the debt, the awareness, the scope of what Sirin had assembled, the knowledge that a single journalist with a laptop and an eye for pattern had constructed a more complete picture of their relationship than Jan herself had ever consciously assembled.
+
+"No," Jan said.
+
+"Liar."
+
+"I'm not scared. I'm — aware. For the first time. I'm aware of how visible we are."
+
+"We've always been visible, P'Jan. We just stopped noticing."
+
+JingJing shifted closer. Jan pulled her in. The apartment was quiet. The TV murmured. Outside, Bangkok did what Bangkok always did — hummed, moved, existed at a frequency too large to notice two women on a couch holding each other with the specific intensity of people who had just learned the exact dimensions of the glass box they'd been living in.
+
+They didn't have sex that night. They lay in bed, JingJing's back against Jan's chest, Jan's arm across JingJing's waist, and the silence was the point. The silence was the first silence in thirteen months that contained the full knowledge of how much someone else knew, and the silence was different because of it. Heavier. More honest. The silence of two people who had been performing privacy and had just been told, calmly and specifically, that the performance was visible from every angle.
+
+Jan's hand found the chain at JingJing's collarbone. Followed it down to the ring. Held it.
+
+"Every balcony in the world," JingJing murmured. Half asleep. The words from two nights ago, the promise Jan had made on the Ekkamai railing with the city below them.
+
+"Every balcony in the world," Jan said.
+
+"After the wedding."
+
+"After the wedding."
+
+"Thirty-two days."
+
+"Thirty-two days."
+
+JingJing's breathing slowed. Jan held the ring on its chain and stared at the ceiling and thought about Sirin in the coffee shop, the anger in her jaw, the cost of the choice she'd made. A woman who knew what it meant to be outed, choosing not to out someone else. A sacrifice that was also, whether Sirin acknowledged it or not, an act of love — not for Jan and JingJing specifically, but for the principle that a person's truth belongs to them, and no byline is worth taking it.
+
+The debt sat in Jan's chest like a second ring. Invisible, specific, heavy with consequence. She would honor it. When the time came, she would sit in front of Sirin's recorder and say everything, and the saying would be the repayment, and the repayment would be enough.
+
+Outside, the city continued. Sirin was in her apartment, staring at a laptop screen full of data she wouldn't use and a draft she would rewrite and a career she was bending in a direction she hadn't planned because two women had touched each other's collars with too much love and she'd been watching.
+
+Thirty-two days.
+
+---
