@@ -4451,3 +4451,257 @@ The city moved outside. Inside: certainty. The ring on the chain. The taste of c
 Thirty-seven days.
 
 ---
+
+## Chapter 14: Noo-Noo
+
+JingJing brought the rabbit on a Monday.
+
+She didn't plan it. She woke up curled against Jan with Noo-Noo under her arm, and when she got out of bed to shower and become the version of herself the world was allowed to see, she looked at the rabbit on the pillow — lopsided, button-eyed, the left ear slightly floppier than the right from twenty years of being held — and she could not leave her.
+
+It wasn't a decision. It was gravity. Something that bypassed reasoning and went straight to her hands, which picked up the rabbit and put her in the bag, in the inside pocket, zipped shut.
+
+The morning was a location shoot — exterior scenes on the garden set, Lal and Wine choosing their fictional wedding venue. The irony was total. JingJing had been in a real garden in Nonthaburi two days ago tasting real cake. Now she was standing on a soundstage pretending to choose flowers she'd already chosen.
+
+They shot until noon. Between takes, JingJing reached into the bag and touched Noo-Noo's ear — the left one, the soft one — and felt the contact like a circuit closing.
+
+During the lunch break, the set emptied. JingJing stayed in her chair. She unzipped the pocket. Took Noo-Noo out. Held her.
+
+Not dramatically. Just held. The way she held her at home, at 3 AM, when the gap between who she was allowed to be and who she actually was had widened enough to hurt. Noo-Noo smelled like their apartment. Like Jan's laundry detergent. Like home.
+
+"I miss you at set," JingJing told the rabbit softly. "I miss you and I hate that I can't bring you because you're 'off-brand' and Sirin would notice and—"
+
+"That's a beautiful rabbit."
+
+JingJing's head snapped up.
+
+Sirin. At the edge of the set. Ten feet away. Notebook in one hand, iced coffee in the other.
+
+JingJing looked at Sirin. Sirin looked at Noo-Noo.
+
+"She's—" JingJing's voice came out wrong. Too soft. Too unguarded. The Noo-Noo voice, which was the 3 AM voice, which was the voice she used with Jan when the walls were down. "She's just a toy. A prop."
+
+Sirin walked closer. Not aggressively. With the unhurried approach of someone who recognized she'd walked into a private moment.
+
+"She doesn't look like a prop," Sirin said. "She looks loved."
+
+The word *loved* detonated in JingJing's chest.
+
+"She's from when I was little. I keep her at home usually. I don't know why I brought her today."
+
+She knew exactly why. The gap was too wide: between Wine-in-a-wedding-dress and JingJing-who-is-actually-getting-married. Noo-Noo was the bridge. The thread that connected the actress to the child to the woman to the fiancée.
+
+"Does she have a name?" Sirin asked.
+
+"Noo-Noo."
+
+Sirin smiled. The warm kind. The genuine kind that made her impossible to defend against because you couldn't build a wall against someone who stood on your side of it.
+
+"In interviews I've done with GL actresses," Sirin said, "many of them talk about the objects that ground them. A scarf. A ring. A piece of jewelry from someone important. Physical anchors." Her eyes were steady. "Is Noo-Noo that kind of anchor for you?"
+
+The question landed like a hand on a bruise.
+
+*A ring. A piece of jewelry from someone important.*
+
+The chain around JingJing's neck felt heavy. Under the costume, two anchors: the rabbit in her arms and the ring on her chest. Both real. Both sacred. Both things she was being asked to hide.
+
+"She's just a toy," JingJing said again. And this lie tasted different from the others. The lies about being friends tasted like ash. This one tasted like betrayal. Like standing in a courtroom and denying someone you loved. Like being asked *do you know this person?* and saying *no*.
+
+Sirin seemed to sense the shift. She stepped back.
+
+"She's clearly special to you," she said simply. "I'll let you have your break."
+
+She walked away. Her shoes were quiet on the studio floor.
+
+JingJing sat very still. She held Noo-Noo against her chest and felt the tears come — not the crying kind. The silent kind. The kind that leaked from the corners of her eyes and ran down the sides of her face and dripped onto a rabbit who had absorbed a lifetime of tears.
+
+This feeling was new. The other costs — the lies about being friends, the male model, the social media curation — were external. The price of admission to an industry that wasn't ready for the truth.
+
+This was internal. This was being asked to deny not the relationship, not Jan, but *herself*. Her softness. The part that needed a rabbit. The part Khun Dao called "off-brand" and Sirin would call "interesting" and Jan called "the best thing about you."
+
+Being told to hide the ring was about the relationship. Being told to hide Noo-Noo was about her.
+
+Footsteps. Familiar ones. The quick stride of someone who had been told by Fah, who had been told by a PA who saw JingJing crying alone.
+
+Jan came around the set wall and saw her and stopped.
+
+JingJing looked up. Her face was wrecked. The mascara had surrendered. The eyes looking at Jan were the four-year-old eyes, the ones that said *I need you* in a language that predated speech.
+
+Jan didn't ask what happened. She crossed the distance in three steps, knelt in front of the chair, took JingJing's face in both hands, and pressed her forehead against JingJing's.
+
+"I'm here."
+
+JingJing broke. The full cry. The shaking kind. On a soundstage, in a building full of crew and a journalist, and neither of them cared, because this was the real emergency: JingJing was hurting, and Jan could not allow that to continue for a single second longer.
+
+"She asked about Noo-Noo," JingJing managed. "Sirin. She saw her. I said she was just a toy, P'Jan. I told her Noo-Noo was *just a toy*."
+
+Jan's thumbs wiped her tears. Slowly. One cheek, then the other.
+
+"Noo-Noo is not just a toy," Jan said.
+
+"I know."
+
+"Noo-Noo is the ring bearer at our wedding."
+
+JingJing laughed. Wet, broken. But a laugh.
+
+"She asked if Noo-Noo was an anchor. If she was the thing that kept me connected to myself. And I wanted to say yes. I wanted to say *yes, she's my anchor and the ring is my anchor and YOU are my anchor and I'm tired of calling my rabbit a toy and my wife a friend and my ring a necklace*—"
+
+"I know."
+
+"I'm not scared, P'Jan. I'm not scared of Sirin. I'm *sad*. They're asking me to erase the parts of myself that—"
+
+She couldn't finish. Jan pulled her off the chair, onto the floor, into her lap. JingJing went — bones and crying and the rabbit clutched against her chest. Jan held her completely, structurally, as if Jan's arms were walls and JingJing was the only thing the room was built to contain.
+
+"Thirty-five days," Jan said against her hair. "Then Noo-Noo comes to set. The ring goes on your finger. You never have to say 'just a toy' again."
+
+"I said it to her face. I denied her. She's been with me since I was *four*—"
+
+"Noo-Noo forgives you."
+
+"How do you know?"
+
+"Because I asked her this morning."
+
+JingJing pulled back. Tear-swollen, skeptical, desperately hopeful.
+
+"You asked her?"
+
+"I ask her every morning. While you're in the shower. I check on her. I straighten her ears. I tell her you'll be home by seven."
+
+"You talk to my rabbit."
+
+"I talk to *our* rabbit. That's how marriage works. I get half of everything, including the stuffed animals."
+
+JingJing pressed Noo-Noo against Jan's chest. The button eyes stared at Jan's chin.
+
+"Tell her you love her," JingJing said.
+
+"JingJing—"
+
+"*Tell her.*"
+
+Jan looked at the rabbit. At the button eyes. At the left ear draped over JingJing's thumb. At the evidence of a childhood and a heart and a woman who needed something this small to be taken seriously.
+
+"I love you, Noo-Noo," Jan said. To the rabbit. Sincerely. With the gravity of someone who understood this was a vow — to the rabbit, to the woman holding the rabbit, to the parts of that woman the world kept trying to make her hide.
+
+JingJing cried again. But these tears were different. Warmer. The tears that came from being understood by someone who could have laughed but didn't.
+
+Her phone buzzed. Love.
+
+**Love:** Milk says Fah texted Ciize who texted Milk who texted me. Are you okay?
+
+**JingJing:** Sirin saw Noo-Noo. I told her she was just a toy.
+
+**Love:** Oh, babe.
+
+**JingJing:** I denied my rabbit, Love. In a COURT OF LAW.
+
+**Love:** Noo-Noo is a family member. This is not a controversial position.
+
+**JingJing:** Jan told Noo-Noo she loves her. On the FLOOR of the set.
+
+**Love:** I'm not crying.
+
+**JingJing:** You're crying.
+
+**Love:** I am ABSOLUTELY crying. Milk just asked what was wrong and I said "Jan told the rabbit she loves her" and Milk said "of course she did" like it was the most normal thing in the world and now we are two adults crying in the Ditto greenroom about a STUFFED RABBIT.
+
+**JingJing:** Tell Milk the rabbit says thank you.
+
+**Love:** Milk says "the rabbit can come to set with us anytime. The Ditto set has no journalists and no brand strategy."
+
+**JingJing:** I love Milk.
+
+**Love:** Get in line. 🐰💕
+
+JingJing put the phone down. Looked at Jan, still on the floor, still holding her.
+
+"Take me home tonight," JingJing said. "And be soft. Not Daddy. Not the game. Just Jan. Just forehead kisses and my name."
+
+"I know what you need."
+
+"You always know."
+
+JingJing put Noo-Noo back in the bag. Zipped the pocket. Hidden. Safe. Waiting.
+
+---
+
+That night, Jan was soft.
+
+Not the strategic gentleness of a dominant choosing tenderness as a tool. Just soft. Just Jan. The version that existed underneath everything and knew how to be careful with fragile things.
+
+She undressed JingJing slowly. The costume first, unzipped and laid on the chair. The undershirt. The bra. The chain with the ring she left — JingJing wore it always, the warm metal against her sternum that meant *this is real*.
+
+"Lie down," Jan said.
+
+JingJing lay down. On the headboard shelf, Noo-Noo faced the wall. The private kindness Jan had started without being asked and never stopped.
+
+Jan lay beside her. Not on top. Beside. Face to face, nose to nose.
+
+She kissed JingJing's forehead. The slow one. Three full seconds. The one that said *I see you and I love what I see and I am never going to ask you to be anything other than what you are*.
+
+"JingJing," Jan said. Her name. Just her name. Not baby, not good girl. The one her parents gave her. The one Jan said differently than anyone in the world.
+
+"Jan," JingJing whispered back.
+
+Jan's hand moved slowly down JingJing's side. Ribcage. Waist. Hip. The path she'd traveled a thousand times, traveling now as if for the first.
+
+"You are not off-brand," Jan said. "You are not too soft. You are not too childish. You are not too much."
+
+Her hand found the waistband. Slid under. JingJing's breath caught — not from stimulation but from the tenderness, the devastating gentleness with which Jan's fingers found her and began to move with the slow patience of someone who was not trying to make her come but trying to make her *feel*.
+
+"You are the person who holds a rabbit and cries," Jan said, her forehead against JingJing's. "You are the person who held a stranger's hands at a fan meet. You are the person who wrote vows that included a stuffed animal and a ten-inch cock. You are the funniest, loudest, softest, most impossible person I've ever met, and every single thing about you — including the things they want you to hide — is the reason I'm marrying you."
+
+JingJing's eyes were closed. Her mouth was open. The tears were back, but these weren't the set tears. These were the tears that came when someone saw you, all of you, and said *yes, all of it, I want the unedited version, the director's cut*.
+
+Jan's fingers moved like a tide. In and out. The steady pulse that built not toward a peak but toward a fullness, a saturation, the point where the body overflowed not with a crash but a sigh.
+
+"Jan," JingJing whispered. "Jan. Jan. *Jan.*"
+
+Not Daddy. Tonight was for the real name. For the person underneath the role.
+
+"I'm here. I'm right here."
+
+"I can feel everything, I can — *oh* — I—"
+
+"Let go."
+
+"It's too much—"
+
+"Nothing about you is too much. Let go, JingJing. I've got you."
+
+JingJing let go.
+
+It was not the usual orgasm. Not the sharp, screaming kind. It was the kind that came from being held and seen and spoken to with a tenderness so precise it found every crack in every wall and filled them, one by one, until the walls weren't walls anymore but something permeable, something that let the light in.
+
+She came quietly. A shudder. A sigh. Jan's name on her lips like a whispered secret. Her hands in Jan's hair, holding on — not desperate, anchoring. The grip of someone who had found the thing she was looking for.
+
+Afterward, Jan held her. Face to face. The ring between them.
+
+"Thank you," JingJing whispered.
+
+"For what?"
+
+"For talking to the rabbit."
+
+"I'll talk to her every morning. For the rest of our lives."
+
+"What if I'm home by six?"
+
+"Then I'll update her at 5:45."
+
+JingJing closed her eyes. Burrowed closer. One ring, two heartbeats, a garden thirty-five days away.
+
+"Goodnight, Jan."
+
+"Goodnight, JingJing."
+
+"Goodnight, Noo-Noo."
+
+On the shelf, facing the wall, the rabbit held her vigil. Button eyes seeing nothing. Cotton body knowing everything. The left ear, slightly softer than the right, at the angle that meant *I am here. I have always been here.*
+
+JingJing slept. Jan held her. In the morning, the rabbit would go back in the bag. The ring would stay on the chain. The performance would resume.
+
+Thirty-five days.
+
+---
