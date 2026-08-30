@@ -3861,3 +3861,245 @@ JingJing's breathing slowed. Deepened. Jan held her and listened and felt the ma
 On the headboard shelf, Noo-Noo kept watch. The marks were not visible from that angle, which was for the best. Noo-Noo had seen enough.
 
 ---
+
+## Chapter 12: The Documentary Rough Cut
+
+Sirin emailed the rough cut to Prae on a Thursday at 2 PM.
+
+The subject line read: *Documentary rough cut — first three weeks. Would love your thoughts before I continue.*
+
+The file was forty-seven minutes long. Professional, tightly edited, the work of someone who understood pacing and knew which images carried weight and which were filler. Sirin had been working on it in the editing suite for a week, pulling from the thousands of hours of B-roll and behind-the-scenes footage the documentary crew had captured.
+
+Prae watched it in her office with the door closed and an iced Americano sweating on a coaster she didn't touch.
+
+The opening was standard. Production design, the garden set under construction, the costume department's interpretation of Lal and Wine's wedding looks. A segment on the crew returning to a world they'd built once for *Enemies with Benefits*. Interviews with department heads. Technical craft. Safe material.
+
+Then it shifted.
+
+The rough cut's second act focused on the table read. Sirin had cut the footage beautifully: Jan reading the vows, the off-script moment — "I never hated you. I wanted you so badly it felt like hate" — captured from two angles. JingJing's face in close-up, the tears filling her eyes, her hand going to her chest. The room's silence. Lin's exit.
+
+It was extraordinary footage. It was also, Prae realized with a slow, spreading dread, footage that anyone watching would understand meant more than acting.
+
+But that wasn't the moment. That wasn't the three seconds that made Prae stop the playback and sit very still.
+
+The moment came at 34:12. B-roll. A doorway shot, the kind camera operators captured automatically — the camera had been repositioned between setups and was running idle, pointed down a corridor toward the costume department. The footage was slightly off-angle, not centered, clearly incidental.
+
+In the frame: Jan and JingJing, visible through the open door of the costume department. JingJing standing in front of a mirror in the Wine costume. Jan beside her. And Jan's hands on JingJing's collar, adjusting it.
+
+Three seconds. That was all. Jan's fingers on the fabric, smoothing the line, tucking a fold that had come loose. JingJing standing still, letting her. Neither of them speaking. Neither of them performing. Neither of them aware of the camera.
+
+The gesture was domestic. Not professional. Not the adjustment of a co-worker's wardrobe, which would have been efficient, impersonal, functional. This was the gesture of someone who dressed this person every day, whose hands knew the collar the way they knew the buttons and the zippers and the places where fabric bunched. It was intimate in the way that only invisible intimacy could be: the intimacy of routine, of ownership so complete it had become unconscious.
+
+It was three seconds. It was everything.
+
+Prae rewound. Watched it again. Watched Jan's fingers on the collar. Watched JingJing's face in the mirror — relaxed, unsurprised, the face of someone who was accustomed to these hands adjusting these clothes. Watched the quality of stillness between them, the specific silence of two people whose bodies knew each other well enough that a touch like this required no conversation, no permission, no acknowledgment.
+
+It wasn't proof. Plenty of close colleagues adjusted each other's costumes. GL co-leads touched each other's clothing all the time. In isolation, the footage was ambiguous.
+
+But it wasn't in isolation. It was embedded in forty-seven minutes of footage that systematically documented the crew's protective choreography, Jan's off-script declarations, JingJing's involuntary physical responses, and Lin's steady deterioration. Embedded in that context, the collar adjustment wasn't ambiguous. It was the image at the center of the frame that the rest of the documentary defined by circling.
+
+Prae closed the laptop. Opened it. Closed it.
+
+She called Lin.
+
+"Can you come to my office? Now."
+
+---
+
+Lin watched the rough cut standing up. She said she didn't want to sit. Prae understood: sitting was for conversations that might be okay. Standing was for conversations where you needed to be ready to move.
+
+When the collar footage played, Lin didn't flinch. Her face didn't change. But her hand went to the back of her own neck, gripping, the gesture of someone holding herself together by a physical point of contact.
+
+"She captured that," Lin said.
+
+"The camera captured it. Sirin found it in the B-roll and chose to include it."
+
+"Can we ask her to cut it?"
+
+"On what grounds? It's B-roll of our leads in a production area. It's exactly the kind of footage her access agreement entitles her to use."
+
+"Then we tell her it's not — we tell her it's continuity-sensitive, the costume hasn't been approved for public view—"
+
+"Lin."
+
+Lin stopped. Her hand was still on the back of her neck. She was breathing the way her therapist had taught her. In through the nose. Out through the mouth.
+
+"She's not trying to expose anyone," Prae said. "I believe that. She genuinely thinks the footage is beautiful. She included it because it illustrates the intimacy of the production, the closeness between cast members. She doesn't understand—"
+
+"She understands."
+
+"She doesn't understand that she's detonated a bomb. In her mind, she's documenting the phenomenon. The space between fiction and reality. That's her angle. That's what the piece is about. She's not writing an exposé. She's writing a meditation on performance and truth."
+
+"And the meditation has footage of Jan adjusting JingJing's collar like a wife getting her wife ready for work."
+
+The word *wife* sat in the air between them.
+
+"I'm going to talk to Jan," Lin said.
+
+"Be careful. Jan doesn't—"
+
+"I know what Jan doesn't. Jan doesn't see the danger because Jan is standing in the middle of it and her eyes are full of JingJing and there's no room left for anything else. I know. I've known for a year. I'm going to talk to her anyway."
+
+---
+
+Lin found Jan in the break room, eating pad thai from a takeout container, scrolling through Instagram on her phone. JingJing's Instagram, specifically. JingJing's most recent post: a coffee and a book, posted at 1:47 PM. Jan's most recent post: a sunset from the studio rooftop, posted at 1:52 PM.
+
+Five minutes apart. As always.
+
+"P'Jan," Lin said.
+
+Jan looked up. Smiled. The warm, genuine smile that made Lin's job both easier and infinitely harder, because Jan's warmth was the thing that made everyone want to protect her, and Jan's inability to protect herself was the thing that made the protection necessary.
+
+"Lin-na. Eat with me?"
+
+"I need to talk to you."
+
+Something in Lin's voice. Jan put the phone down.
+
+"Prae showed me the documentary rough cut," Lin said. She sat across from Jan. Set her hands flat on the table. The hands were trembling slightly and she pressed them flat to stop it. "Sirin included footage of you adjusting JingJing's collar in the costume department."
+
+Jan frowned. "When was this?"
+
+"It doesn't matter when it was. The footage exists. It's three seconds of your hands on her collar and anyone watching it can see — can *feel* — what it means. The gesture is domestic, P'Jan. It's not two colleagues. It's not two friends. It's someone dressing the person they come home to."
+
+"I was fixing her collar."
+
+"You were fixing your fiancée's collar in a way that is visible on camera."
+
+Jan was quiet. She looked at the pad thai. At her phone. At Lin's hands, pressed flat and still on the table.
+
+"Is it bad?" Jan asked.
+
+Lin laughed. Not the real laugh. The airless, desperate laugh of someone who had been asked "is the building on fire?" while standing in the flames.
+
+"The footage exists, P'Jan. It's real. It's on a hard drive that belongs to a journalist. If she publishes it — in the documentary, on social media, in the companion piece — anyone with eyes will see what I see every day. What Fah sees. What Prae sees. What the entire crew has been building a human shield around for five weeks."
+
+"What do they see?"
+
+"That you love her. That you're together. That the 'very good friends' line is — P'Jan, the gap between what you say publicly and what you do privately is the width of a collar adjustment, and Sirin has the gap on video."
+
+Jan sat with this. Lin watched her sit with it and saw the moment it landed — not as fear, because Jan didn't fear exposure the way Lin did. Jan feared it the way you fear a weather system: not the storm itself but the things the storm would destroy. The wedding. The timeline. The twelve-guest garden ceremony that was supposed to be theirs before it was anyone else's.
+
+"What do I do?" Jan said.
+
+"You follow the protocols. The staggered schedule. The dressing room rules. The group chat check-ins. You stop touching her when Sirin is in the building. You stop—"
+
+"I can't stop touching her."
+
+"You CAN. You don't want to. There's a difference."
+
+"Lin—"
+
+"There is a difference, P'Jan. You are choosing to touch JingJing in professional spaces where a journalist is documenting your every interaction, and that choice has consequences, and the consequence is a three-second clip of your hands on her collar that will be seen by every person who watches the documentary and shared by every JanJingJing fan account and analyzed by every entertainment reporter in Thailand. That is the consequence. That is what is real."
+
+Jan looked at Lin. At her friend, her colleague, the person who had been standing between her and disaster for months, whose stress responses were now visible to journalists, whose career was entangled with the secret she was keeping.
+
+"I'm sorry," Jan said.
+
+Lin blinked. "What?"
+
+"I'm sorry. For what we've put you through. For what we're still putting you through. You and Fah and Prae and everyone. You're carrying this and it's heavy and we haven't — I haven't said thank you and I haven't said sorry and I should have said both a long time ago."
+
+Lin's jaw worked. Her eyes were bright.
+
+"I don't need sorry, P'Jan. I need you to lock the door. I need you to check the group chat before you go anywhere alone with her. I need you to keep your hands off her collar when cameras exist in the building. Can you do that?"
+
+"Yes."
+
+"Really?"
+
+"Really. I'll try. I'll — I'll really try."
+
+Lin studied her face. Saw the sincerity in it. Saw also the limits of what sincerity could accomplish against the gravitational pull of a person Jan could not stop orbiting.
+
+"The protocols start now," Lin said. "Fah is your shadow on set. Social media goes through me for approval before posting. No more concurrent timestamps."
+
+"Concurrent—?"
+
+"You and JingJing post within minutes of each other. Every time. It's a pattern. If Sirin hasn't noticed it yet, she will. You stagger your posts. Two-hour minimum gap."
+
+Jan stared at her. "You analyzed our posting times?"
+
+"Sirin will analyze your posting times. If she hasn't already. That's what journalists do, P'Jan. They don't guess. They *count*."
+
+Jan picked up her pad thai. Put it down. Picked it up again. The weight of it — not the food, the realization — was settling on her the way weather settled on a landscape: slowly, thoroughly, changing the temperature of everything.
+
+"Lin."
+
+"Yes?"
+
+"The rough cut. The collar footage. Is Sirin going to publish it?"
+
+"I don't know. Prae is going to talk to her about the documentary's editorial direction. She'll try to steer the conversation without revealing why. It's a tightrope."
+
+"Prae is good at tightropes."
+
+"Prae is exhausted. We're all exhausted. The only people who aren't exhausted are you and JingJing, because you're—"
+
+"Blind."
+
+Lin looked at her. Surprised.
+
+"We're blind," Jan said. "I know. I know we don't see it. I know the danger is real and we walk through it like it's a garden. I know Lin. I just — the garden is *beautiful*. That's the problem. The garden is so beautiful I keep forgetting there are mines."
+
+Lin reached across the table. Took Jan's hand. Held it.
+
+"Five weeks," Lin said. "Five weeks and then the mines are gone. The wedding happens, the reveal happens, Sirin writes whatever she writes, and the garden is just a garden. But you have to survive five weeks. WE have to survive five weeks. And that means the protocols. Starting now."
+
+"Starting now."
+
+"Lock the door."
+
+"Lock the door."
+
+"Check the chat."
+
+"Check the chat."
+
+"Hands off the collar."
+
+Jan smiled. The small, rueful smile of someone who understood that what was being asked of her was both entirely reasonable and nearly impossible.
+
+"Hands off the collar," she said.
+
+Lin squeezed her hand. Let go. Stood.
+
+"I'll tell Fah," she said. "And I'll start reviewing Sirin's footage request logs. I want to know what else she's found."
+
+"You can access those?"
+
+"I'm co-executive producer. It's the only power this job gives me and I'm using all of it."
+
+---
+
+That night, Jan lay awake.
+
+JingJing was asleep beside her. The breathing rhythm that meant deep sleep, not light sleep: the steady, measured rhythm of someone who trusted the world enough to turn off completely. Noo-Noo was under her arm. The ring on its chain glinted faintly when the light from the street caught it.
+
+Jan stared at the ceiling.
+
+Three seconds of footage. Her hands on JingJing's collar. A gesture she hadn't thought about, hadn't noticed, hadn't registered as anything other than what it was: the automatic adjustment of fabric on the body of the person she loved, the unconscious domesticity of a year of sharing space and closets and mornings.
+
+She thought about what "getting caught" meant. Not the thrill — she knew the thrill, knew it intimately, knew the heat that rose in her when a door handle turned while JingJing was beneath her. The thrill was chemical. The thrill was her body's response to proximity and danger.
+
+This was different. This was the machinery.
+
+Getting caught meant a cycle on Twitter that lasted three days. Getting caught meant Entertainment reporters calling Khun Dao at 6 AM. Getting caught meant the @janjingjing_th account exploding and the hashtag trending and her mother getting calls from relatives and JingJing's face on tabloid sites with headlines that reduced their love to gossip.
+
+Getting caught meant the wedding — their wedding, the one with twelve people and jasmine and orchids and Noo-Noo as ring bearer — becoming content. Becoming discourse. Becoming something the internet owned instead of something they owned.
+
+Getting caught meant losing the garden.
+
+Jan rolled onto her side. Looked at JingJing's face in the dark. The sleep-smoothed features. The slight pout that JingJing maintained even unconscious, as if the brattiness was structural. The chain disappearing under the collar of Jan's Sizzy shirt, which JingJing had claimed months ago and would never return.
+
+Five weeks. Five weeks of locked doors and staggered posts and hands in pockets instead of on collars.
+
+She could do it. She would do it. Not for herself — for the garden, for the twelve people, for the vows folded in the jacket in the back of the closet. For the version of the future where they stood in front of their friends and said true things and the only person with a camera was someone they trusted.
+
+Jan closed her eyes. Didn't sleep.
+
+Beside her, JingJing murmured something in her sleep. Jan's name, or a dream's version of it. Jan's hand moved toward her, found her hip, rested there.
+
+She would try. She would really try.
+
+---
