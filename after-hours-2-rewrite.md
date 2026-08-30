@@ -1308,3 +1308,415 @@ On the floor, the spreadsheet glowed. Twelve rows. Twelve names. And two new ent
 **VENUE:** The garden. Ours first.
 
 ---
+
+## Chapter 5: The First Risk
+
+Jan didn't plan it. That was important. Later, when Fah was debriefing them with the controlled fury of a handler whose assets had gone rogue, JingJing would point this out multiple times. "She didn't *plan* it. It was spontaneous. Organic. *Improvisational*."
+
+"The word you're looking for is *suicidal*," Fah said.
+
+But Fah wasn't there yet. Fah was in the production office, triple-checking Sirin's afternoon schedule, which showed the journalist in the editing suite reviewing dailies from 2–4 p.m. This meant the hallway between Studio A and the costume department was, in theory, a Sirin-free zone.
+
+In theory.
+
+Jan and JingJing had been blocking the vow scene all morning. Mechanical work: where Lal stands, where Wine enters, when they face each other. The kind of rehearsal that uses the body but not the heart. By noon, JingJing was vibrating with the particular restlessness of someone who'd been standing three feet from Jan for four hours without touching her the way she wanted.
+
+They broke for lunch. JingJing picked at som tam at craft services while Jan talked camera angles with Prae. Normal. Professional.
+
+Then Jan walked past JingJing's chair on the way to the trash can, and as she passed, her hand found the back of JingJing's neck. One second. Fingers curving around the nape, thumb brushing the top vertebra. A touch so quick and targeted that it registered in JingJing's body before her brain caught up.
+
+JingJing's chopsticks stopped. The som tam trembled.
+
+Jan kept walking. Reached the trash can. Threw away her napkin. Turned. Made eye contact across the room.
+
+One second. Maybe less. But Jan's eyes said everything: *I touched you on purpose. I know what that does to you. I know where we are and who's watching and I did it anyway.*
+
+Jan walked toward the hallway.
+
+JingJing counted to thirty. She counted badly, skipping from twelve to seventeen and doubling up on twenty-two, because counting was a pretense and JingJing had never been good at pretenses that didn't serve her. She stood. Left her plate. Walked.
+
+Lin, at the next table, saw JingJing stand. Saw the direction. Saw Jan's retreating figure. Performed the calculation.
+
+"Oh no," Lin said to no one.
+
+She put down her spoon and followed.
+
+---
+
+The hallway was long, narrow, lit by fluorescents that buzzed at a frequency Lin found personally offensive. Three doors: studio, costume department, and a supply closet that Jan and JingJing had used, on one memorable occasion six months ago, for something that was definitely not storage.
+
+Jan was leaning against the wall outside the supply closet. Arms crossed. Waiting.
+
+JingJing appeared at the far end. She was trying to walk casually, which meant she was walking like a general advancing on a position: stride too purposeful, chin too high, the entire concept of nonchalance murdered and left by the road.
+
+"Hi," JingJing said.
+
+"Hi."
+
+"Funny running into you here."
+
+"Hilarious."
+
+"I was going to check on the costumes."
+
+"The costume department is behind you."
+
+"I was checking remotely."
+
+Jan's mouth curved. The slow, asymmetric smile that JingJing had catalogued as "pre-danger." The one that preceded the hand on the wrist, the push against the wall, the moment when control became purpose.
+
+"Come here," Jan said.
+
+JingJing didn't move. This was the game. The resistance that was an invitation.
+
+"No."
+
+"Come here, JingJing."
+
+"Make me."
+
+Jan moved. Faster than JingJing expected, though she should have expected it by now. Jan's hand closed around her wrist. One hand. The grip firm, not hard, the pressure exact. The same grip from the first time, the dressing room, the grip that had rewired JingJing's understanding of what she wanted.
+
+Jan turned her. Pressed her against the wall. The concrete was cool through JingJing's shirt, a shock against her shoulder blades that made her gasp.
+
+"We're in a hallway," JingJing breathed.
+
+"I know."
+
+"Anyone could come."
+
+"I know."
+
+Jan kissed her. Not the gentle kind. The kind that was a claim, a territorial declaration delivered by mouth. Her hand cradled the back of JingJing's head, fingers in her hair, tilting her face to the angle Jan wanted, and JingJing let herself be tilted because *this* was the thing she craved: the moment of being positioned, arranged, placed exactly where Jan wanted her.
+
+JingJing moaned against Jan's mouth.
+
+Not quietly. JingJing did not do anything quietly.
+
+Jan pulled back a centimeter. "Shh."
+
+"Don't shh me. YOU put us in a hallway."
+
+"And I'm telling you to be quiet."
+
+"I don't *do* quiet. You've had a year to figure this out."
+
+Jan's mouth found JingJing's neck. Below the ear. Teeth grazing the skin. JingJing's hips rolled against Jan's thigh, once, involuntary, seeking friction, and the sound she made was not suitable for a building full of professionals.
+
+"Daddy — I—"
+
+At the end of the hallway, Lin appeared.
+
+She stood at the corner where the hallway met the main corridor and saw everything: Jan pressing JingJing against the wall, JingJing's hands fisted in Jan's shirt, Jan's mouth on JingJing's neck. The hallway stretching between them and the rest of the world, unguarded, open at both ends.
+
+Then she heard footsteps. Coming from the other direction. Coming from the editing suite, where Sirin was supposed to be for another forty-five minutes. The footsteps were real and getting closer, and Lin's body moved before her brain finished processing.
+
+The fire extinguisher was on the wall bracket three feet to her left. She grabbed it, spun, and discharged it into the air at the hallway junction with a hissing roar that sounded like a dying dragon.
+
+The white cloud billowed. The noise was enormous. Sirin, rounding the corner from the editing suite with a coffee in hand, stopped dead.
+
+"What — what's happening?" Sirin stepped back from the cloud, coffee sloshing.
+
+"Fire!" Lin said. Then: "Not a fire! A drill! A practice. I was — testing the extinguisher. For safety. Production safety protocol. We test them. Monthly. This is that."
+
+"You're testing fire extinguishers?"
+
+"For safety! Very important. You should — you should go that way." Lin pointed down the far corridor, away from the hallway, away from the two women who had, at the sound of the extinguisher, frozen against the wall like deer in headlights. "That way is safer. From the — from the fire that isn't happening."
+
+Sirin looked at Lin. Lin was covered in a fine mist of fire-extinguisher residue. Her hands were shaking. Her eyes were wide. She looked like a person who had just done something desperate and was now improvising the explanation in real time.
+
+"Are you okay, Khun Lin?" Sirin asked.
+
+"Fine! Great! Very normal day!"
+
+Sirin looked at Lin's face for a long moment. Then she looked past Lin, toward the hallway. The extinguisher cloud was still dissipating. Through the white haze, the hallway was empty. Jan and JingJing had vanished. Sirin couldn't see them, couldn't know they'd been there.
+
+But she could see Lin's face. The adrenaline. The relief. The specific physiological signature of a person who had just averted a crisis by committing a minor act of property damage.
+
+Sirin took a sip of her coffee. "Monthly testing?"
+
+"Monthly. Very routine."
+
+"I'll make a note not to be alarmed."
+
+"Please do. Normal building operations."
+
+Sirin walked away. Calm. Unhurried. Coffee in hand.
+
+Lin leaned against the wall. Her legs were shaking. She was covered in fire-suppressant powder. The extinguisher hung from her hand like a spent weapon.
+
+In her notebook, back at her workstation three minutes later, Sirin wrote: *Lin. Fire extinguisher. Hallway adjacent to dressing rooms. Adrenaline response disproportionate to stated cause. Why does a manager's stress spike at 2pm in a service hallway?*
+
+---
+
+In the car on the way home, Jan told JingJing about Lin's diversion.
+
+"A fire extinguisher," JingJing said.
+
+"A fire extinguisher."
+
+"She set off a *fire extinguisher* to cover for us."
+
+"She did."
+
+"That's — that's genuinely heroic. That's action-movie behavior."
+
+"That's a woman at the end of her rope."
+
+Silence. JingJing looked out the window. Bangkok traffic. The crawl of red taillights on Sukhumvit. Her reflection in the glass, lit intermittently by passing headlights.
+
+"Are you going to lecture me?" JingJing asked.
+
+"I'm going to tell you what Lin said."
+
+"She yelled at you."
+
+"She didn't yell. She was — precise. She said we're sleepwalking. That we move through that building like the rules don't apply to us. That there are people absorbing shockwaves we can't feel, and the least we can do is acknowledge that the blast radius exists."
+
+"Blast radius."
+
+"Her word."
+
+"That's a very Lin word." JingJing pulled her knees up to her chest. "Is she right?"
+
+Jan was quiet. Her hands on the wheel. The ring on her finger catching streetlight.
+
+"She's right that it costs them," Jan said. "She's right that we don't see it."
+
+"But?"
+
+"But I'm not sorry."
+
+JingJing turned from the window. Looked at Jan's profile. "You're not sorry."
+
+"I kissed you in a hallway. I would do it again. I would do it tomorrow. I can't — I can't look at you for four hours and not touch you. I can't stand three feet away from you on a set and pretend my hands don't know the shape of you. I know that's a problem. I know it's reckless. I know Lin is right. And I would still do it again."
+
+"P'Jan—"
+
+"That scares me. Not getting caught. Not Sirin. The fact that I can't stop. That you make me want to burn the entire building down just to hold your hand in the rubble."
+
+The car stopped at a light. Red. The intersection swimming in neon.
+
+"I'm not scared," JingJing said.
+
+"You should be."
+
+"I'm not. I'm —" She bit her lip. Looked at Jan's hands on the steering wheel. The knuckles. The ring. "I'm something else."
+
+"What?"
+
+"I don't want to say it."
+
+"Say it."
+
+"It'll make you worse."
+
+"JingJing."
+
+"I'm turned on." She said it flat. Clinical. Like a doctor delivering a diagnosis. "When you told me about the hallway. About Lin and the fire extinguisher and Sirin being twenty feet away. My first thought wasn't 'that was close.' It was — my body reacted before my brain did, and the reaction was not *fear*, P'Jan. The reaction was the opposite of fear."
+
+The light turned green. Jan didn't move. The car behind them honked.
+
+"That's a problem," Jan said.
+
+"I'm aware."
+
+"If we're both — if neither of us is the one saying stop—"
+
+"Then nobody says stop. I know. I know that's a problem. But I don't feel it like a problem. I feel it like—" JingJing's voice dropped. "Like the hallway was the hottest thing you've done in weeks and I need you to take me home and fuck me before I lose my mind."
+
+Jan drove.
+
+---
+
+They didn't make it past the entryway.
+
+JingJing was out of the car first, through the lobby, in the elevator, Jan two steps behind her. The doors closed and JingJing turned on her and said "You could have gotten us caught."
+
+"I know."
+
+"Lin had to set off a *fire extinguisher*."
+
+"I know."
+
+"Sirin was twenty feet away."
+
+"I know."
+
+"You're reckless."
+
+"Yes."
+
+"You're irresponsible."
+
+"Yes."
+
+"You're going to get us exposed."
+
+"Probably."
+
+"You should be ashamed of yourself."
+
+Jan looked at her. JingJing's chest was heaving. Her eyes were dark. Her lips were parted and her fists were clenched at her sides and every line of her body was saying one thing while her mouth said another and they both knew which one was telling the truth.
+
+"You're wet," Jan said.
+
+JingJing slapped her.
+
+Not hard. An open palm to the shoulder, more impact than pain, the kind of hit that was a punctuation mark. Jan caught her wrist. JingJing pulled. Jan held.
+
+"You don't get to be right about that," JingJing hissed.
+
+"I'm right about that."
+
+"I'm *angry*."
+
+"You're angry and wet. Both things are true."
+
+The elevator opened. Their floor. JingJing yanked her wrist free and stalked to the apartment door, fumbled the key, got it open, and Jan was through behind her, door slamming, and the argument continued in the dark entryway with their shoes still on.
+
+"You could have gotten us caught," JingJing said again, and this time the words cracked open and what was underneath was not anger but the thing that lived next to anger, the twin that shared its heartbeat, the heat that was indistinguishable from fury until you got close enough to feel the direction of the flame.
+
+"And you would have let me," Jan said.
+
+"I would NOT have—"
+
+"You followed me into the hallway. You didn't hesitate. You didn't check for Sirin. You didn't look. You just came."
+
+"Because you — because you did the *neck thing* — you touched my neck at the table and you knew exactly—"
+
+"I knew exactly what it would do. And you came anyway."
+
+"BECAUSE I'M AN IDIOT."
+
+"Because you wanted it."
+
+JingJing shoved her. Both hands against Jan's chest, pushing her backward into the hallway wall. Jan's back hit the plaster and JingJing was on her, mouth on her mouth, kissing her the way she'd wanted to kiss her in the hallway, the way she'd been wanting to kiss her since Jan's fingers touched her neck at a table full of colleagues and short-circuited her entire nervous system.
+
+This was not the tender sex from the night before. This was not whispering about weddings. This was the collision, the argument that had nowhere to go but through each other, the fight that couldn't be won with words.
+
+JingJing bit Jan's lower lip. Hard. Jan hissed, and her hands found JingJing's hips and gripped, and JingJing felt the bite land in Jan's body, felt her go rigid, felt the sharp inhale that meant the line between pain and want had blurred exactly the way JingJing intended.
+
+"You're insane," JingJing gasped against Jan's mouth.
+
+"You married me."
+
+"I'm not married to you yet. I'm *going* to marry you. I have time to change my mind."
+
+"You won't."
+
+"I MIGHT."
+
+Jan flipped them. JingJing's back against the wall now, Jan's hands pinning her wrists above her head, both of them, one-handed, Jan's grip firm enough to hold and gentle enough to leave if JingJing wanted to leave, which she did not want to do, which she would never want to do, which was the entire problem.
+
+"You won't," Jan repeated. Low. Certain. The voice that made JingJing's knees dissolve. "Because you're mine. Because you followed me into a hallway in a building full of people who could end us, and you didn't think twice, and right now you're pressing your hips into mine and your pupils are blown and you're angry and wet and you want me to fuck you against this wall."
+
+"I want you to fuck me against this wall," JingJing said. "That doesn't mean I'm not angry."
+
+"Be angry."
+
+"I *am* angry."
+
+"Be angry while I fuck you."
+
+"FINE."
+
+Jan let go of her wrists. Pulled JingJing's shorts down. JingJing kicked them off, one shoe catching the hallway table, something falling, neither of them looking. Jan's joggers came down. She was hard. JingJing wrapped one leg around Jan's waist and Jan lifted her, both hands under her thighs, pressing her into the wall, and JingJing reached between them and guided Jan inside her and the sound she made was loud and furious and absolutely not suitable for a building with neighbors.
+
+"*Fuck* — you — Daddy—"
+
+Jan thrust up into her. Not slow. Not careful. The fight's rhythm, sharp and insistent, each stroke punctuating the argument they'd been having and would keep having and would never resolve because the argument was the relationship: Jan's recklessness and JingJing's inability to resist it, two forces that should cancel each other out but instead multiplied.
+
+"You're so — *ah* — so fucking reckless—" JingJing's nails dug into Jan's shoulders. "You kissed me — in a *hallway* — and now Lin is going to need — *oh god right there* — is going to need therapy—"
+
+"Stop talking about Lin."
+
+"I'll stop talking about Lin when you stop — *fuck* — stop putting your mouth on me in buildings — *ah ah ah* — where journalists are—"
+
+Jan shifted the angle. Deeper. JingJing cried out.
+
+"There?"
+
+"*There* — Daddy — don't stop — I hate you—"
+
+"You love me."
+
+"I love you and I hate you and I'm going to — *oh god* — I'm going to come and I'm still mad—"
+
+"Come and be mad."
+
+"I WILL."
+
+JingJing came. Screaming. Nails drawing lines down Jan's back that would sting in the shower tomorrow. Her whole body clenching around Jan, the orgasm ripping through her with the same intensity as the argument, the anger and the pleasure fusing into something she couldn't name and didn't want to.
+
+Jan came moments later, buried deep, forehead against JingJing's collarbone, and the sound she made was quiet, almost silent, a breath and a shudder and JingJing's name, and the contrast between Jan's quiet and JingJing's screaming was its own kind of harmony.
+
+They stayed against the wall. Breathing. JingJing's legs still wrapped around Jan's waist. Something had definitely fallen off the hallway table. A shoe was in the kitchen somehow.
+
+"I'm still mad," JingJing said.
+
+"I know."
+
+"You can't keep doing this."
+
+"I know."
+
+"I mean it. Lin is going to have a heart attack. Fah is going to develop a drinking problem. You can't just—"
+
+"I know." Jan's arms tightened around her. "I know. I'll try."
+
+"You won't try. You'll do it for three days and then you'll look at me in a certain way and we'll be in a supply closet before lunch."
+
+"That's — accurate."
+
+"P'Jan."
+
+"I'll try harder."
+
+"Promise."
+
+"I promise I'll try. I can't promise I'll succeed. Not when you look like this."
+
+"I look like a woman who just got fucked against a wall in the entryway with her shoes on."
+
+"You look like the person I'm going to marry. And I lose my mind a little, every time I remember that."
+
+JingJing pressed her forehead against Jan's. Closed her eyes. The anger was gone. What was left was the thing that always outlasted the anger: the terrifying, gravity-defying, structurally unsound love that made two grown women incapable of behaving in professional settings.
+
+"Put me down," JingJing said.
+
+"No."
+
+"I need a shower."
+
+"No."
+
+"P'Jan."
+
+"Five more minutes."
+
+JingJing wrapped her arms tighter around Jan's neck. "Five more minutes."
+
+They stood in the dark entryway, tangled together, one shoe in the kitchen, something broken on the floor, the argument won and lost by both sides simultaneously.
+
+On Jan's phone, face-down on the hallway table: seven unread messages in the group chat.
+
+**Fah:** STATUS REPORT. Where are they.
+
+**Lin:** They left. I covered. Don't ask how.
+
+**Fah:** How?
+
+**Lin:** I said don't ask.
+
+**Fah:** P'Lin.
+
+**Lin:** I set off a fire extinguisher.
+
+**Fah:** You WHAT.
+
+**Lin:** I set off a fire extinguisher in Sirin's face to cover for Jan having JingJing pinned against a wall in the hallway with her mouth on her neck. I told Sirin it was a monthly safety test. I am now covered in fire-suppressant residue and I need to go home and question every decision that has led me to this point.
+
+**Fah:** We need to escalate. I'm calling an emergency meeting.
+
+---
