@@ -99,7 +99,7 @@ Jan smiled. Picked up her Thai tea. Drank.
 
 "I love you and I hate you and those are the same thing and you know it."
 
-"I do know it." Jan leaned over and pressed her lips to JingJing's forehead. Slow. Warm. Deliberate. JingJing's eyes closed. Every inch of brat drained out of her, and what was left was the thing underneath — the part of her that curled into Jan's chest and held Noo-Noo and needed nothing except this for the rest of her life.
+"I do know it." Jan leaned over and pressed her lips to JingJing's forehead. Held there. JingJing's eyes closed. Every inch of brat drained out of her, and what was left was the thing underneath — the part of her that curled into Jan's chest and held Noo-Noo and needed nothing except this for the rest of her life.
 
 "We're going to be fine," Jan said against her hairline.
 
@@ -429,7 +429,7 @@ Jan's mouth twitched. She turned back to the mirror and finished brushing her te
 
 "I have to hide the ring. I have to hide the rabbit. I have to hide the fact that I'm marrying you. I have to hide the way I feel about you. What's left? What part of me am I allowed to bring to set?"
 
-Jan sat on the edge of the bed. Set Noo-Noo gently on the nightstand. Placed her hand on JingJing's stomach, flat, warm, steady.
+Jan sat on the edge of the bed. Set Noo-Noo gently on the nightstand. Placed her hand on JingJing's stomach, flat and warm.
 
 "All of you," Jan said. "You bring all of you. The ring being under your shirt doesn't mean it's not there."
 
@@ -545,7 +545,7 @@ Jan reached between them. Angled herself. The head pressed against JingJing's en
 
 "Slow."
 
-Jan pushed in slowly. One inch at a time. And JingJing felt every one. The stretch. The fullness. The deep, living pressure of being filled by someone who knew her body the way Jan knew everything: completely, attentively, with the specific patience of someone who understood that the build was the point.
+Jan pushed in slowly. One inch at a time. And JingJing felt every one. The deep, living pressure of being filled by someone who knew her body the way Jan knew everything — with the specific patience of someone who understood that the build was the point.
 
 "Daddy—" The word came out strangled. "You're so — *fuck* — all the way, I want all of it—"
 
@@ -1177,7 +1177,7 @@ JingJing's throat tightened. She pressed her face into Jan's neck. Breathed. The
 
 Jan's hands moved up her back. Slow. "Because you were looking at me like you wanted to marry me. And you do want to marry me. So it was just the truth."
 
-JingJing pulled back. Looked at Jan. Jan's face was calm, certain, the bedrock steadiness that JingJing had built her entire life on since the dressing room, since the first time, since the moment Jan's hands had told her something her ears hadn't heard yet.
+JingJing pulled back. Looked at Jan. Jan's face was certain, the bedrock steadiness that JingJing had built her entire life on since the dressing room, since the first time, since the moment Jan's hands had told her something her ears hadn't heard yet.
 
 "Take me to bed," JingJing said.
 
@@ -1255,7 +1255,7 @@ Her voice cracked. She was crying. Not the dramatic kind. The two-tear kind. The
 
 "I know. Let go."
 
-JingJing let go. She came with Jan's name in her mouth and Jan's hands on her back and the word *wife* still echoing in the space between them, and Jan held her through it, and Jan came inside her moments later, quiet, pressed deep, her forehead against JingJing's collarbone, and they stayed like that for a long time, tangled together, the laptop still glowing on the floor.
+JingJing let go. She came with Jan's name in her mouth and Jan's hands on her back, and Jan held her through it, and Jan came inside her moments later, quiet, pressed deep, her forehead against JingJing's collarbone. They stayed like that for a long time, tangled together, the laptop still glowing on the floor.
 
 "Jasmine and orchids," Jan said eventually.
 
@@ -1271,7 +1271,7 @@ JingJing let go. She came with Jan's name in her mouth and Jan's hands on her ba
 
 "That's the same thing."
 
-JingJing laughed into Jan's shoulder. A wet, exhausted, incandescently happy sound. She pulled back and looked at Jan's face, and Jan's eyes were bright, and JingJing realized that Jan had been crying too. Silently. The way Jan cried. Two tears, caught in her lashes, visible only from this close.
+JingJing laughed into Jan's shoulder. A wet, incandescently happy sound. She pulled back and looked at Jan's face, and Jan's eyes were bright, and JingJing realized that Jan had been crying too. Silently. The way Jan cried. Two tears, caught in her lashes, visible only from this close.
 
 "You cried," JingJing said.
 
@@ -2043,7 +2043,7 @@ Tomorrow, it would have to be enough again.
 
 The pre-fancon meet-and-greet was held at CentralWorld, in a space decorated with the *Enemies with Benefits* palette: deep purple and rose gold. Twelve hundred fans. Ninety minutes. Forty staff members whose job was to ensure the talent had no opportunity to do anything off-brand.
 
-JingJing was in the greenroom backstage, staring at her reflection. The outfit Khun Dao's team had selected: cream silk blouse, high-waisted black trousers, ankle boots. Makeup: natural but deliberate, an hour to look like five minutes. She looked like JingJing-the-brand: warm, polished, approachable.
+JingJing was in the greenroom backstage, staring at her reflection. The outfit Khun Dao's team had selected: cream silk blouse, high-waisted black trousers, ankle boots. Makeup: natural but deliberate, an hour to look like five minutes. She looked like JingJing-the-brand: polished and approachable.
 
 Available.
 
@@ -2452,7 +2452,7 @@ The workspace placement was itself a data point. She'd noted it on day one.
 
 She opened Instagram. Navigated to @janhae and @jingjingyu36.
 
-This was the investigative work that separated a journalist from a gossip columnist: the boring, tedious, methodical work that nobody saw and that produced the foundations nobody questioned. Sirin had been doing it for a decade. She did it the way a carpenter sanded wood — patiently, precisely, until the surface was smooth enough to show the grain beneath.
+This was the investigative work that separated a journalist from a gossip columnist: the tedious, methodical work that nobody saw and that produced the foundations nobody questioned. Sirin had been doing it for a decade. She did it the way a carpenter sanded wood — patiently, precisely, until the surface was smooth enough to show the grain beneath.
 
 She pulled Jan's posting history from the last three months. Noted the timestamps. Did the same for JingJing.
 
@@ -2584,7 +2584,7 @@ That was the question that mattered. Not *what is happening between Jan and Jing
 
 An exposé would write itself. The Instagram timestamps alone were a compelling infographic. The hotel bookings were supporting evidence. The crew behavior was texture. The Prae conversation was the emotional hook. She could pitch it tomorrow, and her editor would greenlight it before lunch, and the piece would trend on LINE for a week, and two women's private life would become public property.
 
-Or she could wait. Watch. Let the story become what it wanted to become, not what the industry wanted it to become. Let Jan and JingJing arrive at their own truth on their own schedule, and be there — professionally, respectfully, without ambush — when they were ready.
+Or she could wait. Watch. Let the story become what it wanted to become, not what the industry wanted it to become. Let Jan and JingJing arrive at their own truth on their own schedule, and be there — respectfully, without ambush — when they were ready.
 
 The first option was journalism. The second option was also journalism, just slower, and more expensive, and harder to justify to an editor who measured value in clicks.
 
@@ -3584,7 +3584,7 @@ The last composition: Jan center frame, Golf's hand exiting on the right edge. L
 
 "What thing?" Jan said. She genuinely didn't know. The thing was: her eyes looked at you like you were the only person in the world, like the room had emptied and the planet had emptied and what remained was you and a gravity that had nothing to do with physics.
 
-Jan did the thing for the camera. For the cover. For thirty million readers who would see this image and think Jan's intensity was general, available, undirected.
+Jan did the thing for the camera. For the cover. For thirty million readers who would see this image and think Jan's intensity was available to everyone.
 
 It wasn't. It contained JingJing. It had always contained JingJing. The camera just didn't know where to look.
 
@@ -3632,7 +3632,7 @@ They didn't speak the rest of the drive. Thonglor to Ekkamai, the familiar route
 
 The apartment door closed. JingJing locked the deadbolt, the chain, the finality of *no one else gets in*, and turned.
 
-Jan stood in the hallway in the suit from the shoot. Beautiful, controlled, the perfect exterior. But her eyes were the JingJing eyes. Dark. Waiting.
+Jan stood in the hallway in the suit from the shoot. The perfect exterior. But her eyes were the JingJing eyes. Dark. Waiting.
 
 "Take off the jacket," JingJing said.
 
@@ -3754,7 +3754,7 @@ Jan's hands came to JingJing's hips. This time JingJing let them stay. She rode 
 
 "Look at me," JingJing said.
 
-Jan looked. Her eyes were wrecked. Blown wide, dark, the amber nearly gone. JingJing held her gaze and rolled her hips and watched Jan's face and thought: *this. This is what the camera wanted and couldn't have. This is the thing with the eyes. This is what Jan looks like when she's being owned. No magazine will ever publish this face. This face is mine.*
+Jan looked. Her eyes were wrecked. Blown wide, the amber nearly gone. JingJing held her gaze and rolled her hips and watched Jan's face and thought: *this. This is what the camera wanted and couldn't have. This is the thing with the eyes. This is what Jan looks like when she's being owned. No magazine will ever publish this face. This face is mine.*
 
 The second orgasm built slowly. A heat that started where they were connected and spread outward through JingJing's body in waves, each wave higher, each crest sharper. JingJing's sounds dropped from loud to low, the moans becoming something guttural and intimate, the sounds she made when she was past performance and into the animal truth of what she needed.
 
@@ -3766,7 +3766,7 @@ The second orgasm built slowly. A heat that started where they were connected an
 
 "I'm there. I'm with you."
 
-They came together. JingJing's body arching backward, Jan's hips pressing up, the room filled with nothing but the sounds they made and the creak of the bed and the wet, obscene sound of Jan emptying into JingJing for the second time, and JingJing cried out *Jan* — not Daddy, just the name, and it sounded like a brand being pressed into skin: permanent, painful, necessary.
+They came together. JingJing's body arching backward, Jan's hips pressing up, the room filled with nothing but the sounds they made and the creak of the bed and the wet, obscene sound of Jan emptying into JingJing for the second time, and JingJing cried out *Jan* — not Daddy, just the name, and it sounded like a brand being pressed into skin.
 
 JingJing fell forward again. This time she stayed. Jan's arms wrapped around her. The post-sex trembling that JingJing's body always did, fine and continuous, like a tuning fork that had been struck too hard.
 
@@ -3888,11 +3888,11 @@ In the frame: Jan and JingJing, visible through the open door of the costume dep
 
 Three seconds. That was all. Jan's fingers on the fabric, smoothing the line, tucking a fold that had come loose. JingJing standing still, letting her. Neither of them speaking. Neither of them performing. Neither of them aware of the camera.
 
-The gesture was domestic. Not professional. Not the adjustment of a co-worker's wardrobe, which would have been efficient, impersonal, functional. This was the gesture of someone who dressed this person every day, whose hands knew the collar the way they knew every seam and fold. It was intimate in the way that only invisible intimacy could be: the intimacy of routine, of ownership so complete it had become unconscious.
+The gesture was domestic. Not professional. Not the adjustment of a co-worker's wardrobe, which would have been efficient and impersonal. This was the gesture of someone who dressed this person every day, whose hands knew the collar the way they knew every seam and fold. It was intimate in the way that only invisible intimacy could be: the intimacy of routine, of ownership so complete it had become unconscious.
 
 It was three seconds. It was everything.
 
-Prae rewound. Watched it again. Watched Jan's fingers on the collar. Watched JingJing's face in the mirror — relaxed, unsurprised, the face of someone who was accustomed to these hands adjusting these clothes. Watched the quality of stillness between them, the specific silence of two people whose bodies knew each other well enough that a touch like this required no conversation, no permission, no acknowledgment.
+Prae rewound. Watched it again. Watched Jan's fingers on the collar. Watched JingJing's face in the mirror — relaxed, unsurprised, the face of someone who was accustomed to these hands adjusting these clothes. Watched the quality of stillness between them, the specific silence of two people whose bodies knew each other well enough that a touch like this required no permission and no acknowledgment.
 
 It wasn't proof. Plenty of close colleagues adjusted each other's costumes. GL co-leads touched each other's clothing all the time. In isolation, the footage was ambiguous.
 
@@ -4212,7 +4212,7 @@ Jan was quiet. Weighing it. Not the risk of exposure. The risk of leaving someon
 
 "We'll tell her," Jan said. "Soon."
 
-JingJing wiped her eyes on Jan's shirt. Looked up with the post-cry face: swollen, red, luminous.
+JingJing wiped her eyes on Jan's shirt. Looked up with the post-cry face: swollen and luminous.
 
 "Take a picture of me," she said. "Under the tree."
 
@@ -4278,7 +4278,7 @@ In the wedding group chat:
 
 **JingJing:** ...it worked.
 
-JingJing put the phone down. Looked out the window at the city coming back — expressway, billboards, skyline. The world that didn't know about the garden. The world that saw two women in a car on a Thursday and thought: colleagues.
+JingJing put the phone down. Looked out the window at the city coming back — billboards and skyline. The world that didn't know about the garden. The world that saw two women in a car on a Thursday and thought: colleagues.
 
 She looked at Jan. At Jan's profile, the jaw, the slight smile that meant Jan was thinking about the same thing JingJing was thinking about. The same garden. The same twenty-two steps. The same future.
 
@@ -4622,7 +4622,7 @@ JingJing put the phone down. Looked at Jan, still on the floor, still holding he
 
 "You always know."
 
-JingJing put Noo-Noo back in the bag. Zipped the pocket. Hidden. Safe. Waiting.
+JingJing put Noo-Noo back in the bag. Zipped the pocket. Safe. Waiting.
 
 ---
 
@@ -4864,7 +4864,7 @@ Jan turned. JingJing stood in the balcony doorway, pajama shorts and Jan's Sizzy
 
 "I'm not thinking about the photo."
 
-"Liar." JingJing stepped onto the balcony. The night air moved her hair. The city hummed below — cars, voices, the ambient murmur of a million people not looking up. "You're thinking about the Chiang Mai balcony. Someone saw us. Someone took a picture. And instead of being scared, you're standing here with a hard-on."
+"Liar." JingJing stepped onto the balcony. The night air moved her hair. The city hummed below, a million people not looking up. "You're thinking about the Chiang Mai balcony. Someone saw us. Someone took a picture. And instead of being scared, you're standing here with a hard-on."
 
 Jan said nothing. Her jaw worked.
 
@@ -5008,7 +5008,7 @@ Thirty minutes. Empty hallway. Locked door. Mirror.
 
 The code-red protocols from Chapter 10 were supposed to prevent exactly this. Staggered dressing rooms. Fah as shadow. Social media through Lin. What the protocols hadn't accounted for was the possibility that Jan would simply *route around them*. The protocols assumed Jan and JingJing were careless. They weren't careless. Jan was meticulous. She'd been watching the crew's patterns with the same analytical focus Sirin applied to hers, except in the opposite direction: Sirin mapped Jan's behavior to prove a relationship existed. Jan mapped the crew's behavior to find the gaps in their protection.
 
-She didn't think of what she was doing as dangerous. She thought of it as engineering. The problem: she wanted JingJing. The solution: architectural. The variables: foot traffic, schedule, Sirin's location, crew dispersal pattern, lock mechanism, room temperature. She solved for all of them the way she solved a blocking problem on set — methodically, precisely, with the competence that made her impossible to argue with.
+She didn't think of what she was doing as dangerous. She thought of it as engineering. The problem: she wanted JingJing. The solution: architectural. The variables: foot traffic, schedule, Sirin's location, crew dispersal pattern, lock mechanism, room temperature. She solved for all of them the way she solved a blocking problem on set — with the methodical competence that made her impossible to argue with.
 
 She texted JingJing at 12:47.
 
@@ -5530,7 +5530,7 @@ JingJing's hand paused in the cereal box.
 
 "Knows what, exactly?"
 
-"Everything." Jan told her. The Instagram timing analysis. The hotel manifests. The catering logs. The rough cut. The crew's behavioral pattern. The Chiang Mai photo. The chain — Sirin had counted JingJing's gestures, the hand going to the ring, and the count was past sixty. Jan told her all of it, in order, the way Sirin had told her: precise, accumulated, undeniable.
+"Everything." Jan told her. The Instagram timing analysis. The hotel manifests. The catering logs. The rough cut. The crew's behavioral pattern. The Chiang Mai photo. The chain — Sirin had counted JingJing's gestures, the hand going to the ring, and the count was past sixty. Jan told her all of it, in order, the way Sirin had told her: accumulated and undeniable.
 
 JingJing listened. She ate cereal while she listened, which was either a sign of extraordinary calm or the specific JingJing defense mechanism of performing normalcy while processing catastrophe. Jan couldn't always tell the difference.
 
@@ -5572,7 +5572,7 @@ Jan considered the question honestly. Tested it against the weight of what Sirin
 
 "We've always been visible, P'Jan. We just stopped noticing."
 
-JingJing shifted closer. Jan pulled her in. The apartment was quiet. The TV murmured. Outside, Bangkok did what Bangkok always did — hummed, moved, existed at a frequency too large to notice two women on a couch holding each other with the specific intensity of people who had just learned the exact dimensions of the glass box they'd been living in.
+JingJing shifted closer. Jan pulled her in. The apartment was quiet. The TV murmured. Outside, Bangkok did what Bangkok always did — existed at a frequency too large to notice two women on a couch holding each other with the specific intensity of people who had just learned the exact dimensions of the glass box they'd been living in.
 
 They didn't have sex that night. They lay in bed, JingJing's back against Jan's chest, Jan's arm across JingJing's waist, and the silence was the point. The silence was the first silence in thirteen months that contained the full knowledge of how much someone else knew, and the silence was different because of it. Heavier. More honest. The silence of two people who had been performing privacy and had just been told, calmly and specifically, that the performance was visible from every angle.
 
@@ -5904,7 +5904,7 @@ Jan laughed. It helped. Milk's voice helped — the solidity of it, the reminder
 
 The meeting was on the fourteenth floor. Glass walls. Whiteboards. The corporate neutrality of a room designed for decisions that affected people who would never sit in it.
 
-Khun Somchai was compact, mid-fifties, with the energy of someone who had been managing talent since before Jan was born and who viewed personal relationships as variables in a spreadsheet. He shook their hands. He smiled the way executives smile — warm, professional, disconnected from anything resembling emotion.
+Khun Somchai was compact, mid-fifties, with the energy of someone who had been managing talent since before Jan was born and who viewed personal relationships as variables in a spreadsheet. He shook their hands. He smiled the way executives smile — professional and disconnected from anything resembling emotion.
 
 "Let's talk about timing," Khun Somchai said.
 
@@ -6110,7 +6110,7 @@ Lin, at the monitor bank, had the expression of someone who had been told the bu
 
 "Rolling," the AD called. "Scene forty-seven, take one. Action."
 
-The music started. A solo piano piece the composer had written for this scene — a melody that climbed and opened and ached. JingJing walked the path. Stone under her feet. Jasmine above her. The twenty-two steps she had counted in the real garden, replicated here, on a soundstage, in front of cameras and a journalist and sixty people who didn't know they were watching a rehearsal.
+The music started. A solo piano piece the composer had written for this scene — a melody that climbed and ached. JingJing walked the path. Stone under her feet. Jasmine above her. The twenty-two steps she had counted in the real garden, replicated here, on a soundstage, in front of cameras and a journalist and sixty people who didn't know they were watching a rehearsal.
 
 Jan watched her come. The amber eyes steady and full.
 
@@ -6272,7 +6272,7 @@ Jan kissed her. Slow. Matching the rhythm above to the rhythm below, the synchro
 
 "I will," Jan said. "I will. I will."
 
-JingJing came. The slow orgasm, the deep one, the kind that built from far away and arrived with the full weight of the ocean. She came saying *Jan*. Not Daddy. The name she would say in the garden.
+JingJing came. Slow, from far away, the orgasm arriving with the full weight of the ocean. She came saying *Jan*. Not Daddy. The name she would say in the garden.
 
 Jan came inside her. Together, almost — the timing close enough to feel like one event instead of two, the shared peak that felt like proof that two bodies could become one system.
 
