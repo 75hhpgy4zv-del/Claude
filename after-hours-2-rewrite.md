@@ -609,7 +609,7 @@ Jan's rhythm stuttered. "I'm close—"
 
 "Inside me — Daddy, come inside me—"
 
-Jan buried herself deep and came, and JingJing felt it, the pulse and the heat and the fullness of Jan finishing inside her, and that sensation triggered the second orgasm, the one she'd said she couldn't have, and it hit harder than the first. She screamed Jan's name. Not Daddy. Not P'Jan. Just *Jan*, torn out of her like a confession, and Jan held her through it, face pressed into her neck, both of them shaking, the sound of their breathing the only thing in the world.
+Jan buried herself deep and came, and JingJing felt it — Jan pulsing inside her, deep and hot — and that sensation triggered the second orgasm, the one she'd said she couldn't have, and it hit harder than the first. She screamed Jan's name. Not Daddy. Not P'Jan. Just *Jan*, torn out of her like a confession, and Jan held her through it, face pressed into her neck, both of them shaking, the sound of their breathing the only thing in the world.
 
 ---
 
@@ -1295,7 +1295,7 @@ Jan wiped her eyes with the back of her hand. "Condensation. From the — from t
 
 "Make me."
 
-Jan kissed her forehead. Slow. Warm. The one that shut everything down, that reached past the brat and the performer and the woman who'd just said *wife* on repeat while making love and found the JingJing underneath all of it, the quiet one, the one who closed her eyes and breathed and needed nothing else.
+Jan kissed her forehead. Slow. Warm. The one that shut everything down, that reached past everything JingJing had been tonight and found the one underneath — the one who closed her eyes and breathed and needed nothing else.
 
 "Sleep," Jan murmured against her hairline. "We have a wedding to plan."
 
@@ -2213,7 +2213,7 @@ The possessiveness was not simmering anymore. It was here. All of it. Every ounc
 
 "Take off the jacket," JingJing said.
 
-Jan looked at her. Read her. Jan could always read her, the way you read weather — the pressure, the temperature, the specific electromagnetic charge that preceded lightning.
+Jan looked at her. Read her. Jan could always read her, the way you read weather — the electromagnetic charge that preceded lightning.
 
 Jan took off the jacket. Laid it on the chair.
 
@@ -2311,7 +2311,7 @@ JingJing rose up. Took Jan inside her in one motion. All of it. Ten inches. Fast
 
 "You — *ah* — you feel so good — Daddy — *fuck*—"
 
-She was losing the script. The possessive fury dissolving into the physical, the anger bleeding into pleasure, because Jan inside her was Jan inside her regardless of the emotional framework and JingJing's body didn't care about jealousy or magazines or PR strategy, JingJing's body just cared about *this*, about the fullness and the friction and the angle that hit the spot that made her scream.
+She was losing the script. The possessive fury dissolving into the physical, the anger bleeding into pleasure, because Jan inside her was Jan inside her regardless of the emotional framework and JingJing's body didn't care about jealousy or magazines or PR strategy, JingJing's body just cared about *this*, about the angle that hit the spot that made her scream.
 
 She screamed. Not quietly. The hotel room walls were thick enough or they weren't. She didn't care.
 
@@ -3160,7 +3160,7 @@ Jan's breath came hard through her nose. The truth was on her face, in the rigid
 
 "Yes," Jan said.
 
-JingJing stared at her. Then something shifted in JingJing's face, something that was not fear and not judgment but recognition, the recognition of a piece of Jan she had known was there but had never seen this clearly: the exhibition, the thrill, the part of Jan that did not want to hide.
+JingJing stared at her. Then something shifted in JingJing's face — not fear, not judgment. Recognition. A piece of Jan she had known was there but had never seen this clearly.
 
 JingJing's hips rolled.
 
@@ -3200,7 +3200,7 @@ JingJing shook her head. Jan's hand muffled her, but the sounds were still there
 
 "Daddy—" Against Jan's hand, barely intelligible. "*Daddy*—"
 
-Jan fucked her against the door. Fast, deep, the pace set by the clock and the danger and the fact that Jan was already close, had been close since the moment the handle turned and her body had responded not with fear but with adrenaline-spiked arousal, the exhibition kink she'd never named but had always carried.
+Jan fucked her against the door. Fast, deep, the pace set by the clock and the fact that Jan was already close, had been close since the moment the handle turned and her body had responded not with fear but with adrenaline-spiked arousal, the exhibition kink she'd never named but had always carried.
 
 JingJing came first. Hard, biting Jan's fingers, her body clamping down in waves that Jan could feel like a fist, rhythmic and tight and pulling Jan with her. Jan buried herself deep and came with her jaw locked, silent, the orgasm tearing through her while she held JingJing against the door and felt the wood vibrate under JingJing's palms.
 
@@ -3888,7 +3888,7 @@ In the frame: Jan and JingJing, visible through the open door of the costume dep
 
 Three seconds. That was all. Jan's fingers on the fabric, smoothing the line, tucking a fold that had come loose. JingJing standing still, letting her. Neither of them speaking. Neither of them performing. Neither of them aware of the camera.
 
-The gesture was domestic. Not professional. Not the adjustment of a co-worker's wardrobe, which would have been efficient, impersonal, functional. This was the gesture of someone who dressed this person every day, whose hands knew the collar the way they knew the buttons and the zippers and the places where fabric bunched. It was intimate in the way that only invisible intimacy could be: the intimacy of routine, of ownership so complete it had become unconscious.
+The gesture was domestic. Not professional. Not the adjustment of a co-worker's wardrobe, which would have been efficient, impersonal, functional. This was the gesture of someone who dressed this person every day, whose hands knew the collar the way they knew every seam and fold. It was intimate in the way that only invisible intimacy could be: the intimacy of routine, of ownership so complete it had become unconscious.
 
 It was three seconds. It was everything.
 
@@ -4924,9 +4924,9 @@ The wind moved JingJing's hair. The city lights played across her skin. Jan held
 
 "Let them look up. Let them see us. I don't care. I have never cared. The only thing I have ever cared about is the sound you're making right now and I want the whole city to hear it."
 
-JingJing came with a scream. Not a word, not a name. A sound that belonged to the night and the height and the recklessness of two people who could not stop, who would never stop, who were going to stand in a garden in thirty-four days and say out loud what they'd been doing in the dark.
+JingJing came with a scream. Not a word, not a name. A sound that belonged nowhere but here — eight stories up, reckless. Two people who could not stop, who would never stop, who were going to stand in a garden in thirty-four days and say out loud what they'd been doing in the dark.
 
-Jan followed. Deep, shuddering, her face in JingJing's neck, her arms locked around JingJing's body, holding her against the railing and the sky and the city that didn't know their names.
+Jan followed. Deep, shuddering, her face in JingJing's neck, her arms locked around JingJing's body, holding her against the railing, eight stories above a city that didn't know their names.
 
 They stood there. Breathing. The wind cooling their skin. The city humming below.
 
@@ -5138,7 +5138,7 @@ She pushed in. Slow, thick, the slight leftward curve finding the angle that gra
 
 JingJing watched. She watched Jan fuck her in the mirror the way you watch a film you're also starring in — the dissonance of seeing yourself from outside while feeling everything from inside. Her breasts pressed against the glass. Her nipples dragged against the cool surface each time Jan's thrust pushed her forward. The mirror fogged where her breath hit it and she wiped it with her palm because she couldn't stop looking.
 
-"You see it?" Jan's hips were steady, relentless, the rhythm of someone who had calibrated this tempo to the room and the acoustics and the window of time they had. "You see what you look like when I'm inside you?"
+"You see it?" Jan's hips were steady, relentless, the rhythm of someone who had calibrated this tempo to the acoustics and the narrow window of time they had. "You see what you look like when I'm inside you?"
 
 "I see — *fuck* — I see —"
 
@@ -5166,7 +5166,7 @@ JingJing watched. She watched her own orgasm build in the mirror — the flush s
 
 Not a restrained sound. Not the muffled version she'd trained herself to produce in hotel rooms and dressing rooms and against doors with people outside. A scream. The acoustics of the small room amplified it, bounced it off the walls and the mirror and the garment racks full of vintage fabric that rattled on their hangers.
 
-Jan came inside her with a groan that she buried in JingJing's shoulder, her hips stuttering, her arm still holding JingJing's leg up, and JingJing felt Jan pulse inside her — the warmth, the fullness, the particular throb that meant Jan was coming hard, coming the way she came when the risk was highest and the hiding was least.
+Jan came inside her with a groan that she buried in JingJing's shoulder, her hips stuttering, her arm still holding JingJing's leg up, and JingJing felt Jan pulse inside her — the deep throb that meant Jan was coming hard, coming the way she came when the risk was highest and the hiding was least.
 
 Jan lowered JingJing's leg carefully. Held her steady. JingJing's knees were not cooperating with the concept of standing. She braced herself against the mirror, palms flat on the glass, and the glass was warm now where their bodies had heated it.
 
@@ -5284,7 +5284,7 @@ Fah stared at her. Then at Jan. Then at the ceiling, the gesture of someone appe
 
 "I'm going up there. I'm going to clean whatever needs cleaning. I'm going to move the mirror to the ground floor, to a room with WINDOWS, where you cannot — where nobody can —" She stopped. The clipboard pressed back against her chest. Shield position. "I love you both. I love you and I want your wedding to be beautiful and Noo-Noo is going to look perfect in the ring pillow harness. But I cannot keep you safe if you are actively working AGAINST me. I cannot. I'm one person with a clipboard and a group chat and I'm fighting Sirin on one side and the two of you on the other and I am LOSING."
 
-The word sat between them. *Losing*. Fah, who never lost. Fah, who always had the schedule and the folder and the solution. Fah, standing in a ground-floor hallway at 1:42 PM with shaking hands and a cracking voice, admitting that the people she loved most were the ones making it impossible to protect them.
+The word sat between them. *Losing*. Fah, who never lost. Fah, who always had the folder and the solution. Fah, standing in a ground-floor hallway at 1:42 PM with shaking hands and a cracking voice, admitting that the people she loved most were the ones making it impossible to protect them.
 
 "We'll be more careful," Jan said.
 
@@ -5562,7 +5562,7 @@ They sat on the couch. The cooking show played. Noo-Noo sat in Jan's lap, button
 
 "Are you scared?"
 
-Jan considered the question honestly. Tested it against the inventory of everything she felt — the debt, the awareness, the scope of what Sirin had assembled, the knowledge that a single journalist with a laptop and an eye for pattern had constructed a more complete picture of their relationship than Jan herself had ever consciously assembled.
+Jan considered the question honestly. Tested it against the weight of what Sirin had assembled — a journalist with a laptop and an eye for pattern who'd constructed a more complete picture of their relationship than Jan herself had ever consciously assembled.
 
 "No," Jan said.
 
@@ -5678,7 +5678,7 @@ Khun Dao's left eye twitched.
 
 "We're getting married. Thirty days from now. Twelve guests. Private ceremony. No press."
 
-Khun Dao stood up. Sat down. Stood up again. Walked to the window and looked out at Bangkok — the traffic, the skyline, the city where two women had just told her they were getting married on their own terms and her eighteen months of careful image management could either adapt or get out of the way.
+Khun Dao stood up. Sat down. Stood up again. Walked to the window and looked out at Bangkok — a city where two women had just told her they were getting married on their own terms and her eighteen months of careful image management could either adapt or get out of the way.
 
 "I need a drink," Khun Dao told the window.
 
@@ -5806,7 +5806,7 @@ Jan kissed her forehead. Her cheek. The corner of her mouth. "We might still hav
 
 "No. Not about this."
 
-JingJing slid down the wall until she was sitting on the hallway floor, legs stretched out, skirt still rucked, ring catching the light. Jan slid down next to her. They sat on the floor of their apartment in their meeting clothes with their backs against the wall they'd just had sex against and the reality of what they'd done — not the sex, the meeting, the defiance, the telling — settled over them like weather.
+JingJing slid down the wall until she was sitting on the hallway floor, legs stretched out, skirt still rucked, ring catching the light. Jan slid down next to her. They sat on the floor of their apartment in their meeting clothes with their backs against the wall they'd just had sex against and the reality of what they'd done — not the sex but the telling — settled over them like weather.
 
 "Do you think she'll actually protect us?" JingJing asked. "Khun Dao."
 
@@ -6212,7 +6212,7 @@ Jan's hand moved through JingJing's hair. The slow scalp massage that turned Jin
 
 "The consummation."
 
-The word landed with the weight of the day — the vows, the kiss, the garden set that was a mirror of the real garden, the twenty-two stone steps she'd walk again in twenty-six days without cameras.
+The word landed with the weight of the whole day — every rehearsed vow that had felt real, every stone step she'd walk again in twenty-six days without cameras.
 
 "Come here," Jan said.
 
@@ -6244,7 +6244,7 @@ Jan freed herself from her shorts. JingJing felt the cock against her thigh — 
 
 "Slow," JingJing said. "Tonight I want it slow."
 
-Jan pushed in. Inch by inch. The long slide that let JingJing feel everything — the stretch, the fill, the deep ache that started at her center and radiated outward. The slow entry they rarely used, because most of the time the urgency was too much, but tonight the urgency had been replaced by something else. Anticipation. The trembling edge of something about to happen.
+Jan pushed in. Inch by inch. The long slide that let JingJing feel everything — the deep ache that started at her center and radiated outward. The slow entry they rarely used, because most of the time the urgency was too much, but tonight the urgency had been replaced by something else. Anticipation. The trembling edge of something about to happen.
 
 "Oh — *Daddy* —"
 
