@@ -4705,3 +4705,289 @@ JingJing slept. Jan held her. In the morning, the rabbit would go back in the ba
 Thirty-five days.
 
 ---
+
+## Chapter 15: The Photo
+
+Sirin found the image on a Wednesday night.
+
+She'd been scrolling through @janjing_archive, a fan account with 47K followers that catalogued every known public sighting of Jan and JingJing since the first press tour. Meticulous work — every photo tagged by date, location, event. Most were professional: press appearances, fan meets, airport sightings.
+
+One photo was different.
+
+Chiang Mai. July. Caption: *"spotted at _____ hotel? can't confirm but the HEIGHT DIFFERENCE is giving janjing 😭😭😭"* The image was blurry, shot from across the street at night, zoomed past clarity. Two figures on a second-floor balcony. One taller, standing behind the shorter one. The taller figure's arms appeared to be around the shorter one's waist. Their heads were close. The silhouette of two people who had forgotten that balconies were visible from the street.
+
+You couldn't identify them definitively. The resolution was too poor, the angle too steep. You could see the height difference. You could see the posture. You could see what looked like the taller figure's mouth against the shorter one's neck.
+
+It could be anyone.
+
+Sirin cross-referenced the date with the production schedule. The Chiang Mai location shoot: July 14-22. Adjacent rooms. Double breakfast orders. Instagram posts within minutes of each other, every morning.
+
+It wasn't anyone.
+
+---
+
+She brought it up on Thursday. Casually. Over coffee in the kitchenette, during the break between morning and afternoon shoots.
+
+Jan was pouring hot water over a teabag. JingJing was at the table eating mango sticky rice, scrolling her phone.
+
+"Jan," Sirin said. "I wanted to ask about the Chiang Mai trip. The production shoot in July."
+
+"Mm." Jan bobbed the teabag. "Two days. We shot the reconciliation scene at the old city wall."
+
+"Beautiful location. Did you enjoy it?"
+
+"It was good. Long days." Jan sipped her tea. Open, relaxed. The face of someone answering questions about a work trip that had no particular significance.
+
+Jan did not think about the balcony. In Jan's memory, the balcony was filed under *the night JingJing rode me outside and came so hard she bit my shoulder*. The geography — the height, the street below, the fact that the second floor was not private — had been edited out by a brain that prioritized sensation over spatial awareness.
+
+"I came across something interesting," Sirin said. She pulled out her phone. Showed Jan the image.
+
+Jan squinted. "What am I looking at?"
+
+"A fan account posted this. From outside a hotel in Chiang Mai. Two people on a balcony."
+
+Jan studied the photo with genuine confusion. "I can't see anything. It's too dark."
+
+"The fan account thinks it might be you and JingJing."
+
+Jan tilted the phone. "Could be anyone."
+
+"No," Sirin agreed. "You can't see faces."
+
+Across the kitchenette, JingJing had stopped eating. Her spoon was in the sticky rice. She was looking at Jan's back with an expression that was precisely nothing. JingJing's nothing-face was her best face.
+
+But her left hand had gone to her chest. To the chain.
+
+Sirin's eyes tracked the movement. Half a second. Catalogued.
+
+"Anyway," Sirin said. "Just curious. The body language in the photo is—" She chose her word. "—warm."
+
+"Chiang Mai was warm," Jan said. "Thirty-eight degrees."
+
+Sirin took her coffee and left. Jan went back to her tea. JingJing went back to her sticky rice.
+
+Neither of them mentioned it again.
+
+---
+
+Lin mentioned it.
+
+Lin had not been in the kitchenette. Lin had been in her office, reviewing Sirin's footage request logs — daily now, the ritual she'd added to her morning routine alongside coffee and the Xanax she was considering asking her doctor to double. She was looking for patterns in what Sirin was pulling: which dates, which B-roll folders, which camera angles she was requesting from the archive.
+
+Then Fah appeared in her doorway.
+
+"Sirin showed Jan a photo."
+
+Lin looked up. "What photo?"
+
+"Chiang Mai. A balcony. Two people. Blurry."
+
+The blood left Lin's face in a way that was visible. Not a gradual drain — a departure. The color left, the temperature left, and what remained was Lin's skeleton wearing Lin's skin, sitting in Lin's chair, looking at Fah with the expression of someone who had just heard a sound she'd been dreading for months.
+
+"The balcony," Lin said.
+
+"You know about the balcony?"
+
+"I know about the balcony." Lin's voice was flat. "I was in the lobby when they — I was in the lobby. I heard — I went outside. I looked up. I saw—"
+
+"You SAW—?"
+
+"I saw *enough*, Fah. I saw enough to understand that the second floor of the hotel was not, in any architectural sense, private, and that my two leads were on it doing things that were visible to anyone with a sightline."
+
+Fah sat down. Slowly. The clipboard on her lap.
+
+"How blurry is the photo?" Lin asked.
+
+"Blurry. You can see the height difference. You can see the posture. You can't see faces."
+
+"Can Sirin identify them?"
+
+"I don't know. She showed it to Jan. Jan didn't react. Jan looked at it like it was a photo of strangers."
+
+"Jan doesn't remember the balcony was exposed. Jan's brain edited the geography out because Jan's brain was occupied by JingJing. Jan could not tell you how many floors the hotel had or what direction the street faced because Jan's orientation system is keyed entirely to the location of one specific person and everything else is noise."
+
+Lin stood. Walked to the window. Looked at the parking lot, which was safe and boring and contained no balconies.
+
+"Physical evidence," Lin said. "We've been defending against Sirin's observations. Against her documentary footage. Against her inference pattern. Now there's a photograph. Taken by a fan. On the internet. Blurry and deniable, but on the internet."
+
+"The fan account has forty-seven thousand followers."
+
+"Forty-seven thousand followers who are going to look at that photo and see what Sirin sees."
+
+"What does Sirin see?"
+
+"Sirin sees two women on a balcony in a posture that is not professional. She sees the same thing she's been seeing for five weeks. The Instagram timestamps. The hotel bookings. The crew behavior. The collar footage. And now a photograph. She doesn't need a smoking gun, Fah. She has a mosaic. She has fifty pieces of evidence that are individually deniable and collectively undeniable, and the photo is piece fifty-one."
+
+Lin's phone buzzed. The group chat. She looked at it.
+
+**Jan:** Sirin showed me a blurry photo from Chiang Mai. Two people on a balcony. Can't see faces. Told her it could be anyone.
+
+**Lin:** Did she believe you?
+
+**Jan:** She didn't say she didn't.
+
+**Lin:** That means she didn't.
+
+**Fah:** What was your face doing when she showed you?
+
+**Jan:** My normal face.
+
+**Fah:** Your "normal face" is the face of someone who is in love with someone and can't hide it. Your normal face IS the problem.
+
+**Jan:** My face is FINE.
+
+**Lin:** Your face has not been fine since 2025.
+
+Lin put the phone down. Sat back in her chair. Looked at the ceiling.
+
+Thirty-four days. Thirty-four days of maintaining a perimeter around two people who kept blowing holes in it. Thirty-four days of pretending that a blurry photo was deniable and a collar adjustment was ambiguous and sixty-one paired Instagram posts were coincidence.
+
+She could do thirty-four days. She had no choice. So: yes.
+
+---
+
+That night, Jan stood on the balcony of their apartment.
+
+Not the Chiang Mai balcony. Their balcony, the one that overlooked the Ekkamai skyline, the one where they drank coffee on Sunday mornings and where Jan sometimes stood alone at night while JingJing showered, looking at the city and thinking about the version of her life that was visible to it and the version that wasn't.
+
+She was thinking about the photo.
+
+Not with fear. Not with Lin's bone-deep dread. She was thinking about the balcony in Chiang Mai: the night air, the sound of the street below, JingJing on her lap with her head thrown back and the city's lights on her skin. She was thinking about the fact that someone had seen them. Someone had stood on the street and looked up and seen two figures in a posture that was unmistakable and had taken a photo and posted it for forty-seven thousand people.
+
+And the feeling Jan had about this — the feeling she could not tell Lin, could not explain to Fah, could not admit to anyone except herself on a balcony at 11 PM — was not fear.
+
+"You're hard."
+
+Jan turned. JingJing stood in the balcony doorway, pajama shorts and Jan's Sizzy shirt, bare feet, hair down.
+
+"I can see it from here," JingJing said. "Through the pants. You're standing on the balcony thinking about the photo and you're hard."
+
+"I'm not thinking about the photo."
+
+"Liar." JingJing stepped onto the balcony. The night air moved her hair. The city hummed below — cars, voices, the ambient murmur of a million people not looking up. "You're thinking about the Chiang Mai balcony. Someone saw us. Someone took a picture. And instead of being scared, you're standing here with a hard-on."
+
+Jan said nothing. Her jaw worked.
+
+"P'Jan." JingJing's voice was low. Not the brat. Not the provocation. Something more direct. "The photo turned you on."
+
+"It's — it's complicated."
+
+"It's not complicated. Someone watched us fuck on a balcony and you liked it. That's the thing, right? That's the exhibition thing. You don't want to hide. You *want* to be seen. You want someone to look up and see us and know."
+
+Jan's hands were on the railing. White-knuckled. The same railing she'd gripped in Chiang Mai while JingJing rode her. Different city, different railing, same feeling: the vertiginous thrill of height and exposure and the possibility of being seen by anyone who bothered to look up.
+
+JingJing stepped closer. Put her hand on the front of Jan's pants. Felt the length of her, straining against the fabric.
+
+"Then let's do it here," JingJing said.
+
+"We're—"
+
+"On our balcony. On the eighth floor. Nobody can see us."
+
+"You just said—"
+
+"Nobody can see us and that's the point. This is the version where nobody gets hurt. No blurry fan photos. No journalist outside the door. Just us and the city and the fact that you want to fuck me outside."
+
+Jan turned from the railing. Looked at JingJing. At the Sizzy shirt, the bare legs, the expression that was daring her and inviting her simultaneously.
+
+"I want to fuck you against this railing," Jan said. Her voice was stripped down. No Daddy filter. Raw.
+
+"Then do it."
+
+Jan kissed her. Hard, immediate, the kiss that was more collision than meeting, and JingJing's back hit the railing and JingJing gasped — from the impact and from the height behind her, the open air, the eight-story drop that existed as a physical fact even if neither of them acknowledged it.
+
+Jan pushed JingJing's shorts down. JingJing stepped out of them. No underwear. Jan freed herself from her pants, the cock springing forward, and JingJing reached for it, guided it, and Jan lifted her.
+
+JingJing's legs wrapped around Jan's waist. Her back pressed against the railing. Below them: the city, the street, the lights of a thousand apartments and the headlights of a thousand cars and the lives of a million people who were not looking up.
+
+"Inside me," JingJing said. "Now."
+
+Jan pushed in. JingJing's head fell back over the railing, her hair hanging in the open air, and the sound she made was the sound of the Chiang Mai balcony — the sound that had carried into the night and been heard by someone on the street and been encoded in a blurry photo that now existed on the internet. The same sound. The same abandon.
+
+"Louder," Jan said.
+
+"What?"
+
+"Be louder. Nobody's listening."
+
+JingJing laughed. Then Jan thrust deep and the laugh broke into a moan that echoed off the building across the street and Jan thrust again and the moan became a cry and JingJing was loud, as loud as she wanted to be, louder than Chiang Mai, louder than the dressing room, louder than any of the hidden, muffled, swallowed sounds she'd been making for months in rooms with thin walls and journalists outside.
+
+"*Daddy* — oh *fuck* — don't stop, don't stop —"
+
+The wind moved JingJing's hair. The city lights played across her skin. Jan held her against the railing and fucked her with the steady, relentless rhythm of someone reclaiming a memory: not erasing the Chiang Mai balcony but rewriting it, turning the thing that had scared Lin into the thing that was theirs, theirs, only theirs.
+
+"Someone could look up," JingJing gasped, and Jan knew she was testing, pushing, finding the edge of the exhibition.
+
+"Let them."
+
+"P'Jan—"
+
+"Let them look up. Let them see us. I don't care. I have never cared. The only thing I have ever cared about is the sound you're making right now and I want the whole city to hear it."
+
+JingJing came with a scream. Not a word, not a name. A sound that belonged to the night and the height and the recklessness of two people who could not stop, who would never stop, who were going to stand in a garden in thirty-four days and say out loud what they'd been doing in the dark.
+
+Jan followed. Deep, shuddering, her face in JingJing's neck, her arms locked around JingJing's body, holding her against the railing and the sky and the city that didn't know their names.
+
+They stood there. Breathing. The wind cooling their skin. The city humming below.
+
+"I understand now," JingJing said quietly. "The exhibition thing. It's not about being seen. It's about not hiding."
+
+Jan was still inside her. Still holding her. Still pressed against the railing with the city at their feet.
+
+"Yeah," Jan said.
+
+"You don't want someone to watch. You want to stop pretending there's nothing to watch."
+
+"Yeah."
+
+"Thirty-four days."
+
+"Thirty-four days."
+
+JingJing unwrapped her legs. Jan set her down carefully. They gathered JingJing's shorts from the balcony floor. Went inside. Closed the sliding door. The city continued without them.
+
+In the bedroom, JingJing curled against Jan and felt the ring on its chain and the warmth of Jan's skin and the residual trembling in her own thighs.
+
+"Lin would die," JingJing murmured.
+
+"Lin would die."
+
+"We should probably not tell Lin about the balcony."
+
+"We should definitely not tell Lin about either balcony."
+
+"How many balconies are we going to have?"
+
+"As many as you want. After the wedding. Every balcony in the world."
+
+"I want a balcony in Japan."
+
+"We'll have one."
+
+"With a hot spring."
+
+"The hot springs aren't on balconies."
+
+"They should be. I want a hot spring on a balcony with you inside me and nobody telling us to be quiet."
+
+Jan kissed the top of her head. "Honeymoon."
+
+"Honeymoon." JingJing smiled against Jan's chest. "I love you."
+
+"I love you."
+
+"Goodnight, Daddy."
+
+"Goodnight, baby."
+
+Outside, on the balcony, the wind moved through the space where they'd stood. The railing was cold. The city was indifferent. Somewhere, on a fan account with forty-seven thousand followers, a blurry photo existed — two figures, a balcony, a posture that was not professional.
+
+In her workspace in the production office, Sirin was adding a note to her file:
+
+*Chiang Mai photo shown to PS. No reaction. Either she genuinely doesn't know the photo exists and doesn't connect it to herself, or her baseline for what constitutes alarming has been recalibrated by prolonged exposure to risk. The second possibility concerns me more. A person who doesn't flinch at evidence of exposure is either innocent or has stopped caring about being exposed. Based on the accumulated pattern, I believe it is the latter.*
+
+*PY's response: hand to chest, to the chain, to the object she holds during moments of emotional significance. This is the 14th time I have observed this gesture. Whatever is on that chain is important enough to be a reflex.*
+
+Sirin closed her laptop. Sat with the weight of fifty-one data points and the growing, sharpening question that had become the center of her professional life: what kind of story was she going to write?
+
+---
