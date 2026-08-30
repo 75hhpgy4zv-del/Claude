@@ -2401,3 +2401,205 @@ Sirin closed her notebook. She didn't know the story yet. But she could feel its
 She ordered a coffee. She had time.
 
 ---
+
+## Chapter 8: Sirin Notices
+
+Three weeks in, Sirin stopped watching Jan and JingJing.
+
+Not because they were uninteresting. They were endlessly interesting — the way they occupied the same physical space like two instruments tuned to the same frequency, the way Jan's hand found JingJing's lower back as naturally as breathing, the way JingJing's entire body oriented toward Jan the way sunflowers orient toward light. They were interesting the way a phenomenon is interesting: captivating, suggestive, and — after three weeks of careful observation — conclusively uninformative.
+
+Jan and JingJing did not behave like people hiding something. They behaved like two women who had exceptional chemistry and a warm professional relationship and the comfortable physical intimacy that GL co-leads often developed. They touched constantly, but GL pairs did. They arrived together, but they'd been open about carpooling since the original series. They looked at each other with an intensity that made the air between them feel thin, but that was either acting or it was not, and Sirin could not determine which from observation alone.
+
+If she'd been watching only them, she might have filed the story under *compelling chemistry, plausibly professional* and moved on.
+
+She was not watching only them.
+
+She was watching the sixty people around them. And the sixty people around them were behaving like a Secret Service detail protecting a head of state who refused to wear a bulletproof vest.
+
+---
+
+Sirin kept a document. Not a physical board — she wasn't a television detective. A running file on her laptop, entries dated and cross-referenced, the working record of someone who understood that the best stories were not discovered but assembled, data point by data point, until the pattern made itself visible.
+
+For the first two weeks, the entries had been general. Impressions. Character sketches of crew members. Production logistics. Standard material for the embedded access documentary she was contracted to produce.
+
+In week three, the entries changed.
+
+*Sept 15: Fah Wichitra appears at the talent dressing room door three times in one hour. Each time, she knocks, waits for a verbal response, and enters only after receiving one. She does not do this for any other talent. She does this only when both PS and PY are in the same dressing room. Which is most of the time, because they share one — voluntarily, despite having separate rooms assigned.*
+
+*Sept 17: During the vow scene table read, PS improvises a line. PY's eyes fill. Normal — actors respond to good work. What is not normal: Lin Prajaktra, at the end of the table, grips her pen so hard the cap cracks. Lin is not reacting to the performance. Lin is reacting to something ABOUT the performance. The room changes temperature. The camera operators exchange a look. Fah's clipboard goes up in front of her face.*
+
+*Sept 19: I approach the craft services table while PS and PY are eating. Before I reach them, three crew members independently redirect my path. One asks about my credentials (already verified, three weeks ago). One offers to show me the light rig (I've seen it). One physically steps into the space between me and the table with a tray of coffee she is not delivering to anyone. The coordination is unconscious. They don't look at each other before they move. They have REHEARSED this, or they have done it so many times it no longer requires coordination.*
+
+*Sept 22: I ask Lin about PS and PY's off-set dynamic during a production meeting. Lin excuses herself — "stomach pain." She returns twelve minutes later. She has not been in the bathroom. She has been in her car. I checked.*
+
+Sirin reread the entries. Scrolled back through three weeks of observation. Sat with the growing, undeniable recognition that had been forming since the first day, when Jan said "I'm Ployshompoo" and smiled the sunrise smile and JingJing said "she's like this with everyone" and Lin flinched so hard she nearly dropped her clipboard.
+
+The crew was performing.
+
+Not badly. Brilliantly, in fact. Each person executing their role with the committed professionalism of actors who had been in the same play for months: Fah the gatekeeper, Lin the deflector, Prae the dignified shield, the camera operators the invisible editors, even the PAs and grips and craft services staff, all of them moving in the same unconscious choreography, all of them protecting the same thing.
+
+The thing they were protecting was not a secret between Jan and JingJing. Jan and JingJing were the least secretive people Sirin had ever observed. They were transparent to the point of recklessness, intimate to the point of indiscretion, so naturally, completely themselves that the idea of them *hiding* anything was almost comical.
+
+The crew was not protecting Jan and JingJing's secret.
+
+The crew was protecting Jan and JingJing *from* their secret.
+
+---
+
+On Thursday, Sirin opened her laptop in the small workspace Fah had assigned her — east wing, far from the dressing rooms, far from the hallway between Studio A and the costume department, far from everywhere Jan and JingJing tended to be alone.
+
+The workspace placement was itself a data point. She'd noted it on day one.
+
+She opened Instagram. Navigated to @janhae and @jingjingyu36.
+
+This was the investigative work that separated a journalist from a gossip columnist: the boring, tedious, methodical work that nobody saw and that produced the foundations nobody questioned. Sirin had been doing it for a decade. She did it the way a carpenter sanded wood — patiently, precisely, until the surface was smooth enough to show the grain beneath.
+
+She pulled Jan's posting history from the last three months. Noted the timestamps. Did the same for JingJing.
+
+Then she put them side by side.
+
+The pattern was immediate. Not ambiguous. Not suggestive. Mathematically obvious.
+
+In the last ninety days, Jan and JingJing had posted within a thirty-minute window of each other sixty-one times. Not similar content — they rarely posted the same subject. Jan posted a gym selfie at 7:12 AM; JingJing posted a coffee photo at 7:34 AM. Jan posted a sunset from a restaurant rooftop at 6:47 PM; JingJing posted a book she was reading at 7:02 PM. Jan posted a mirror shot in a fitting room at 2:15 PM; JingJing posted a street food stall at 2:28 PM.
+
+Different locations. Different subjects. Same window. Every time.
+
+The analysis took Sirin forty minutes. When she finished, she sat back and looked at the spreadsheet she'd built. Sixty-one paired posts. Average gap: eighteen minutes. Largest gap: twenty-nine minutes. Smallest gap: three minutes.
+
+People who lived separately did not post within eighteen minutes of each other, sixty-one times out of ninety days, by coincidence. People who lived separately had different rhythms, different downtime windows, different moments of boredom when they reached for their phones. The only way two people posted with this consistency was if they were in the same room. Eating the same meal. Watching the same sunset. Waking up at the same time because they'd gone to sleep at the same time because they'd gone to sleep in the same bed.
+
+Sirin saved the spreadsheet. Minimized the window. Opened the production's hotel booking records from the Chiang Mai location shoot — the records she'd been given access to as part of her documentary logistics planning, because nobody had thought to restrict her access to *that*.
+
+Jan's room: 407. JingJing's room: 409. Adjacent. Connected by a shared balcony, according to the hotel's floor plan, which was available on the hotel's website.
+
+Nobody else on the production had adjacent rooms. The rooms had been booked by Lin.
+
+Sirin made a note.
+
+She pulled up the catering logs from the Chiang Mai shoot — available through the production office's shared drive, filed under "Location Logistics," accessible to anyone with documentary crew credentials.
+
+Room 407, Jan's room: breakfast delivery every morning. Two servings. Every morning.
+
+Room 409, JingJing's room: no breakfast deliveries. Not one. For the entire nine-day shoot.
+
+Either JingJing did not eat breakfast — unlikely for someone who posted food photos at 7 AM with the religious consistency of a person who woke up hungry — or JingJing ate breakfast in Room 407. Every morning. For nine days.
+
+Sirin closed the file. Sat back.
+
+A pattern was not proof. Sixty-one paired Instagram posts were not proof. Adjacent hotel rooms were not proof. Double breakfast orders were not proof. A crew behaving like a human shield was not proof. Lin's stress responses and Fah's doorway appearances and Prae's careful deflections were not proof.
+
+But patterns didn't need to be proof. Patterns were the architecture of truth. You didn't prove a secret by catching people in it. You proved a secret by mapping the shape of the space around it — the negative space, the avoidances, the over-corrections, the too-careful normalcy. The secret was defined by what it displaced.
+
+And the space around Jan and JingJing was shaped like a relationship.
+
+---
+
+On Friday, Sirin had lunch with Prae.
+
+This was their standing arrangement — twice a week, production office, the table by the window that overlooked the parking lot. The function was bilateral: Prae monitored what Sirin knew, Sirin observed how Prae monitored. Both women understood the transaction. Neither acknowledged it. The mutual respect was genuine, which made the chess game more interesting, not less.
+
+Prae had pad see ew. Sirin had green curry. September sun baked the parking lot outside. The air conditioning hummed.
+
+"The production is going well," Sirin said. "The vow rehearsals are extraordinary."
+
+"They are."
+
+"Jan and JingJing have something unusual. I've covered seven GL productions. I've never seen chemistry that doesn't diminish when the camera stops. Most pairs are warm off-camera, friendly, sometimes physically affectionate. But the frequency changes. There's a drop between performance mode and real mode. With these two, there's no drop."
+
+Prae ate a noodle. Took her time chewing.
+
+"They're talented," she said.
+
+"Extremely."
+
+"And close. Personally. That's not unusual for co-leads who've spent a year together."
+
+"No. It's not."
+
+Sirin waited. The silence was a tool. She had learned, over a decade, that the most revealing thing you could do in an interview was nothing. People filled silence. They filled it with whatever was pressing hardest on the inside of their mouths, the thing they most wanted to say or most wanted not to say, and both were equally useful.
+
+Prae did not fill the silence. Prae ate pad see ew.
+
+Good. That was informative too.
+
+"Khun Prae. I want to ask you something directly."
+
+Prae's chopsticks paused. Then continued. "You can ask."
+
+"The crew — not Jan and JingJing, the people around them. They move differently when I'm near the leads. There's a coordination to it. A pattern. I've seen it in other contexts — the way a political press corps manages access to a candidate, the way a family orbits a member who's in crisis. It's protective choreography. Unconscious, mostly. Very effective. And in this production, it's aimed specifically at keeping distance between me and any unmonitored interaction with Jan and JingJing."
+
+Prae set down her chopsticks.
+
+"My crew is professional," she said. "They care about the production. They care about the talent."
+
+"I know they do. The caring is obvious. It's also what caught my attention. Caring at this level, this coordinated, this consistent — it implies something worth caring about. Something beyond the standard professional investment."
+
+Prae looked at her. The director's gaze. The one that had spent twenty years reading performances.
+
+"What are you writing, Sirin? Not the documentary. The piece."
+
+Sirin recognized the shift. Prae was not deflecting now. Prae was assessing.
+
+"I'm writing about the space between fiction and reality in GL production," Sirin said. "What happens when a performance resonates at a frequency that feels like truth. What it means when the line between acting and being blurs until the people living it can't distinguish them. I'm not writing an exposé. I'm not writing gossip."
+
+"What are you writing?"
+
+"A love letter. To the phenomenon. To the work. To what your production is accomplishing."
+
+Prae studied her for a long time. The parking lot baked. The air conditioning hummed. A motorcycle courier arrived at the front desk and left.
+
+"I believe you," Prae said. "I think you mean that."
+
+"I do."
+
+"Good." Prae stood. Collected her container. At the door, she stopped.
+
+"Sirin."
+
+"Yes?"
+
+"If you find the line between fiction and reality, I'd like to know where it is. I've been directing this show for a year. I haven't found it."
+
+The door closed.
+
+Sirin sat with her curry and her notebook and the certainty — not suspicion, not inference, certainty — that Prae had just told her everything without saying a word. *I've been directing this show for a year. I haven't found the line.* That was not a joke. That was not deflection. That was a director saying: the fiction and the reality are the same thing, and I know it, and I'm protecting it, and now you know I know.
+
+Sirin opened her laptop. Started a new entry.
+
+*Sept 29: Prae asks what I'm writing. Not casual — strategic. She is mapping my intentions the way I'm mapping her production's behavior. She is deciding whether I am safe. She has already decided there is something to protect. The question — "What are you writing?" — asked twice, with increasing precision, tells me: Prae knows. She has known for a long time. She has made a choice about it. The choice is protection. She is not uncomfortable with what she knows. She is comfortable with it, perhaps proud of it, and afraid only that someone outside the circle will not handle it with the same care she has.*
+
+*Additional: Prae's closing line — "If you find the line between fiction and reality." This is a director who can no longer distinguish between her characters' love story and her leads' love story. She has stopped trying. She does not consider this a problem. She considers it a gift.*
+
+*The crew's protective choreography now has a name: Prae designed it. Prae is the choreographer. She has trained her sixty people to defend something she has decided is worth defending, and they have taken up the defense willingly, because they agree.*
+
+*What I don't know yet: whether PS and PY know they are being defended. My current assessment: they do not. They are in something so deep they cannot see its edges. They walk through a minefield and think it's a garden.*
+
+*The crew is clearing the mines before they step on them.*
+
+*I am not a mine. But they don't know that yet. And I haven't decided if I should tell them.*
+
+Sirin closed her laptop. She didn't need more data. She had enough to know the shape of the story. She did not yet have enough to know what kind of story she wanted to tell.
+
+That was the question that mattered. Not *what is happening between Jan and JingJing* — she knew the answer to that, knew it with the quiet certainty of someone who had spent a career reading the distance between what people said and what they meant. The question was: *what do I do with what I know?*
+
+An exposé would write itself. The Instagram timestamps alone were a compelling infographic. The hotel bookings were supporting evidence. The crew behavior was texture. The Prae conversation was the emotional hook. She could pitch it tomorrow, and her editor would greenlight it before lunch, and the piece would trend on LINE for a week, and two women's private life would become public property.
+
+Or she could wait. Watch. Let the story become what it wanted to become, not what the industry wanted it to become. Let Jan and JingJing arrive at their own truth on their own schedule, and be there — professionally, respectfully, without ambush — when they were ready.
+
+The first option was journalism. The second option was also journalism, just slower, and more expensive, and harder to justify to an editor who measured value in clicks.
+
+Sirin ordered another coffee.
+
+She had decided nothing. She was not ready to decide. But she had opened a new folder on her laptop — separate from the documentary files, separate from the observation log. She named it simply: *ลัลล์ไม่ชอบไวน์ : the space between.*
+
+The space between fiction and reality. Between performance and truth. Between what the audience saw and what was actually happening. Between two women who could not stop touching each other and a crew of sixty people who could not stop pretending not to notice.
+
+The space between was where the story lived.
+
+Sirin would find it. She always did. The question was whether she would report it or protect it, and that was a question she had never faced before, because she had never covered a story where the subjects were this reckless and this sincere and this completely, disastrously in love.
+
+She drank her coffee. The production hummed around her. Somewhere in the building, Jan was running lines, and JingJing was beside her, and Lin was standing in a hallway making sure nobody walked down it at the wrong moment, and Fah was checking a clipboard that contained the names and locations of everyone on set, and Prae was in her office thinking about the conversation she'd just had, and the wheels of the production turned, and the secret held.
+
+For now.
+
+---
