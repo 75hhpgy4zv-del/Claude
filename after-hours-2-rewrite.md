@@ -5599,3 +5599,255 @@ Outside, the city continued. Sirin was in her apartment, staring at a laptop scr
 Thirty-two days.
 
 ---
+
+## Chapter 18: The Network
+
+Khun Dao spotted the ring on a Tuesday afternoon.
+
+Not the ring itself. The ghost of it. JingJing had done a press photo that morning — promotional still for *Married to My Enemy*, standard stuff, smile and hold against the purple-and-rose-gold backdrop. The photographer shot forty frames. JingJing was flawless in thirty-nine. In the fortieth, she'd turned to laugh at something Jan said off-camera, and the motion pulled her blouse taut across her chest, and the outline of the ring on the chain pressed through the fabric for exactly one frame.
+
+The photographer didn't see it. The lighting crew didn't see it. Jan, who was too busy making JingJing laugh to notice anything except the laugh, didn't see it.
+
+Khun Dao saw it. Khun Dao saw it because seeing was her profession. She reviewed every press image before release the way a demolitions expert reviewed wiring diagrams: slowly, deliberately, looking for the one thing that would blow up if it reached the public.
+
+She called them at 3 PM. "My office. Now."
+
+Khun Dao's office was on the fourteenth floor. Corner. Glass walls. A view of Bangkok that communicated something specific about the altitude from which decisions about other people's lives got made. The desk was clean. The woman behind it wore a geometric bob and an expression that changed only when the situation demanded it.
+
+The situation demanded.
+
+Jan and JingJing sat in the two chairs facing the desk. The chairs were close together — placed that way months ago by Khun Dao's assistant, who knew, who had always known, who had arranged the furniture accordingly and never been asked about it.
+
+Khun Dao turned her monitor around. The image filled the screen: JingJing, mid-laugh, blouse tight, the circular outline visible under the fabric like a secret pressing outward.
+
+"Tell me that's not what I think it is."
+
+JingJing's hand went to her chest. To the chain.
+
+"It's—"
+
+"It's an engagement ring," Jan said.
+
+Flat. No inflection. The voice of someone who had spent two days processing the weight of Sirin's evidence and had arrived at a clarity that looked, from the outside, like recklessness. She was done hiding from this particular audience.
+
+Khun Dao was quiet for four seconds. In Khun Dao's emotional vocabulary, four seconds of silence was a screaming breakdown.
+
+"How long?"
+
+"The engagement, five months. The relationship, over a year."
+
+"Over a year." Khun Dao looked at the ceiling, then at the desk, then at them. "I have spent eighteen months positioning you as the most compelling, most marketable GL pair in the industry. Eighteen months of Instagram strategy, press coordination, fan engagement. I have positioned you — carefully, expensively — as *available*. Do you understand what that word costs?"
+
+"We understand what it's worth," Jan said.
+
+"The *possibility* of you is worth more than the certainty. The possibility — the maybe, the fans imagining and hoping and projecting — that is the engine. That is what sells Thunder Dome tickets and sponsor packages and magazine covers. The certainty is a news cycle. Twenty-four hours of trending, a week of think pieces, and then you're a confirmed couple and the fantasy is over and the engine stalls."
+
+"Or," Jan said, "the certainty is the biggest story in Thai entertainment this year. Two women in a confirmed relationship. Not subtext. Not queerbait. Not fan service. Real. Engaged. Getting married. The first GL lead pair to go public while still producing content."
+
+"That's one scenario."
+
+"What's the other?"
+
+"Sponsors pull out. Conservative audience rejects it. The show gets reframed as a controversy. The documentary becomes an outing instead of a feature." Khun Dao's hands were flat on the desk. "Your careers become the story instead of your work."
+
+JingJing, who had been silent — which was unusual and should have been warning enough — spoke.
+
+"We're not asking permission."
+
+Khun Dao's geometric bob turned toward her.
+
+"We're informing you that we're engaged and that we intend to go public. The question isn't whether. It's when and how. And the when and how are ours."
+
+"The when and how are exactly what I—"
+
+"Not the network's. Ours. We will not let you time our announcement to maximize ratings. We will not let you turn our love into a marketing event. We will not let you schedule it for the Thursday before the fancon because it gives you a weekend news cycle."
+
+Khun Dao was quiet again. Longer. Six seconds.
+
+"Then what do you want?"
+
+"An Instagram post," Jan said. "Both accounts. Our words. Our timing. No press release. No coordinated strategy. Just the truth, when we're ready."
+
+"When will you be ready?"
+
+Jan and JingJing looked at each other. The look contained the garden and the mango tree and the jasmine and the stone path and Noo-Noo and the thirty days that separated them from it.
+
+"After the wedding," Jan said.
+
+Khun Dao's left eye twitched.
+
+"We're getting married. Thirty days from now. Twelve guests. Private ceremony. No press."
+
+Khun Dao stood up. Sat down. Stood up again. Walked to the window and looked out at Bangkok — the traffic, the skyline, the city where two women had just told her they were getting married on their own terms and her eighteen months of careful image management could either adapt or get out of the way.
+
+"I need a drink," Khun Dao told the window.
+
+"It's 3 PM," JingJing said.
+
+"It's 3 PM and my two leads are secretly engaged and getting married in a month and I'm finding out about it from a press photo." She turned around. The professional mask cracked, and underneath it was something human and brief and unexpected. "Are you happy?"
+
+The question surprised all three of them.
+
+"Yes," Jan said. "Very."
+
+"Is this — are you treated well?"
+
+JingJing looked at Jan. Jan looked at JingJing. The look that said: *under the marketing strategy and the geometric bob, she's asking if we're okay because she cares.*
+
+"She treats me like I'm the only person in the world," JingJing said.
+
+"She treats me like I deserve her," Jan said.
+
+Khun Dao sat back down. Pressed her palms on the desk. Breathed.
+
+"Here's what's going to happen. You're going to get married. You're going to go public on your terms. And I am going to spend the next thirty days building a contingency plan so that when this breaks, the network pivots from *possibility* to *certainty* without losing a single sponsor. Because I am very good at my job, and my job just became the most interesting job in this building."
+
+"Thank you, Khun Dao."
+
+"Don't thank me. Buy me a drink at the wrap party." She paused. "And JingJing. Take the ring off the chain. Wear it on your finger under the costume. The chain shifts under fabric — that's how I caught it. On your finger, under a glove or a long sleeve, nobody sees it."
+
+JingJing looked at her hand. At the chain under her blouse that had been visible enough, in one frame out of forty, to bring them here.
+
+"Thank you," JingJing said.
+
+"Now get out of my office. I have a month of contingency planning to do and I haven't had lunch."
+
+They left. Elevator. Ground floor. The building ground on around them — PAs with schedules, camera crews with equipment, the machine of production indifferent to the fact that two of its components had just told the machine's chief publicist that they were getting married and dared her to make it work.
+
+In the parking garage, JingJing unclasped the chain. Slid the ring off. Put it on her finger.
+
+Left hand. Ring finger. Where it belonged.
+
+She held her hand up in the car's interior light and looked at the ring on her finger and the diamond caught the afternoon sun through the windshield and threw tiny prisms across the dashboard.
+
+"I'll put it back on the chain for set," she said. "But right now I just want to wear it like a person who's getting married."
+
+Jan took her hand. Kissed the ring. Kissed the finger. Kissed the knuckle.
+
+"Thirty days."
+
+"Thirty days."
+
+Jan started the car. Pulled out of the garage. Drove.
+
+JingJing was quiet for the first five minutes. The quiet of someone processing the weight of a meeting in which she'd told a corporate executive that the timing of her love was not a negotiable asset. The adrenaline was draining. The defiance was metabolizing. And underneath it — underneath the PR strategy and the sponsor concerns and the Instagram timelines — was the white-hot core of what she actually felt, which was: *we told them. We told someone with power over our careers that we're getting married and we're not asking for permission and they couldn't stop us and they didn't try.*
+
+"Pull over," JingJing said.
+
+"We're on the expressway."
+
+"Then drive faster."
+
+"JingJing—"
+
+"I need you to take me home and fuck me against the wall."
+
+Jan's hands tightened on the wheel.
+
+"Against the wall," JingJing repeated. "In these clothes. Don't take them off. Don't ask me if I'm okay. Don't be gentle. I just told Khun Dao that the timing of our love isn't a marketing event and I need you to fuck me like we mean it."
+
+Jan drove faster.
+
+---
+
+They made it to the apartment in eleven minutes. Jan's keys hit the entry table and missed. JingJing was against the wall before the door finished closing — Jan's body pressing hers into the plaster, Jan's mouth on her neck, Jan's hands already pulling her skirt up.
+
+"Here," JingJing said. "Right here. Don't even—"
+
+Jan's belt was already undone. JingJing heard the buckle hit the floor, the zip, and then Jan's cock was against her thigh, hard, the full length of it pressing against her skin, and JingJing reached between them and pulled her underwear to the side because taking them off would require stepping back and stepping back was not an option.
+
+"Now," JingJing said.
+
+Jan pushed in. One thrust. JingJing's back hit the wall and she gasped and the gasp broke into a moan that she didn't muffle because they were home, they were in their apartment, there was no journalist and no crew and no Fah with a clipboard and the only audience was the city outside the window that didn't know and didn't care.
+
+"Harder."
+
+Jan pulled out. Thrust back in. Harder. The wall shook. A framed photo on the hallway table — them at a fan meet, the professional distance, the performance — rattled in its frame.
+
+"Yes — *yes* — like that—"
+
+They were both still dressed. Jan in the meeting clothes — the blazer, the tailored pants unzipped, the shirt coming untucked. JingJing in the meeting skirt, hiked to her waist, the blouse still buttoned, the ring on her finger catching the hallway light with each thrust. The formality of the clothing against the rawness of the act. The corporate meeting they'd just left against the wall they were fucking on. The juxtaposition was the point — the gap between the version of themselves that sat in a fourteenth-floor office and the version that existed here, now, urgent and furious and alive.
+
+"Tell me what you told her," Jan said against JingJing's neck. Her voice was rough. Her hips were relentless. "Tell me what you said in that office."
+
+"I said — *fuck* — I said the timing is ours—"
+
+"Again."
+
+"The timing is ours. Not the network's. Not anyone's. *Ours.*"
+
+Jan lifted JingJing's leg, hooked it over her hip, drove deeper. JingJing's head fell back against the wall. The sound she made carried through the apartment, through the hallway, probably through the walls to the neighbors who had never complained, who maybe didn't care or maybe weren't home or maybe were Thai enough to pretend they hadn't heard.
+
+"Say it again," Jan said, and JingJing understood that Jan didn't need to hear the words — Jan needed to *feel* them, needed to convert the defiance of the meeting into the defiance of this, needed to claim back the agency that a corporate office had tried to take from them and reclaim it through the most private, most ungovernable act.
+
+"It's ours," JingJing said. "We decide. We decide when and how and—" Jan thrust deep and JingJing lost the sentence and found a different one. "Daddy — *Daddy* — right there, *please* —"
+
+"Come for me."
+
+"I'm—"
+
+"Come for me. In these clothes. With that ring on your finger. Come."
+
+JingJing came against the wall with Jan's name in her mouth and the ring on her finger and the meeting still in her blood and the defiance still in her chest. The orgasm was sharp, almost angry, the pressure-valve release of two hours of corporate negotiation converting to physical truth. Her nails dug into Jan's shoulders through the blazer. Her legs locked. The wall took the impact.
+
+Jan followed ten seconds later, forehead pressed to JingJing's collarbone, both hands gripping JingJing's hips, the groan low and long and relieved, the sound of someone setting down something heavy.
+
+They stayed against the wall. Breathing. The hallway light was on. The keys were on the floor where they'd missed the table. JingJing's skirt was around her waist. Jan's pants were barely still on.
+
+"Thirty days," JingJing said.
+
+"Thirty days."
+
+"And then we don't have to fight anyone anymore."
+
+Jan kissed her forehead. Her cheek. The corner of her mouth. "We might still have to fight people."
+
+"But we won't have to fight them about *this*."
+
+"No. Not about this."
+
+JingJing slid down the wall until she was sitting on the hallway floor, legs stretched out, skirt still rucked, ring catching the light. Jan slid down next to her. They sat on the floor of their apartment in their meeting clothes with their backs against the wall they'd just had sex against and the reality of what they'd done — not the sex, the meeting, the defiance, the telling — settled over them like weather.
+
+"Do you think she'll actually protect us?" JingJing asked. "Khun Dao."
+
+"I think Khun Dao will protect the network. And right now, protecting the network means protecting us."
+
+"That's not the same thing."
+
+"No. But it's enough for thirty days."
+
+JingJing leaned her head on Jan's shoulder. Jan put her arm around her. The ring on JingJing's finger pressed against Jan's bicep.
+
+"Two fronts now," JingJing said. "Sirin and the network."
+
+"Sirin is on our side. She chose to be."
+
+"The network didn't choose. The network got caught."
+
+"The network will adapt. It's what networks do."
+
+"And if they don't?"
+
+Jan was quiet for a moment. The hallway light hummed. Outside, the city performed its evening transition — day shift to night shift, office workers to evening commuters, the ambient register of Bangkok dropping an octave.
+
+"Then we get married anyway," Jan said. "In a garden. Under a mango tree. And we post what we want, when we want, and the network can write their press release after."
+
+JingJing laughed. The laugh of someone who had just told a corporation to go to hell and then had sex on a wall and was now sitting on a floor in wrinkled meeting clothes making plans for a revolution disguised as a wedding.
+
+"I love you," JingJing said.
+
+"I love you."
+
+"I want to take a shower and order pad kra pao and watch the cooking show and fall asleep in your lap."
+
+"Then let's do that."
+
+"Carry me."
+
+"You have legs."
+
+"I have legs that you just rendered non-functional against a wall. Carry me."
+
+Jan carried her.
+
+---
