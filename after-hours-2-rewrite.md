@@ -690,3 +690,289 @@ She put the phone down. Pulled JingJing closer. Closed her eyes.
 Eighty-nine days.
 
 ---
+
+## Chapter 3: The Interview
+
+Sirin conducted the interviews separately.
+
+She explained this to Fah with the unhurried patience of someone who had done it enough times to know the explanation mattered: "I get more honest answers when people aren't performing for each other. It's not about catching anyone. It's about giving them room to be themselves."
+
+Fah said "Of course!" and texted the group chat before Sirin's footsteps had faded.
+
+**Fah:** She's separating them. She's SEPARATING them. This is interrogation technique.
+
+**Prae:** It's standard documentary practice.
+
+**Fah:** IT'S DIVIDE AND CONQUER.
+
+**Lin:** Which one goes first?
+
+**Fah:** JingJing. 2pm. Small conference room.
+
+**Lin:** And Jan?
+
+**Fah:** 3:30. Same room.
+
+**Lin:** I'll be outside the door for both.
+
+**Prae:** You will NOT be outside the door. You will be in the rehearsal room running lines like a normal actress who is not having a breakdown over her colleagues' personal life.
+
+**Lin:** I can do both.
+
+---
+
+JingJing arrived five minutes early, which was unusual. JingJing's relationship with punctuality was adversarial at best, a truce enforced by Jan's quiet expectation and the fact that Jan drove. But today JingJing was early because she had a plan: be charming, be funny, be the version of herself that interviewers loved. Quick wit, big laugh, disarming honesty that was actually sophisticated misdirection. JingJing had been doing press since she was nineteen. She knew how to give a journalist enough truth to feel full while keeping the real truth behind a wall of personality.
+
+She sat across from Sirin in the small conference room. Between them: two glasses of water, Sirin's notebook, Sirin's phone recording with permission, and a bowl of mandarins that someone had placed there as if this were a casual hangout and not an exercise in emotional espionage.
+
+"Thank you for doing this," Sirin said.
+
+"Of course! I love talking about myself. It's my second-favorite activity."
+
+"What's the first?"
+
+"Annoying P'Jan."
+
+Sirin smiled. JingJing recognized the smile as dangerous. Not because Sirin was fake. The opposite. Sirin was so genuine that JingJing could feel her own defenses wanting to lower, the way you drop your guard around someone who isn't holding a weapon.
+
+"Let's start there," Sirin said. "Your dynamic with Jan. On screen and off. You two have this quality that's hard to name. When you're in a scene together, the air between you gets heavier. Denser. Like the space between you has its own gravity."
+
+"That's very poetic."
+
+"Is it accurate?"
+
+"I think good screen chemistry is about listening. Not waiting for your cue, but actually hearing what the other person is giving you and responding to *that* instead of the line in the script. Jan is—" JingJing paused. "Jan is the best listener I've ever worked with. She hears things I don't even know I'm saying."
+
+Sirin's pen moved. One line. JingJing didn't see what it said.
+
+"Can you give me an example?" Sirin asked.
+
+"Of Jan listening?"
+
+"Of the dynamic. A moment on set where the chemistry surprised you. Where it felt like more than acting."
+
+JingJing's fingers went to the chain at her neck. She caught herself. Reached for a mandarin instead, peeling it with the focus of someone defusing ordnance.
+
+"Every day surprises me," she said. "Jan brings something different to every take. She fills whatever shape the scene needs and makes it look effortless. The only reason I look any good is because she makes me better."
+
+"You don't think you'd be good without her?"
+
+"I'd be competent. I'm *good* because of her."
+
+Sirin wrote something. JingJing resisted the urge to read it upside down.
+
+"Tell me about Wine," Sirin said. "What marriage means to someone like Wine, who spent so long hiding what she felt."
+
+JingJing ate a mandarin segment. Chewed. Thought.
+
+"Wine has spent her entire adult life performing control. Not because she's cold. She's the opposite of cold, she's burning up inside. But showing that would make her vulnerable, and vulnerability is the thing Wine can't afford. So when she chooses marriage, she's not just committing to Lal. She's committing to being seen. She's choosing vulnerability as a permanent state. And for Wine, that's the most terrifying and the most radical thing she's ever done."
+
+Sirin's pen had stopped.
+
+"That's beautiful," Sirin said.
+
+"It's in the script," JingJing said. It was not in the script. It was JingJing's understanding of Wine, which was JingJing's understanding of herself, and that was why she was such a good actress: she didn't play Wine. She lent Wine the truths she couldn't say out loud.
+
+"One more question about the personal side," Sirin said. "And you can decline. The fan culture around *Enemies with Benefits* is intense. The shipping. The fan accounts. The speculation about whether the on-screen chemistry is 'real.' How do you navigate that?"
+
+This was the easy one. Every GL actress in Thailand had been asked it a thousand times, and JingJing had a hundred answers polished to a mirror shine.
+
+"Fans are incredibly perceptive," JingJing said. "They see things that are real. The trust, the comfort, the genuine affection between me and Jan? Those things ARE real. We care about each other. We push each other to be better. And fans pick up on that and translate it into the language they know, which is romance. I think that's beautiful." She spread her hands. Open, uncomplicated. "But off-screen, we're colleagues and friends. The magic happens when the camera's rolling."
+
+Delivered with perfect eye contact and a warm half-smile. JingJing had been lying about this specific thing for so long that the lie had its own neural pathway.
+
+Sirin nodded. Thanked her for her time.
+
+JingJing left the room. Walked down the hallway. Turned the corner. Leaned against the wall.
+
+Her heart was pounding. Not from fear. From cost. The small, precise violence of saying "colleagues and friends" about the person who had been inside her last night, who held her when she cried, who called her good girl and kissed her forehead and turned Noo-Noo to face the wall.
+
+Colleagues and friends.
+
+Her phone buzzed.
+
+**Jan:** How was it?
+
+**JingJing:** Fine. She's smart. I was smarter.
+
+**Jan:** Humble as always.
+
+**JingJing:** Where are you?
+
+**Jan:** Dressing room. Door's open.
+
+**JingJing:** It shouldn't be.
+
+**Jan:** Why not?
+
+**JingJing:** Because I'm coming to sit in your lap and I don't want an audience.
+
+**Jan:** The journalist is in the building.
+
+**JingJing:** The journalist can find her own lap.
+
+JingJing pushed off the wall and walked toward the dressing room. She didn't check for press lanyards. She didn't scan the hallway. She walked the way she always walked: directly, toward the only thing in the building that mattered.
+
+Lin, in the rehearsal room across the hall, saw JingJing pass. Saw the direction. Saw the dressing room door. Performed a rapid calculation involving sightlines, Sirin's last known location, and the acoustic properties of walls.
+
+Then she stood up, told the secondary cast she needed a break, and went to stand at the end of the hallway like a bouncer at a club that served only anxiety.
+
+---
+
+Jan's interview was at 3:30.
+
+Jan was not a good liar. Paradoxically, because she was an excellent actress. Jan understood the mechanics of deception so thoroughly that she could replicate them on camera with precision, but in her own life, as herself, the machinery felt foreign. She didn't lie well because she didn't like lying, and the dislike showed in small ways: a half-second delay before answering, a smile that was technically correct but emotionally flat, a stillness in her eyes that a casual observer would read as poise but a careful one would read as control.
+
+Sirin was a careful observer.
+
+"Tell me about Lal," she said.
+
+"Lal is the easier half of the pairing," Jan said. "Wine has the walls. Lal spends the entire series climbing them. Lal is charming, confident, slightly arrogant in a way she's earned. She knows she's good-looking. She knows she's good at her job. But underneath all of that, she's someone who loves very hard and very specifically and isn't embarrassed about it. Lal doesn't apologize for wanting Wine. She just wants her, and she makes that want visible, and Wine has to decide whether she can handle being wanted like that."
+
+"And in the wedding arc? What's the challenge for Lal?"
+
+Jan tilted her head. The slight furrow between her brows, the way her fingers pressed together in her lap. The thinking face that JingJing loved and Sirin was seeing for the first time.
+
+"The challenge is public vulnerability," Jan said. "Lal has always been confident privately. She knows how she feels, she knows what she wants. But a wedding is a public act. Standing in front of people and saying: this is the truth of me. This is what I look like when I'm not performing. And for someone who performs confidence for a living, the idea of being genuinely, vulnerably *real* in front of an audience is—"
+
+She stopped.
+
+"Is what?" Sirin asked.
+
+Jan smiled. The flat one. Technically correct.
+
+"It's the hardest thing the character has ever done," she said.
+
+Sirin let the silence sit. She was good at silence, the kind of patient quiet that most people rushed to fill. A journalist's tool.
+
+Jan didn't fill it. She was good at silence too.
+
+They sat for a moment. Two people who understood space.
+
+"Let's talk about you," Sirin said. "Not Lal. Jan. The person who goes home at the end of the day."
+
+"What about her?"
+
+"What does marriage mean to her?"
+
+Jan's eyes met Sirin's. Something flickered across her face, quick and involuntary, the brightness that comes when someone asks about the thing you love most and your body responds before your brain can stop it.
+
+"I think marriage is the bravest thing two people can do," Jan said. "Not because it's permanent. Nothing is permanent. But because it's the act of choosing someone in public. Saying: this is mine. This person, this life, this version of myself that only exists because of them. I choose all of it, and I choose it where you can see me choosing it, and I'm not afraid."
+
+She was smiling. Not the flat smile. The one that started small and spread outward until it changed the temperature of the room.
+
+"That's Lal's answer?" Sirin asked.
+
+"That's mine." A beat. The half-second correction. "I mean, that's how I understand the character. That's the emotional engine I'm using."
+
+Sirin nodded. Wrote something down. Then she looked up.
+
+"You smile when you talk about this," she said.
+
+"Do I?"
+
+"You do. And it's a specific smile. Different from the one you use when you talk about the show, or the production, or your career. This one is—" Sirin searched for the word. "Involuntary."
+
+Jan's ears were red. She didn't know her ears were red, because her ears were always the first thing to betray her and the last thing she noticed.
+
+"Acting is an emotional job," Jan said evenly. "The smile is probably just the character leaking through."
+
+"Probably," Sirin said. She wrote one more line. Capped her pen. "Thank you, Khun Jan. This was wonderful."
+
+Jan stood. Shook her hand. Walked to the door.
+
+"Khun Jan?"
+
+She turned.
+
+"Off the record," Sirin said. "Lal is lucky. Whoever she ends up with."
+
+Jan held her gaze for a moment. "I'll tell the character you said so."
+
+She left. Walked down the hallway. Her ears were still red.
+
+Sirin sat alone in the conference room. She opened her notebook to the page from JingJing's interview, then flipped to the page from Jan's. Read them side by side.
+
+JingJing: practiced, smooth, every answer landing precisely where it was meant to land. The kind of polish that only comes from someone who has rehearsed this particular truth until the performance is indistinguishable from the real thing.
+
+Jan: unpolished, careful, the silences as revealing as the words. And that smile. The involuntary one. The one that appeared every time the conversation drifted near a specific emotional frequency.
+
+Both interviews were technically flawless. But JingJing's was *too* flawless. Nobody is that clean unless they're covering something. And Jan's was too honest. The marriage answer, the smile, the half-second delay when she caught herself saying something real.
+
+They were lying in opposite directions. JingJing by being too good at it. Jan by being too bad.
+
+Sirin underlined something in her notebook. Drew a line connecting it to the word she'd written on Day One, the one she'd underlined, the one she still hadn't defined.
+
+She was getting closer.
+
+---
+
+The dressing room.
+
+JingJing was on the loveseat when Jan walked in. She looked up. "Your ears are red."
+
+"They are not."
+
+"They are absolutely crimson."
+
+Jan closed the door. Sat beside her. Their thighs pressed together. Jan's hand found JingJing's knee.
+
+"She asked me what marriage means to me," Jan said.
+
+JingJing went still. "What did you say?"
+
+"The truth."
+
+"The truth as Lal or the truth as Jan?"
+
+Jan looked at her. The quiet expression she wore in bed, in the dark, when the world had shrunk to the size of two heartbeats.
+
+"Is there a difference?"
+
+JingJing's hand came up to Jan's jaw. Thumb against the cheekbone. The ring shifted on its chain under her shirt.
+
+"No," JingJing said. "There isn't."
+
+She kissed Jan. Not carefully. Not the quick peck of two people who know they're in a building full of witnesses. Slowly. Thoroughly. The kiss of someone who had spent an hour saying "colleagues and friends" and needed to erase the taste of the lie.
+
+The door was closed. But not locked.
+
+Neither of them thought about it. Neither of them thought about Sirin, twenty feet away in the conference room, reading her notes. Neither of them thought about Lin, who had positioned herself at the junction of two hallways specifically so that if anyone walked toward the dressing rooms from any direction, she would see them first.
+
+They didn't think about any of it. They were too busy being exactly what they were.
+
+Lin stood at her post. Her phone buzzed.
+
+**Fah:** How did the interviews go?
+
+**Lin:** I don't know. I was too busy making sure nobody saw them kissing in the dressing room.
+
+**Fah:** AGAIN?
+
+**Lin:** Again.
+
+**Fah:** Was the door locked?
+
+**Lin:** It was CLOSED. Not locked.
+
+**Fah:** JingJing doesn't lock doors. JingJing has never locked a door in her LIFE.
+
+**Lin:** I am aware.
+
+**Fah:** We need to install auto-locking handles on every door in this building.
+
+**Prae:** We are not renovating the GMMTV building because of two women who can't keep their hands to themselves.
+
+**Fah:** Then we're going to die, P'Prae. We're all going to die.
+
+**Prae:** Nobody is dying.
+
+**Fah:** My ulcer says otherwise. I named it Jan.
+
+**Lin:** I need a drink.
+
+**Prae:** It's 4pm.
+
+**Lin:** I NEED A DRINK AT 4PM.
+
+---
