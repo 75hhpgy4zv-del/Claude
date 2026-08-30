@@ -4103,3 +4103,351 @@ Beside her, JingJing murmured something in her sleep. Jan's name, or a dream's v
 She would try. She would really try.
 
 ---
+
+## Chapter 13: The Secret Venue
+
+The garden was in Nonthaburi, twenty minutes north of the city, down a side road that became a dirt road that became a gate that opened onto something JingJing was not prepared for.
+
+She'd seen photos. Fah had sent three options to the wedding group chat — Jan, JingJing, Fah, and Love, who'd been added under the contact name "Wedding Consultant" based on no qualifications other than being JingJing's best friend and crying harder at engagement announcements than the people getting engaged.
+
+The Nonthaburi garden had been unanimous.
+
+But photos were flat. Photos told you nothing about the way a place felt: the temperature, the weight of the silence, the specific green when sunlight came through frangipani canopy and landed on stone and grass and turned everything the color of a promise.
+
+JingJing stepped through the gate and stopped.
+
+The garden was smaller than she'd imagined. More intimate. A walled space that felt like the inside of a secret. Frangipani trees along the perimeter, branches forming a loose canopy, the white-and-yellow flowers scenting the air with something clean and sweet that JingJing would associate with this moment for the rest of her life. Manicured grass, soft and level. A stone path winding from the gate to a small pergola draped in jasmine that hadn't bloomed yet but would, the owner said, be in full flower by the wedding date.
+
+In the center: a single mango tree. Old. Gnarled. Its branches spread wide enough to shade a table for twelve.
+
+"Oh," JingJing said.
+
+Not a word. A sound. The sound a person makes when something they've been imagining becomes concrete and the concrete version is better.
+
+Jan's hand found hers. The automatic grip. The hand that always found hers.
+
+"This is it," JingJing said.
+
+"Yeah."
+
+"This is where we're getting married."
+
+"Yeah."
+
+"I'm going to cry. I'm informing you for logistical purposes."
+
+"Noted."
+
+The garden's owner, Khun Noi — sixties, silver-streaked hair, the calm energy of someone who'd spent thirty years tending this space — showed them the grounds. The pergola. The jasmine. The stone path. The koi pond in the far corner where the fish caught the afternoon light.
+
+"Morning ceremonies get better coverage under the tree," she said. "Evening ceremonies photograph better at the pergola."
+
+"Evening," Jan said. "Sunset."
+
+"The jasmine catches the last light beautifully."
+
+JingJing squeezed Jan's hand hard enough to press Jan's ring into her own finger. She'd put the ring on in the car, sliding it from chain to finger with the reverence of someone performing a private sacrament. She would take it off before they drove back. The chain would return to her chest. But right now: the ring was on her finger, in a garden, in the sun.
+
+"Can we taste the cake?" JingJing asked in the small voice. The Noo-Noo voice. The 3 AM voice.
+
+Three cakes under the mango tree, on a white-linen table. Coconut-pandan. Mango-passionfruit. Thai tea with white chocolate.
+
+JingJing tasted each one with the seriousness of a food critic and the emotional stability of a firework.
+
+"The coconut-pandan," she said. "It tastes like my grandmother's kitchen. Like Saturday mornings. Like—" Her eyes filled. "Like the kind of thing you serve at a wedding that means something."
+
+Jan wiped the corner of JingJing's eye with her thumb.
+
+"Coconut-pandan," Jan confirmed to Khun Noi, who wrote it down as if couples cried over cake in her garden every day.
+
+Flowers next. JingJing wanted frangipani. Jan wanted jasmine. Both — frangipani for bouquets, jasmine for the pergola, white roses for the table.
+
+"And a peony," JingJing said. "One peony. For the centerpiece."
+
+"A peony?"
+
+"Love's favorite flower. She's going to cry, and she needs something to hold."
+
+"Love can hold Milk's hand."
+
+"Love needs BOTH. A flower and a hand. That's Love's minimum crying equipment."
+
+"One peony," Jan told Khun Noi.
+
+They walked the garden again. Slowly. Not as visitors but as occupants. JingJing paced the stone path from the gate to the pergola — twenty-two steps — imagining walking it in a dress.
+
+"I'm going to trip," she said.
+
+"You won't."
+
+"I trip on flat surfaces in sneakers."
+
+"I'll catch you."
+
+"You always say that."
+
+"I always do it."
+
+JingJing stood at the pergola and looked back. The mango tree, the koi pond, the frangipani, the gate. In thirty-seven days, she would walk those twenty-two steps toward a woman she'd been walking toward since they met.
+
+She cried. Not the quiet kind. The full, ungoverned, mascara-destroying kind. The cry that came from a place deeper than sadness or happiness, from the place where the two emotions merged into something that had no name.
+
+Jan held her. Of course. Jan held her in a garden in Nonthaburi with frangipani and afternoon sun and JingJing pressed her face into Jan's shoulder and cried until the crying became laughing and the laughing became crying again.
+
+"I'm a mess," JingJing said.
+
+"You're beautiful."
+
+"I have snot on your shirt."
+
+"Beautiful."
+
+"Is Lin coming? To the wedding?"
+
+"She doesn't know about it."
+
+"She should be there. She deserves to be there more than anyone."
+
+Jan was quiet. Weighing it. Not the risk of exposure. The risk of leaving someone out. The woman who'd spent months developing insomnia protecting a secret she hadn't asked to carry.
+
+"We'll tell her," Jan said. "Soon."
+
+JingJing wiped her eyes on Jan's shirt. Looked up with the post-cry face: swollen, red, luminous.
+
+"Take a picture of me," she said. "Under the tree."
+
+Jan took out her phone. JingJing stood under the mango tree — tear-streaked, ring-wearing, the private smile that lived between performer and person. Then JingJing grabbed the phone and took a selfie of both: Jan behind her, chin on her shoulder, arms around her waist, the pergola in the background. JingJing held up her left hand. The ring caught the light.
+
+"We can never post this," JingJing said, looking at the photo.
+
+"No."
+
+"It's the best photo anyone has ever taken of us and we can never show it to anyone."
+
+"Thirty-seven days."
+
+JingJing saved it. Created a new album. Named it "groceries."
+
+"If anyone asks to see my grocery list, they'll open this and see the garden where I'm getting married."
+
+In the car, JingJing took the ring off. Threaded it back onto the chain. Dropped it inside her shirt. Felt it settle against her sternum, warm from her skin.
+
+In the wedding group chat:
+
+**JingJing:** We picked the cake. Coconut-pandan. Flowers: frangipani bouquets, jasmine for the pergola, white roses for the table. And one peony.
+
+**Fah:** One peony?
+
+**JingJing:** For Love. She'll need something to hold while she cries.
+
+**Love:** I'm not going to cry.
+
+**JingJing:** Love, you cried at the ANNOUNCEMENT. You cried at the announcement and then called Milk and cried at Milk and then called me back and cried again.
+
+**Love:** Those were SITUATIONAL tears.
+
+**JingJing:** You cried for forty minutes. That's not a reaction. That's a construction project.
+
+**Love:** The peony is appreciated. What color?
+
+**JingJing:** Pink. Your favorite.
+
+**Love:** 🌸💕😭
+
+**JingJing:** ALREADY CRYING. Three EMOJIS of crying.
+
+**Fah:** Ring pillow prototype ready. Noo-Noo fitting Sunday. I need measurements.
+
+**JingJing:** You are not putting a MEASURING TAPE on my RABBIT.
+
+**Fah:** I need dimensions for the pillow harness.
+
+**JingJing:** A HARNESS?
+
+**Fah:** A SMALL harness. Decorative. Ribbon-based. Noo-Noo will look beautiful.
+
+**Jan:** This is the most unhinged wedding planning conversation in human history.
+
+**JingJing:** You proposed on a BEACH with NO PLAN. You don't get to judge unhinged.
+
+**Jan:** I had a plan.
+
+**JingJing:** Your plan was "bring the ring and hope for the best."
+
+**Jan:** It worked.
+
+**JingJing:** ...it worked.
+
+JingJing put the phone down. Looked out the window at the city coming back — expressway, billboards, skyline. The world that didn't know about the garden. The world that saw two women in a car on a Thursday and thought: colleagues.
+
+She looked at Jan. At Jan's profile, the jaw, the slight smile that meant Jan was thinking about the same thing JingJing was thinking about. The same garden. The same twenty-two steps. The same future.
+
+"P'Jan."
+
+"Mm."
+
+"Pull over."
+
+Jan glanced at her. "What?"
+
+"Pull over. Find somewhere to park."
+
+"We're on the expressway—"
+
+"Then get off the expressway."
+
+Jan looked at JingJing's face. At whatever was on JingJing's face that made Jan's hands tighten on the wheel and the car drift toward the exit lane.
+
+"JingJing, we're twenty minutes from home—"
+
+"I can't wait twenty minutes."
+
+"You can't—"
+
+"I ate cake at the place where I'm getting married and I cried and I wore my ring and I took a photo with you under a mango tree and now I can't wait twenty minutes because if I have to sit in this car for twenty more minutes without touching you I will lose my mind."
+
+Jan took the next exit.
+
+She found a quiet side street in a residential neighborhood — tree-lined, no pedestrians, late afternoon light filtering through the branches. She pulled into a spot between two parked cars and killed the engine.
+
+"This is—"
+
+JingJing was already climbing over the center console.
+
+The logistics were absurd. Jan's SUV had plenty of room in the backseat, but getting there from the front involved JingJing's knee hitting the gear shift, Jan's seatbelt refusing to unbuckle, and a brief struggle with the parking brake that ended with JingJing wedged between the front seats at an angle that was anatomically creative.
+
+"This is—" Jan started laughing. "This is not how adults have sex."
+
+"Adults don't have sex in cars because adults have apartments. We are adults who just saw a GARDEN and can't handle themselves. Get in the back."
+
+They tumbled into the backseat. Jan landed first, her back against the door, legs stretched across the seat. JingJing landed on top of her in a configuration that was more collision than seduction, her elbow catching the headrest, her hip on the armrest, both of them laughing.
+
+"Ow," JingJing said.
+
+"That's my—"
+
+"Your what?"
+
+"My — never mind. Come here."
+
+Jan pulled her closer. JingJing straddled her lap, knees on either side of Jan's hips, the skirt she'd worn to the garden bunching around her thighs. Jan's hands slid under the skirt, found skin, found the underwear JingJing was — for once — wearing.
+
+"You wore underwear today," Jan noted.
+
+"I was meeting the woman who's hosting our wedding. I wasn't going to meet her commando."
+
+"Respectful."
+
+"I have *limits*."
+
+"Since when?"
+
+JingJing bit Jan's lower lip. Not hard. The playful bite, the one that was a comma not a period. Jan grinned against her mouth and JingJing felt the grin and grinned back and they were kissing while smiling, which was the best kind of kissing and also the most difficult because their teeth kept bumping and neither of them cared.
+
+"Cake," JingJing said between kisses. "Coconut-pandan. We're having coconut-pandan cake at our wedding."
+
+"We are."
+
+"Jasmine. On the pergola."
+
+"Yes."
+
+"And Noo-Noo. In a *harness*."
+
+Jan laughed into her mouth. "A ribbon-based harness."
+
+"P'Jan. We're getting *married*."
+
+"I know."
+
+"In a *garden*."
+
+"I know."
+
+"I need you inside me right now because I ate wedding cake and I can't process this emotion any other way."
+
+Jan's hands worked her underwear to the side. JingJing's hand found Jan's zipper, pulled it down, reached in, and freed her. Jan was hard. Had been hard since JingJing climbed over the console, because JingJing's ass in a skirt clearing the gear shift was apparently a visual stimulus Jan's body considered sufficient grounds for full operational readiness.
+
+JingJing positioned herself. Sank down. The angle was wrong and then right and then wrong again because the backseat of an SUV was not designed for this and gravity was working at unusual vectors and Jan's hips were at an angle that—
+
+"Oh," JingJing said. "Oh, that's — that's actually—"
+
+"Good?"
+
+"The angle is — the *curve* is hitting — oh my god."
+
+The car rocked. Gently at first, then with a rhythm that would have been obvious to any passerby, which was a thought that made Jan's cock throb and JingJing's laugh catch in her throat and become a moan.
+
+"We're in a *car*," JingJing said, half laughing, half gasping. "We're having sex in a *car* on a *residential street* because we tasted *wedding cake*."
+
+"Is that a complaint?"
+
+"That is the OPPOSITE of a complaint." JingJing rolled her hips. Found the angle that made the curve press exactly right. Her head fell back and hit the window and she laughed again and Jan laughed and JingJing's hips kept moving and the laughter dissolved into the sounds that JingJing made when the laughter was over and the real thing was starting.
+
+"Daddy — oh, right there — the angle is — P'Jan, I'm going to come embarrassingly fast."
+
+"How fast?"
+
+"Like — two-minute fast. Like the cake is still in my mouth and I can taste coconut-pandan and you're inside me and I'm getting married in a garden and my brain is overloading—"
+
+"Come, baby." Jan's voice was warm, amused, utterly in love. "It's okay. Come in the car. Come because you tasted wedding cake."
+
+"That is the most ridiculous reason anyone has ever—"
+
+Jan's hips pushed up. JingJing's words evaporated. The sound she made was high and breathless and surprised, as if the orgasm had caught her off guard, as if coming on Jan's cock in the backseat of an SUV on a quiet street in Nonthaburi was something she hadn't expected to be doing today and was now doing enthusiastically.
+
+"Oh god oh god oh god — *Daddy* — the *cake* —"
+
+She came laughing. Actually laughing, the orgasm and the joy crashing into each other and producing a sound that was both and neither, her body shaking with the combination of pleasure and hilarity, her forehead against Jan's and her eyes squeezed shut and the ring on its chain swinging between them.
+
+Jan came too. The laughter was contagious and the clenching was insistent and Jan buried herself deep and let go with a grin on her face and JingJing's giggles in her ear, and the orgasm was bright and clean and uncomplicated in a way their orgasms rarely were — no desperation, no jealousy, no risk calculus. Just happiness, converted to its physical form.
+
+They sat in the backseat. Catching their breath. JingJing still in Jan's lap, Jan still inside her, the windows steamed.
+
+"We steamed the windows," JingJing said.
+
+"We steamed the windows."
+
+"Like teenagers."
+
+"Like two idiots who tasted cake and lost their minds."
+
+JingJing kissed her. Soft, lingering, the post-orgasm kiss that was gratitude and tenderness and the specific sweetness of having just done something ridiculous with the person you loved most.
+
+"Best day," JingJing said.
+
+"Best day."
+
+"The garden is perfect."
+
+"The garden is perfect."
+
+"The cake is perfect."
+
+"The car sex is questionable."
+
+"The car sex is *EXCELLENT*. The car sex is top five."
+
+"Top five? We've had sex in a dressing room, against a door a journalist was standing behind, and on a hotel balcony in Chiang Mai. And the car sex is top five?"
+
+"The car sex is top five because I was *happy*. I was just happy, P'Jan. No adrenaline, no jealousy, no close calls. Just — happy. And you were inside me and I was happy and that's — that's the whole thing. That's what I want at the wedding. That feeling."
+
+Jan's arms tightened around her. "You'll have it."
+
+"Promise?"
+
+"I promise you're going to be happy at our wedding. I promise you're going to eat coconut-pandan cake and hold my hand and walk twenty-two steps down a stone path and cry and I'm going to wipe your face and you're going to call me Daddy in front of twelve people—"
+
+"I am NOT calling you Daddy in front of twelve people."
+
+"You'll whisper it."
+
+"...I'll whisper it."
+
+JingJing climbed back to the front seat. The logistics were equally absurd in reverse. Jan fixed her trousers, wiped the window, started the car. They pulled back onto the street. Drove home. Normal. Professional. Two women in a car on a Thursday, looking exactly like two women who had not just had sex in a residential neighborhood because wedding cake had overwhelmed their capacity for rational behavior.
+
+The city moved outside. Inside: certainty. The ring on the chain. The taste of coconut-pandan. The sound of each other laughing.
+
+Thirty-seven days.
+
+---
