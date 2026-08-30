@@ -609,7 +609,7 @@ Jan's rhythm stuttered. "I'm close—"
 
 "Inside me — Daddy, come inside me—"
 
-Jan buried herself deep and came, and JingJing felt it, the pulse and the heat and the fullness of Jan finishing inside her, and that sensation triggered the second orgasm, the one she'd said she couldn't have, and it hit harder than the first. She screamed Jan's name. The real one, not Daddy, not P'Jan, just *Jan*, torn out of her like a confession, and Jan held her through it, face pressed into her neck, both of them shaking, the sound of their breathing the only thing in the world.
+Jan buried herself deep and came, and JingJing felt it, the pulse and the heat and the fullness of Jan finishing inside her, and that sensation triggered the second orgasm, the one she'd said she couldn't have, and it hit harder than the first. She screamed Jan's name. Not Daddy. Not P'Jan. Just *Jan*, torn out of her like a confession, and Jan held her through it, face pressed into her neck, both of them shaking, the sound of their breathing the only thing in the world.
 
 ---
 
@@ -1037,7 +1037,7 @@ JingJing's mask was back on. Aggressively bored. Scrolling her phone.
 
 "Maybe Lal's love language is corporate governance."
 
-JingJing snorted. The real one. Nose scrunching, eyes crinkling, the ugly sound that made Jan's mouth twitch at the corner because JingJing's honest laugh was Jan's favorite sound in any room.
+JingJing snorted. Nose scrunching, eyes crinkling, the ugly sound that made Jan's mouth twitch because it was Jan's favorite sound in any room.
 
 "Your turn," Khun Orn said, gesturing to JingJing.
 
@@ -1939,7 +1939,7 @@ JingJing stared at the phone. Jan had called Milk. Jan had called Milk last nigh
 
 JingJing put her phone down. Stared at the studio door. Somewhere inside, Jan was standing next to a man named Golf whose hand was in hers and whose face would be next to hers in a photograph that thirty million people would see and interpret as evidence of a life that didn't exist.
 
-The possessiveness was a living thing in JingJing's chest. Not cute jealousy. Not the performative pout she used when fans hit on Jan at events. This was the real kind. The kind with teeth. The kind that made her want to walk into that studio and take Jan's hand away from the stranger and hold it herself and say *this is mine and you can't have it and I don't care who sees.*
+The possessiveness was a living thing in JingJing's chest. Not cute jealousy. Not the performative pout she used when fans hit on Jan at events. This had teeth. The kind that made her want to walk into that studio and take Jan's hand away from the stranger and hold it herself and say *this is mine and you can't have it and I don't care who sees.*
 
 She didn't walk in. She started the car. She drove home.
 
@@ -2337,7 +2337,7 @@ JingJing collapsed onto Jan's chest. Breathing hard. Shaking. Jan's arms came ar
 
 "I ran out of neck space."
 
-Jan laughed. The quiet, private laugh, the one that vibrated through JingJing's ribcage. Her hand came up to JingJing's hair. Slow strokes.
+Jan laughed. Low, almost soundless, the vibration traveling through JingJing's ribcage. Her hand came up to JingJing's hair. Slow strokes.
 
 "Feel better?" Jan asked.
 
@@ -2820,7 +2820,7 @@ JingJing's finger traced Jan's collarbone. The idle cartography of a body she kn
 
 "Do you care?"
 
-Jan thought about it. Not the reflexive dismissal. The real question.
+Jan thought about it. Actually thought, not the reflexive dismissal.
 
 "No," she said.
 
@@ -3494,7 +3494,7 @@ Milk grinned. The grin Love called "the one that means she's about to say someth
 
 "It's disgusting AND adorable and I need you to stop talking about your perfect relationship while I'm watching a man hold my wife's hand."
 
-Milk's grin softened. The shift from shit-stirring to something warmer, acknowledging the real feeling underneath.
+Milk's grin softened. The shit-stirring draining out, something warmer taking its place.
 
 "She's not looking at him," Milk said quietly.
 
@@ -3766,7 +3766,7 @@ The second orgasm built slowly. A heat that started where they were connected an
 
 "I'm there. I'm with you."
 
-They came together. JingJing's body arching backward, Jan's hips pressing up, the room filled with nothing but the sounds they made and the creak of the bed and the wet, obscene sound of Jan emptying into JingJing for the second time, and JingJing cried out Jan's name, the real name, not Daddy, just *Jan*, and the name sounded like a brand being pressed into skin: permanent, painful, necessary.
+They came together. JingJing's body arching backward, Jan's hips pressing up, the room filled with nothing but the sounds they made and the creak of the bed and the wet, obscene sound of Jan emptying into JingJing for the second time, and JingJing cried out *Jan* — not Daddy, just the name, and it sounded like a brand being pressed into skin: permanent, painful, necessary.
 
 JingJing fell forward again. This time she stayed. Jan's arms wrapped around her. The post-sex trembling that JingJing's body always did, fine and continuous, like a tuning fork that had been struck too hard.
 
@@ -3970,7 +3970,7 @@ Jan was quiet. She looked at the pad thai. At her phone. At Lin's hands, pressed
 
 "Is it bad?" Jan asked.
 
-Lin laughed. Not the real laugh. The airless, desperate laugh of someone who had been asked "is the building on fire?" while standing in the flames.
+Lin laughed. Airless, desperate, the laugh of someone who had been asked "is the building on fire?" while standing in the flames.
 
 "The footage exists, P'Jan. It's real. It's on a hard drive that belongs to a journalist. If she publishes it — in the documentary, on social media, in the companion piece — anyone with eyes will see what I see every day. What Fah sees. What Prae sees. What the entire crew has been building a human shield around for five weeks."
 
@@ -4216,7 +4216,7 @@ JingJing wiped her eyes on Jan's shirt. Looked up with the post-cry face: swolle
 
 "Take a picture of me," she said. "Under the tree."
 
-Jan took out her phone. JingJing stood under the mango tree — tear-streaked, ring-wearing, the private smile that lived between performer and person. Then JingJing grabbed the phone and took a selfie of both: Jan behind her, chin on her shoulder, arms around her waist, the pergola in the background. JingJing held up her left hand. The ring caught the light.
+Jan took out her phone. JingJing stood under the mango tree — tear-streaked, ring-wearing, the smile that lived between performer and person, the one cameras never caught. Then JingJing grabbed the phone and took a selfie of both: Jan behind her, chin on her shoulder, arms around her waist, the pergola in the background. JingJing held up her left hand. The ring caught the light.
 
 "We can never post this," JingJing said, looking at the photo.
 
@@ -4382,7 +4382,7 @@ The car rocked. Gently at first, then with a rhythm that would have been obvious
 
 "Is that a complaint?"
 
-"That is the OPPOSITE of a complaint." JingJing rolled her hips. Found the angle that made the curve press exactly right. Her head fell back and hit the window and she laughed again and Jan laughed and JingJing's hips kept moving and the laughter dissolved into the sounds that JingJing made when the laughter was over and the real thing was starting.
+"That is the OPPOSITE of a complaint." JingJing rolled her hips. Found the angle that made the curve press exactly right. Her head fell back and hit the window and she laughed again and Jan laughed and JingJing's hips kept moving and the laughter dissolved into the sounds that came after laughter, the ones that had nothing to do with funny.
 
 "Daddy — oh, right there — the angle is — P'Jan, I'm going to come embarrassingly fast."
 
@@ -4530,7 +4530,7 @@ Jan didn't ask what happened. She crossed the distance in three steps, knelt in 
 
 "I'm here."
 
-JingJing broke. The full cry. The shaking kind. On a soundstage, in a building full of crew and a journalist, and neither of them cared, because this was the real emergency: JingJing was hurting, and Jan could not allow that to continue for a single second longer.
+JingJing broke. Her whole body shook with it. On a soundstage, in a building full of crew and a journalist, and neither of them cared, because this was the real emergency: JingJing was hurting, and Jan could not allow that to continue for a single second longer.
 
 "She asked about Noo-Noo," JingJing managed. "Sirin. She saw her. I said she was just a toy, P'Jan. I told her Noo-Noo was *just a toy*."
 
@@ -4658,7 +4658,7 @@ Jan's fingers moved like a tide. In and out. The steady pulse that built not tow
 
 "Jan," JingJing whispered. "Jan. Jan. *Jan.*"
 
-Not Daddy. Tonight was for the real name. For the person underneath the role.
+Not Daddy. Tonight was for *Jan*. For the person underneath the role.
 
 "I'm here. I'm right here."
 
@@ -5970,7 +5970,7 @@ In the car afterward, JingJing called Love.
 
 "Jan said that and Khun Somchai looked like someone had replaced his spreadsheet with a love letter."
 
-Love laughed — the full Love laugh, the one Milk described as the sound that made her entire chest hurt in a good way. JingJing could hear Milk in the background asking what happened.
+Love laughed — the laugh Milk described as the sound that made her entire chest hurt in a good way. JingJing could hear Milk in the background asking what happened.
 
 "Tell Milk that Jan told the network to prepare the sponsors in twenty-eight days or get out of the way."
 
@@ -5978,7 +5978,7 @@ Love relayed. Milk's voice came through, muffled: "Tell Jan she's my fucking her
 
 "Jan is driving. She can hear you. She's smiling."
 
-Jan was smiling. The private smile. The one for JingJing and for moments when the world arranged itself into something that briefly resembled justice.
+Jan was smiling. Barely — just the corners, the version of Jan's face that only appeared in the car or at home, never on camera.
 
 "Love," JingJing said. "When you and Milk go public — when you're ready — you can use us as the precedent. We'll be the first. We'll take the hit. And when it's your turn, the hit will be smaller."
 
@@ -6272,7 +6272,7 @@ Jan kissed her. Slow. Matching the rhythm above to the rhythm below, the synchro
 
 "I will," Jan said. "I will. I will."
 
-JingJing came. The slow orgasm, the deep one, the kind that built from far away and arrived with the full weight of the ocean. She came saying Jan's name — not Daddy, not the performance, the real name. The name she would say in the garden.
+JingJing came. The slow orgasm, the deep one, the kind that built from far away and arrived with the full weight of the ocean. She came saying *Jan*. Not Daddy. The name she would say in the garden.
 
 Jan came inside her. Together, almost — the timing close enough to feel like one event instead of two, the shared peak that felt like proof that two bodies could become one system.
 
