@@ -3015,3 +3015,353 @@ Jan kissed her forehead. JingJing's eyes were closing, the post-orgasm softness 
 The room was dark. The vows were written. On the headboard shelf, Noo-Noo kept watch.
 
 ---
+
+## Chapter 10: The Close Call
+
+It happened on a Wednesday at 2:17 PM.
+
+Fah would pinpoint the exact time later because the hallway security cameras had timestamps and Fah had been reviewing them nightly, building a probability matrix of Sirin's movements, cataloguing her patterns — bathroom breaks, editing suite hours, the times she left her workspace and the routes she took — with the obsessive precision of someone who understood that failure was a matter of seconds.
+
+2:17 PM. Wednesday. The dressing room.
+
+Jan and JingJing had been filming the prenup scene — Lal surprises Wine with a thirty-page document. Comedic, light. Six takes. Prae wanted a seventh. Jan asked for five minutes.
+
+"Five," Prae said. "Not ten."
+
+"Five."
+
+They went to the dressing room together. The small room, eight by ten, mirror-lined. One loveseat, one vanity, a garment rack. The door had a lock. Jan's rate of engaging it had been declining for weeks, her attention to security inversely proportional to her attention to the woman sitting across from her.
+
+Today the lock was not engaged.
+
+JingJing sat on the loveseat. Jan stood at the vanity, drinking water, checking her phone. Professional. Neutral. Two colleagues taking a break.
+
+"That last take was good," JingJing said.
+
+"The third was better. You did the eye thing."
+
+"What eye thing?"
+
+"Where you look at me like you're deciding between kissing me and killing me."
+
+"That's called acting, P'Jan."
+
+"That's called Tuesday."
+
+JingJing threw a makeup sponge at her. Jan caught it without looking.
+
+"Come here," JingJing said.
+
+"We have four minutes."
+
+"I need two."
+
+"Two minutes is not enough for what your face is suggesting."
+
+"My face isn't suggesting anything."
+
+JingJing bit her lower lip. She did this deliberately — she had learned through experimentation that the lip bite bypassed Jan's self-control and went directly to the part of Jan that made decisions with anatomy rather than judgment.
+
+Jan's jaw tightened.
+
+"Don't," Jan said.
+
+"Don't what?"
+
+"The lip thing. We're on set."
+
+JingJing tilted her head, exposing the spot below her ear that Jan liked to bite.
+
+Jan crossed the room in two steps.
+
+The kiss was immediate. Time-compressed. Jan's hands on JingJing's face, thumbs against her cheekbones, tilting her up. JingJing's mouth opening because JingJing's mouth always opened for her, because resistance never survived first contact with Jan's intent. JingJing's arms around her neck, pulling her down onto the loveseat, and then Jan was on top of her, full weight, and JingJing's legs wrapped around her waist and her hips rolled against the hardness she could feel through Jan's costume trousers.
+
+"We have three minutes," Jan breathed.
+
+"Then be fast."
+
+"I'm never fast."
+
+"*Daddy. Please.*"
+
+Jan's hand slid between JingJing's legs, over the costume fabric, pressing with the heel of her palm. JingJing moaned. Not quietly.
+
+"*Shh.*"
+
+"I can't — you're — *oh god* —"
+
+"JingJing, the *walls*—"
+
+"I don't care about the walls, I care about your hand—"
+
+Jan's hand worked faster. Through the fabric, the friction of cotton against heat, pressure calibrated by a year of knowing exactly where the threshold lived.
+
+JingJing's head fell back. Her eyes closed. The sounds she was making were the sounds that carried through walls.
+
+"Daddy — I'm gonna — I'm so close —"
+
+The door handle moved.
+
+Not opened. Moved. The click of someone testing the handle from outside.
+
+Jan froze. JingJing's eyes flew open.
+
+The handle moved again. A knock. Then a voice.
+
+Sirin's voice.
+
+"Hello? Is anyone—"
+
+"ONE MOMENT." Fah. From the hallway. Loud, bright, appearing from nowhere, from the quantum state of omnipresence she occupied on this production. "Khun Sirin! I was looking for you. I have the updated schedule you asked about. The exterior shoots. Let me—"
+
+"I was just going to check if the dressing room was—"
+
+"Occupied! P'Jan and P'JingJing are doing character work. Very private. Very method. Part of their process."
+
+"Their process?"
+
+"Very intensive process. Takes about five to ten minutes. You know method actors! Let me show you that schedule. My desk is this way. This way."
+
+The voices receded. Fah's chatter retreating down the hallway like covering fire.
+
+Inside the dressing room, Jan and JingJing had not moved. Jan was still on top of JingJing. Her hand was still between JingJing's legs. JingJing's legs were still wrapped around her. The loveseat creaked once in the silence.
+
+"That was Sirin," JingJing said.
+
+"Yeah."
+
+"Right outside the door."
+
+"Yeah."
+
+"The door was unlocked."
+
+"Yeah."
+
+In another couple, this would have been the moment. The cold water. The recalibration. The slap of reality.
+
+JingJing looked at Jan's face. At the flush. At the way Jan's pupils had blown wide. At the thing happening below Jan's waist, which JingJing could feel pressed against her inner thigh, which was not softening.
+
+"You're hard," JingJing said.
+
+"I—"
+
+"You're *harder*. Since the door. Since Sirin's voice. You're harder than you were before."
+
+Jan said nothing. Her jaw worked. Her hand was still between JingJing's legs, motionless, and the motionlessness was its own confession because Jan's hand should have been gone by now, Jan should have been across the room, Jan should have been straightening her costume and checking the mirror and being the responsible one.
+
+"P'Jan." JingJing's voice was quiet. "Are you turned on because she was right there?"
+
+"We should—"
+
+"Answer me."
+
+Jan's breath came hard through her nose. The truth was on her face, in the rigid line of her jaw, in the heat between them, in the cock that was straining against her trousers in a way that had nothing to do with the four-minute break and everything to do with the door handle turning and the journalist's voice and the proximity of exposure.
+
+"Yes," Jan said.
+
+JingJing stared at her. Then something shifted in JingJing's face, something that was not fear and not judgment but recognition, the recognition of a piece of Jan she had known was there but had never seen this clearly: the exhibition, the thrill, the part of Jan that did not want to hide.
+
+JingJing's hips rolled.
+
+"Then finish what you started."
+
+"JingJing—"
+
+"She's gone. Fah handled it. Lock the door and finish what you started."
+
+Jan reached behind her. Locked the door. The click was loud in the silence.
+
+She didn't go back to her hand. She stood, pulled JingJing up from the loveseat, turned her, and pressed her forward against the door. The door Sirin had been on the other side of sixty seconds ago.
+
+JingJing gasped. Her palms flat on the wood. Jan's body behind hers, the full length of Jan pressed against her back, Jan's mouth at her ear.
+
+"You want this?" Jan's voice was low. Controlled. Daddy's voice.
+
+"Yes."
+
+"Against the door she was just touching."
+
+"*Yes.*"
+
+Jan's hands pulled JingJing's costume skirt up. JingJing hadn't worn underwear. She hadn't worn underwear to set in three weeks, a choice that made Jan's eyes go dark every time she discovered it, which was the entire point.
+
+Jan freed herself from her trousers. The head of her cock pressed against JingJing's ass, slid down between her legs. JingJing was drenched. Had been drenched before the door handle turned and was worse now, the combination of interrupted orgasm and the knowledge that a journalist had been three inches of wood away from the end of their careers.
+
+"Fast," JingJing whispered. "We have ninety seconds."
+
+Jan pushed in. Not slow. Not the careful, measured entry of the night before. One thrust, deep, JingJing's body taking all of her because JingJing's body was ready, had been ready for twenty minutes, had been building toward this since the third take when Jan winked at her between setups.
+
+JingJing's forehead pressed against the door. Her mouth opened. The sound that came out was the sound Jan had been trying to silence, the sound that carried through walls, and Jan's hand came around to cover her mouth and JingJing bit it.
+
+"*Quiet,*" Jan hissed.
+
+JingJing shook her head. Jan's hand muffled her, but the sounds were still there, vibrating against Jan's palm, and Jan thrust again, hard, the angle perfect, the slight curve pressing up and forward, and JingJing's whole body jolted.
+
+"Daddy—" Against Jan's hand, barely intelligible. "*Daddy*—"
+
+Jan fucked her against the door. Fast, deep, the pace set by the clock and the danger and the fact that Jan was already close, had been close since the moment the handle turned and her body had responded not with fear but with adrenaline-spiked arousal, the exhibition kink she'd never named but had always carried.
+
+JingJing came first. Hard, biting Jan's fingers, her body clamping down in waves that Jan could feel like a fist, rhythmic and tight and pulling Jan with her. Jan buried herself deep and came with her jaw locked, silent, the orgasm tearing through her while she held JingJing against the door and felt the wood vibrate under JingJing's palms.
+
+Thirty seconds of silence. Breathing.
+
+Jan pulled out. Tucked herself away. JingJing's skirt fell. They looked at each other in the mirror. JingJing's makeup was intact. Jan's collar had a wrinkle where JingJing's hand had grabbed.
+
+"Ninety seconds," JingJing said, smoothing her hair.
+
+"Seventy now."
+
+"Worth it."
+
+"You're insane."
+
+"You love it."
+
+"I do. And we're still going to die."
+
+JingJing kissed her — quick, light, punctuation — and opened the door.
+
+The hallway was empty. Fah had cleared it.
+
+They walked back to set. Professional distance. The distance of two women who had definitely been doing private character work.
+
+Prae looked at them when they returned. At Jan's flush. At JingJing's brightness. At the seventy-second overshoot.
+
+"Everything okay?" Prae asked.
+
+"Fine," Jan said.
+
+"Great character work," JingJing said.
+
+Prae closed her eyes. Opened them. "Take seven. Places."
+
+---
+
+Fah found Lin in the break room at 3 PM.
+
+Lin was staring into a cup of tea she'd made fifteen minutes ago and hadn't touched. The tea was cold. Lin was running at a body temperature approximately two degrees below normal, the state her doctor called "sustained sympathetic arousal" and she called "being Jan and JingJing's involuntary keeper."
+
+Fah sat across from her. Set the clipboard on the table. The clipboard was covered in post-it notes, each containing a time, a location, and a threat level.
+
+"2:17," Fah said.
+
+"What happened at 2:17?"
+
+"Sirin went to the dressing room."
+
+Lin put down her tea. "And?"
+
+"The door was unlocked."
+
+"*And?*"
+
+"I intercepted. Redirected. Schedule excuse. She didn't get in."
+
+"How close?"
+
+"She turned the door handle, P'Lin. She *turned* it. If I'd been thirty seconds later—"
+
+"Were they—"
+
+"I don't know what they were doing and I *don't want to know*." Fah's voice cracked. The clipboard, the post-its, the laminated schedules — all of it was a shell, and underneath the shell was a twenty-four-year-old who loved two people and was terrified for them and was starting to buckle.
+
+"They walked out seventy seconds over," Fah said quietly. "Jan was flushed. JingJing was glowing. The glow. You know the glow."
+
+"I know the glow."
+
+"I can't do this alone, P'Lin. I have her bathroom breaks memorized. *Sirin's bathroom breaks.* And today she deviated. She was supposed to be in the editing suite until four. She left at 2:15. I barely—"
+
+Fah stopped. Her hands were shaking. The post-its trembled.
+
+Lin reached across the table. Took Fah's hands. Held them.
+
+"We're going to be okay," Lin said.
+
+"We're going to be *caught*."
+
+"We're not. Because starting tonight, we change the system." Lin sat back. "New rules. Three of them. One: the door locks. Always. No exceptions. Two: staggered dressing room schedule. Jan and JingJing get separate time blocks. Fah manages the calendar. Three: no unsupervised time alone on set. You are their shadow."
+
+"They won't follow that."
+
+"They'll follow it for three days. Then they'll slip. Then we remind them. Then three more days. That's the cycle. We're not preventing the behavior. We're managing the blast radius."
+
+"Since when are you a crisis manager?"
+
+"Since two idiots I love decided to fuck in a building full of journalists."
+
+Fah laughed. Watery, weak, but a laugh.
+
+"I'm also starting something," Lin said. She pulled out her phone. "Group chat. You, me, Prae, Mook."
+
+"What's it called?"
+
+Lin typed. Showed the screen.
+
+**Operation: Keep These Idiots Alive**
+
+Fah stared at it. Then laughed again, harder, and this time it was real.
+
+"Perfect," Fah said.
+
+"I'm also pulling Sirin's daily footage request logs. I want to see what she's been asking for. What she's reviewing. If she's focusing on specific dates or specific footage."
+
+"Can you do that?"
+
+"I'm co-executive producer. I can do whatever I want. It's the only perk of this job, and I'm exercising it before these two turn my hair gray."
+
+In the group chat:
+
+**Lin:** Emergency meeting tonight. Jan and JingJing's apartment. 8pm. I'll bring wine.
+
+**Fah:** Already packing my clipboard.
+
+**Prae:** What happened?
+
+**Lin:** 2:17 happened.
+
+**Prae:** How bad?
+
+**Fah:** Door handle, P'Prae. She TURNED the door handle.
+
+**Prae:** ...
+
+**Prae:** I'm bringing whiskey.
+
+**Mook:** I'm bringing Xanax. For Lin.
+
+**Lin:** Accepted.
+
+---
+
+Outside the production building, in the parking lot, Sirin sat in her car.
+
+She had not gone to Fah's desk. She had let Fah redirect her, let the chatter carry her down the hallway, let the schedule conversation happen, and then excused herself. The schedule had been genuine. Fah's urgency had not.
+
+In her notebook:
+
+*2:17 PM. I went to the dressing room. The door was closed. Fah appeared within 15 seconds — not from the adjacent hallway but from the direction of the studio, which means she tracked my movement from there. She redirected me with a cover story (schedule update) that was partially true and entirely strategic.*
+
+*I didn't try the door handle. I knocked. But Fah's response was calibrated for a worst-case scenario — she spoke before I could try the handle, before I could hear what was happening inside, before anything could be confirmed.*
+
+*What was she preventing me from hearing?*
+
+*The timing: PS and PY had been in the dressing room for approximately 6 minutes of a 5-minute break. They returned 70 seconds over. PS was flushed. PY was bright. Fah's face when they emerged was relief, not neutral. Relief.*
+
+*Adding to the pattern. Cross-referencing with previous entries: this is the fourth dressing room incident. In each case, Fah appeared within 30 seconds of my proximity. Her response time suggests she is tracking my location in real time.*
+
+*She has my bathroom breaks memorized. I've been watching the crew. The crew has been watching me. The question is: who is better at this?*
+
+Sirin closed the notebook. Sat with the silence of the car and the baking parking lot and the picture that was almost complete.
+
+Not complete. Almost. She had the frame. She had the negative space. She had the crew's behavior and the Instagram timestamps and the hotel bookings and the catering logs and Prae's careful deflection and Lin's stress responses and Fah's supernatural intercept ability.
+
+What she didn't have was the image inside the frame.
+
+She started the car. She had a documentary to edit. She had footage to review. And somewhere in that footage, in the thousands of hours of B-roll and behind-the-scenes material she'd been given access to, there would be a moment. An unguarded moment. The kind of moment that cameras caught by accident, the kind that slipped through the crew's defense because the crew couldn't be everywhere at once and the cameras were always rolling.
+
+Sirin would find it.
+
+She always did.
+
+---
