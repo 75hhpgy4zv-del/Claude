@@ -2038,3 +2038,366 @@ Tonight was enough.
 Tomorrow, it would have to be enough again.
 
 ---
+
+## Chapter 7: The Fan Meet
+
+The pre-fancon meet-and-greet was held at CentralWorld, in a space decorated with the *Enemies with Benefits* palette: deep purple and rose gold. Twelve hundred fans. Ninety minutes. Forty staff members whose job was to ensure the talent had no opportunity to do anything off-brand.
+
+JingJing was in the greenroom backstage, staring at her reflection. The outfit Khun Dao's team had selected: cream silk blouse, high-waisted black trousers, ankle boots. Makeup: natural but deliberate, an hour to look like five minutes. She looked like JingJing-the-brand: warm, polished, approachable.
+
+Available.
+
+The ring on the chain was under the blouse. She could feel it pressing against her sternum.
+
+Jan appeared behind her in the mirror. Black suit. White shirt. No tie. Hair in a low ponytail. She looked like money. She looked like trouble. She looked like the reason JingJing's brain had a permanent short-circuit.
+
+"You look good," Jan said.
+
+"I know."
+
+"Humble."
+
+"Accurate."
+
+Jan stepped closer. Her hand found the small of JingJing's back. The spot. The place where Jan's palm fit like it had been measured for it.
+
+"Don't do that on stage," JingJing said.
+
+"Do what?"
+
+"Touch me like you own me."
+
+"I do own you."
+
+"Not in public."
+
+Jan's mouth curved. "The fans would love it."
+
+"The fans would lose their minds and Khun Dao would lose hers in a different way and I am not—"
+
+The greenroom door opened. Fah. Clipboard. Headset.
+
+"Five minutes. Sirin is in the audience, press seating, stage right. Two cameras, no mics. P'Jan, please remember that the audience will be recording on their phones. Everything is content. Everything goes to Twitter. Everything is permanent."
+
+"We know, Fah."
+
+"Do you? Because last week—"
+
+"We *know*."
+
+Fah looked at Jan's hand on JingJing's back. Looked at the mirror. Their reflection: two women standing too close, Jan's hand in its place, JingJing leaning into the touch like gravity.
+
+Fah closed her eyes. Opened them. Smiled brightly.
+
+"Great! Let's go!"
+
+---
+
+The fan meet was organized chaos. Signing tables. Photo stations. A main stage for the Q&A, which was the part that made Lin, watching from the wings, reconsider her career choices.
+
+Jan and JingJing sat side by side on stage. Two stools, two microphones, one moderator — a bubbly entertainment reporter named Beam who ran the biggest GL fan account in Southeast Asia and who treated the JanJingJing ship with the reverence of a religious scholar studying sacred texts.
+
+The questions came.
+
+"P'Jan, P'JingJing — what's it like working together again on *Married to My Enemy*?"
+
+JingJing leaned into her mic. "It's terrible. She's impossible. She never learns her lines."
+
+Jan: "I always learn my lines."
+
+JingJing: "She learned them wrong for episode three."
+
+Jan: "I learned them *differently*. For creative purposes."
+
+JingJing: "She argued with the director about it for forty-five minutes and Prae threatened to replace her with a mannequin."
+
+The audience screamed. Twelve hundred people, mostly women, mostly holding phones, their combined vocal energy hitting jet-engine decibels. They lived for this: the bickering, the eye contact, the push and pull.
+
+It was exactly what Khun Dao wanted. The possibility. The maybe. And the audience was projecting into a gap that didn't exist, because there was no gap. There was Jan and JingJing, and the space between them was zero, had been zero for over a year, would be zero for the rest of their lives. The audience was watching a performance of possibility while the certainty sat on stage, touching knees.
+
+"Next question," Beam said. "This one is from @janjingjing_th — our biggest fan account!"
+
+Signs went up: JANJINGJING FOREVER, printed on cardboard, decorated with glitter.
+
+"The question is: 'Are you two together in real life? We need to know. We can't eat. We can't sleep. We need closure.'"
+
+The audience laughed. Screamed. Laughed.
+
+Jan looked at JingJing. JingJing looked at Jan. For one beat — maybe two — there was nothing between them but the truth. It was in Jan's eyes, amber and steady, full of the specific certainty of someone looking at the person they were going to marry in two months. It was in JingJing's eyes, wide and warm, holding everything she couldn't say.
+
+A heartbeat.
+
+Then JingJing turned to the audience, smiled her biggest smile, and said: "We're very good friends."
+
+The collective groan. Theatrical, delighted, exactly as disappointed as they wanted to be. Someone yelled "LIES!" from the back. The @janjingjing_th account was already posting a screenshot of their eye contact with the caption: "bestie looking at her BESTIE 😭😭😭 I'm fine I'm normal about this"
+
+Backstage, Lin exhaled.
+
+In the press section, Sirin watched. Not the Q&A. The moments between the Q&A. The way Jan's hand drifted toward JingJing's stool and then stopped itself. The way JingJing's body angled toward Jan like a compass needle. The way their laughter synced, not the timing but the *quality*, the same warmth in the same register, as if they were running on the same current.
+
+She wrote: *Physical ease. Not performing closeness — performing distance. The effort is in the gap, not the contact.*
+
+---
+
+The signing portion was after. Two tables, side by side. Fans filed through. Ninety seconds per person: sign, smile, photo, next.
+
+JingJing was good at this. She could make every person who reached her table feel like the only person in the room. It wasn't a trick. JingJing liked people. She liked being liked. The attention was a gift and she received it with the open-handed gratitude of someone who remembered what it felt like to be seventeen and standing in line to meet someone who mattered.
+
+A girl — sixteen, maybe seventeen — reached JingJing's table. She was shaking. Not the theatrical kind. The genuine, fine-motor tremor of a person having the most overwhelming experience of their life.
+
+She held out a poster. Her hands could barely hold it.
+
+"P'JingJing," she whispered. "I — the show — it helped me. I'm — I didn't know I was—"
+
+She stopped. Swallowed. Tried again.
+
+"I watched *Enemies with Benefits* and I realized that I—"
+
+She couldn't finish. Her eyes were full.
+
+JingJing reached across the table and took both of the girl's hands. Not the poster. Her hands. Held them.
+
+"I know," JingJing said. Soft. Steady. The voice she used with Noo-Noo and with Jan at 3 a.m. "I know. And it's okay. And you're brave. And I'm proud of you."
+
+The girl cried. JingJing held her hands and let her cry and didn't rush her and didn't glance at the line.
+
+Jan, at the next table, saw it. Saw JingJing holding a stranger's hands. Saw the girl's tears. Saw JingJing's face: open, tender, the mask entirely gone.
+
+Her chest hurt. The actual, specific ache of loving someone so much that watching them be kind to a stranger made your heart compress.
+
+The girl moved on. The line continued. And every time a fan asked "are you together?" JingJing said "we're very good friends" and the lie tasted like ash.
+
+---
+
+The fan meet ended at 8. The greenroom emptied. In the parking garage, Jan unlocked the car. JingJing slid into the passenger seat and the silence hit like a wall.
+
+JingJing pulled the chain from under her blouse. Held the ring. Looked at it.
+
+"I said it fourteen times," she said.
+
+"Said what?"
+
+"'We're very good friends.' Fourteen times. I counted."
+
+Jan didn't start the car. She sat with her hands on the wheel and looked at JingJing: the ring in her hand, the mascara smudged under one eye, the specific shade of exhausted that came not from physical effort but from holding a shape that wasn't hers for three hours.
+
+"Come here," Jan said.
+
+"We're in a parking garage."
+
+"I don't care."
+
+Jan pulled JingJing toward her. JingJing resisted for half a second and then gave in, falling across the console, face pressed into Jan's neck, breathing her in. Jan's arms came around her. Tight. The kind of hold that was less comfort than architecture, like Jan was physically holding her together.
+
+"Take me to the hotel," JingJing said into Jan's throat.
+
+"You want to go home."
+
+"I want the hotel. The one by the venue. Book us a room."
+
+"JingJing—"
+
+"I don't want to drive an hour home. I want to be behind a locked door with you in ten minutes. I want—" Her voice dropped. "I want to remember who you belong to."
+
+Jan's arms tightened. She reached for her phone and booked the room.
+
+---
+
+The hotel was a Marriott. The room was on the fourteenth floor. The door closed behind them and JingJing locked it — deadbolt, chain, the compulsive double-check of someone who needed the boundary between inside and outside to be physical, tangible, something she could hear click.
+
+Jan stood in the center of the room. Still in the suit. The suit that twelve hundred fans had seen. The suit that Sirin had documented. The suit that Golf's hand had held three days ago in photographs that were right now being color-corrected at a magazine office somewhere, photographs of Jan's hand in someone else's, photographs that the world would see and interpret as evidence of a life that didn't include JingJing.
+
+JingJing turned from the door.
+
+The possessiveness was not simmering anymore. It was here. All of it. Every ounce of every smile she'd forced and every "very good friends" she'd delivered and every moment she'd watched fans scream at Jan and Jan perform availability and Jan smile the public smile that belonged to everyone and nobody.
+
+"Take off the jacket," JingJing said.
+
+Jan looked at her. Read her. Jan could always read her, the way you read weather — the pressure, the temperature, the specific electromagnetic charge that preceded lightning.
+
+Jan took off the jacket. Laid it on the chair.
+
+"Shirt."
+
+Jan unbuttoned the shirt. Slowly. Watching JingJing's face while she did it. The shirt fell open. Underneath: a white undershirt, the line of her collarbone, the muscle of her shoulders.
+
+"That too."
+
+The undershirt came off. Jan stood in the hotel room in her trousers and nothing else, and JingJing looked at her the way she'd been wanting to look at her all day, the way she couldn't look at her on stage or at the signing table or in the greenroom with Fah and the clipboard and the universe watching.
+
+She crossed the room. Put both hands on Jan's chest. Pushed.
+
+Jan's back hit the wall. Not the bed. JingJing didn't want the bed. The bed was for later, maybe, if there was a later, if she could make it that far. Right now she wanted Jan against a surface that didn't yield, wanted the solid impact, wanted Jan's shoulders flat against the wall and nowhere to go.
+
+"You spent all day performing for them," JingJing said. Low. Close. Her mouth inches from Jan's, her hands spread flat on Jan's bare chest, feeling the heartbeat under her palms. "Smiling for them. Being theirs. Fan service and stage banter and — and *possibility*." She spat the word like it tasted bad. "Possibility. Khun Dao's possibility. The maybe. The what-if. All day you were a what-if for twelve hundred strangers and I had to sit there and watch."
+
+"JingJing—"
+
+"I'm not done." JingJing's nails pressed into Jan's skin. Not hard. A warning. "You held a man's hand in a magazine. You smiled at twelve hundred people. You let Beam ask if we're together and I had to say *friends* and the word made me sick. And now we're in a hotel room and the door is locked and no one can see us and you are going to perform for ME."
+
+Jan's eyes were dark. Her breathing had changed. Her hands hung at her sides, not reaching, not taking. Waiting. Letting JingJing have this.
+
+"I'm going to mark you," JingJing said. "Everywhere they can't see. Every place the magazine didn't touch and the fans couldn't reach and the cameras didn't find. I'm going to put my mouth on every inch of you that belongs to me and leave evidence. And tomorrow you're going to go to set and sit in a chair and feel every single mark under your clothes and remember who you belong to."
+
+"I know who I belong to."
+
+"I know you know. I want your body to know too."
+
+JingJing kissed her. Hard. Not the tender kiss, not the forehead kiss, not any kiss they'd shared before. This was the possessive kiss, the one with teeth and ownership and the accumulated fury of three hours of "very good friends." She bit Jan's lower lip and Jan groaned, and the sound was the best thing JingJing had heard all day, better than the screaming fans, better than the applause, better than everything, because this sound was hers alone.
+
+She dropped to Jan's neck. Bit. Jan's head fell back against the wall.
+
+"JingJing—"
+
+"Don't talk."
+
+JingJing's mouth moved down. Collarbone. Shoulder. The soft skin at the junction of Jan's neck and shoulder, the place that was always covered by collars and costumes and professionalism. She bit there. Sucked. Left a mark that would bloom purple by morning and would live under Jan's shirt for a week.
+
+Jan's hands came up. Reached for JingJing's hips.
+
+"No." JingJing pinned Jan's wrists against the wall. Both of them. She wasn't strong enough to hold Jan, not really. Jan could break the grip in a heartbeat. But Jan didn't break it. Jan let her wrists be pinned and her eyes went wide and dark and her cock was hard, JingJing could feel it against her stomach, and the knowledge that Jan was this turned on by JingJing taking control was its own kind of power.
+
+"You like this," JingJing said. Not a question.
+
+"Yes."
+
+"You like me like this."
+
+"I love you like this."
+
+"Then be still."
+
+JingJing released her wrists. Unbuckled Jan's belt. Pulled down the zipper. Jan's trousers fell. The boxer briefs were tight across the hard length of her and JingJing pressed her palm against it, feeling Jan throb through the fabric, and Jan's hips jerked forward.
+
+"Still," JingJing said.
+
+"I'm trying—"
+
+"Try harder."
+
+JingJing pulled the briefs down. Jan sprang free, thick and hard and curved to the left, and JingJing wrapped her hand around the shaft and stroked once, firmly, root to tip, and Jan's breath left her in a rush.
+
+"This is mine," JingJing said. Her hand tightened. "Say it."
+
+"Yours."
+
+"All of it. Every inch. Not Golf's. Not the fans'. Not the magazine's. Mine."
+
+"Yours, JingJing. All of it."
+
+JingJing dropped to her knees. Jan's breath caught.
+
+She took Jan in her mouth. Not gently. Not the slow, teasing way she usually started. She took as much as she could and sucked hard and Jan's hand flew to the back of her head, fingers in her hair, and the sound Jan made was broken and desperate and JingJing's.
+
+She pulled off. Looked up. Jan's face above her, flushed, lips parted, eyes black with want.
+
+"Don't come yet," JingJing said.
+
+"I—"
+
+"*Don't come yet.* I'm not done with you."
+
+She stood. Pushed Jan toward the bed. Jan went, stumbling out of her trousers, and JingJing stripped her own clothes off as she followed: blouse, bra, trousers, underwear. The chain and the ring stayed. She pushed Jan down onto the mattress and straddled her, and Jan reached for her hips, and this time JingJing let her, let Jan's hands grip the curves of her waist, because she needed Jan to hold on for what came next.
+
+JingJing rose up. Took Jan inside her in one motion. All of it. Ten inches. Fast.
+
+"*Fuck*—" Jan's fingers dug into JingJing's waist.
+
+"Shut up." JingJing began to move. Not slow. Not the careful, aching pace of Chapter 4. This was fast and hard and furious, JingJing slamming herself down onto Jan with the rhythm of someone making a point, each descent a punctuation mark, each impact a word in the sentence *you are mine you are mine you are mine.*
+
+"JingJing — *god* — you're—"
+
+"Shut *up*." JingJing leaned forward. Found Jan's neck. Bit again. Another mark. Another piece of evidence that the magazine couldn't photograph and the fans couldn't see and Khun Dao couldn't strategize away. Her teeth on Jan's skin while she rode her, the taste of sweat and possession, and Jan was moaning underneath her, hands gripping JingJing's hips hard enough to bruise, and JingJing wanted the bruises. Wanted the finger-shaped marks on her hips the way Jan would want the bite marks on her neck: proof. Private proof that the public version was a lie.
+
+"You — *ah* — you feel so good — Daddy — *fuck*—"
+
+She was losing the script. The possessive fury dissolving into the physical, the anger bleeding into pleasure, because Jan inside her was Jan inside her regardless of the emotional framework and JingJing's body didn't care about jealousy or magazines or PR strategy, JingJing's body just cared about *this*, about the fullness and the friction and the angle that hit the spot that made her scream.
+
+She screamed. Not quietly. The hotel room walls were thick enough or they weren't. She didn't care.
+
+"Come inside me," JingJing gasped. "I want to feel it. I want — Daddy, I'm close — come with me—"
+
+"I—"
+
+"*Now.*"
+
+They came together. JingJing clenching around Jan, Jan pulsing inside her, JingJing's nails drawing four parallel lines down Jan's chest that would sting for days and that Jan would touch in the shower tomorrow and remember. JingJing screamed Jan's name and Jan said hers, quiet, reverent, and the contrast was their whole relationship: JingJing loud and Jan steady and both of them destroyed.
+
+JingJing collapsed onto Jan's chest. Breathing hard. Shaking. Jan's arms came around her, and for a long moment the only sound was their breathing and the distant hum of the hotel air conditioning.
+
+"I have bite marks on my neck," Jan said.
+
+"You have four."
+
+"Four."
+
+"One for every time I said 'very good friends' that I remember specifically wanting to scream."
+
+"There were fourteen."
+
+"I ran out of neck space."
+
+Jan laughed. The quiet, private laugh, the one that vibrated through JingJing's ribcage. Her hand came up to JingJing's hair. Slow strokes.
+
+"Feel better?" Jan asked.
+
+"I feel like I just exorcised a demon through sex."
+
+"The demon being jealousy?"
+
+"The demon being the entire Thai entertainment PR apparatus."
+
+Jan kissed the top of her head. "You're terrifying when you're possessive."
+
+"You loved it."
+
+"I loved it."
+
+"You came in about thirty seconds when I—"
+
+"I am aware of the timeline. Thank you."
+
+JingJing smiled against Jan's skin. The possessiveness was quiet now. Not gone. It would never be gone. But it was sated, the teeth retracted, the creature fed and drowsy. She traced the marks she'd left on Jan's collarbone. Four crescents. Four claims.
+
+"P'Jan?"
+
+"Hmm?"
+
+"At the fan meet. The girl. The one who was shaking. Who said the show helped her figure out that she—"
+
+"I saw."
+
+"When we can finally be honest. When we can stand on a stage and say *yes, we're together* — it's going to be for her. For every kid like her who's sitting in their room watching our show and hoping it's real. When we tell the truth, we're not just — we're not just relieving ourselves. We're telling them it's possible. That two women can love each other like this and not just survive it but *choose* it. In public. With their whole names."
+
+Jan was quiet. Her hand kept moving in JingJing's hair.
+
+"November," Jan said. "The fancon."
+
+"The fancon."
+
+"Imagine her face."
+
+JingJing closed her eyes. Imagined it. The girl in the crowd. The question from the back of the room. The moment Jan says "yes" instead of "we're very good friends." The sound the room would make. The sound that one girl would make.
+
+"I can wait," JingJing said. "For that. I can wait."
+
+"Two months."
+
+"Two months."
+
+They lay in the hotel room. The ring on its chain between them. The marks on Jan's neck darkening. The scratches on her chest already raised and red. The evidence invisible to everyone except the two people who made it.
+
+Downstairs, in the lobby, Sirin was writing her notes from the evening. She had noticed six things during the fan meet that she filed in the pattern she was building:
+
+1. Jan's hand drifted toward JingJing eight times during the Q&A. It stopped itself each time. The stopping was the tell.
+2. JingJing's "very good friends" was delivered identically each time. The same smile, the same intonation, the same practiced warmth. Identical repetition is rehearsal, not spontaneity.
+3. Their knee contact on the stools was continuous. Ninety minutes. Never broken.
+4. When the young fan cried, Jan watched JingJing, not the fan. Jan's expression during that moment was not collegial concern. It was something else.
+5. They left in the same car. Again.
+6. They did not come back.
+
+Sirin closed her notebook. She didn't know the story yet. But she could feel its shape the way you feel a word on the tip of your tongue: present, unspoken, waiting to be said.
+
+She ordered a coffee. She had time.
+
+---
