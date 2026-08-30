@@ -269,31 +269,36 @@ When Jan and JingJing go public, they go to Sirin first. They give her the exclu
 - SEX: No. The broadcast is the climax. The chapter is about performance, not intimacy.
 - SIRIN: In the audience. Watching. Her notebook is closed. She already knows how this story ends — she's waiting for Jan and JingJing to start telling it.
 
-**Chapter 25: The Wrap Party**
-- PURPOSE: The exhale. The show is done. Sirin's draft is submitted. The crew celebrates. Jan dances with JingJing openly — the first public-ish display in front of the full crew. The chapter is about RELIEF — the end of production, the end of the daily hiding, the crew's emotional release.
-- CHANGES: The performance is over. The reveal is imminent. The crew — who have been holding this for months — can finally let go.
-- SEX: No. The dancing IS the intimacy. Jan and JingJing dancing in front of sixty people who protected them. Lin putting down the clipboard. That's the sex scene of this chapter — the public tenderness that would have been impossible six months ago.
-- SIRIN: She tells JingJing about the article — what's in it, what isn't. She gives JingJing the wedding present (she knows — she's always known). The reveal of her knowledge is quiet, factual, kind. Not the big confrontation — that was Ch 17 with Jan. This is the coda.
+**Chapter 25: The Wrap Party & The Post**
+- PURPOSE: Two beats in one chapter. FIRST HALF: The wrap party. The exhale. Sirin's conversation with JingJing (what the article contains, the wedding present, the quiet acknowledgment). Jan dances with JingJing in front of the crew. Lin puts down the clipboard. The sixty co-conspirators celebrate. SECOND HALF: The morning after the party. The Instagram post. The ten seconds between pressing "share" and the world changing. The detonation. The phones exploding. The first sex as public wives.
+- WHY COMBINED: The wrap party and the post are both "the hiding ends" beats. Putting them in one chapter prevents the repetition of restating the same emotional note across two chapters. The wrap party is the private ending (the crew knows). The post is the public ending (the world knows). Together they form a single arc: the secret leaves the inner circle and enters the world.
+- CHANGES: The hiding is over. The world knows. The wrap party is the last private moment; the post is the first public one.
+- SEX: Yes. After the post. Morning sex, phones buzzing. JingJing removes the chain from her neck (the chain that held the ring). Sets it down. The ring stays on her finger. The chain is empty forever. Sex with the curtains open. The "free" sex — the first time with nothing left to hide. Should feel physically DIFFERENT from every previous scene — lighter, unhurried in a new way, the specific absence of a weight they'd carried so long it had become part of their body mechanics.
+- SIRIN: At the wrap party. She tells JingJing about the article. Gives her the gift. The quiet coda to their dynamic. Not present for the post — that's Jan and JingJing's.
 
-**Chapter 26: The Post**
-- PURPOSE: They go public. The Instagram posts. The reaction. The detonation. This chapter is about the MOMENT — the ten seconds between pressing post and the world changing.
-- CHANGES: The hiding is over. Permanently.
-- SEX: Yes. The "free" sex. Morning sex, after posting, phones buzzing beside them. The first sex where they have nothing left to hide. The contrast with every previous scene: no locked door anxiety, no timer, no secrecy. JingJing removes the chain from her neck (the chain that held the ring). She sets it down. The ring is on her finger. The chain is empty. Then she fucks her wife in the morning light with the curtains open and doesn't care. The sex should feel DIFFERENT from everything before — lighter, freer, the absence of a weight they'd been carrying so long they'd forgotten it was there.
-- SIRIN: Not present. This is Jan and JingJing's moment.
+**Chapter 26: The Fancon**
+- PURPOSE: THE VICTORY LAP. The emotional climax of the public arc. This is the chapter the entire book has been building toward — the moment where Jan and JingJing stand in front of six thousand fans and are HONEST for the first time. Everything in the book — the hiding, the crew's terror, the near-misses, the Sirin investigation, the network pressure, the secret wedding — pays off in this room.
+- WHY IT NEEDS ITS OWN CHAPTER: The fancon is the mirror of Ch 7 (The Fan Meet). In Ch 7, fans asked "are you together?" and Jan and JingJing deflected. The engagement ring burned on its chain. They performed availability. They smiled practiced smiles. In Ch 26, a fan asks the same question and Jan says "yes" and the word is a detonation. The CONTRAST between those two chapters is where the emotion lives. We've been at a fan event with these characters before. We know what it felt like to hide. Now we feel what it feels like to stop.
+- KEY BEATS (specific, not summarized):
+  1. **Backstage**: Lin's pre-show briefing. But different — she's not managing a crisis, she's managing a celebration, and she doesn't know how. Her hands aren't shaking from anxiety. They're shaking because she doesn't know what to do with them when they're not holding a clipboard defensively. Fah is there. Mook is there. The crew is there. They're ALL nervous — not afraid, joyful-nervous, the stage fright of something good about to happen.
+  2. **The walk-on**: Jan takes JingJing's hand. In front of six thousand people. The roar. Not summarized as "the crowd erupted" — described as a PHYSICAL experience. The vibration in the stage floor. The heat of the lights. The sound hitting their bodies. JingJing's knees going weak. Jan's hand tightening.
+  3. **The Q&A — the specific fan**: A fan who was at the Ch 7 fan meet. She stands at the mic. She's shaking. She says: "At the last event, I asked if you were together. You said 'we're very good friends.' I want to ask again." The room goes silent. Six thousand people holding their breath. Jan looks at JingJing. JingJing nods. Jan turns back to the fan and says "Yes." One word. The simplest word. The room detonates. But the camera stays on the FAN — her face, her tears, the specific joy of someone who believed in something and was right. This isn't about Jan and JingJing. This is about what it means to a queer fan to see two women say "yes" into a microphone.
+  4. **Noo-Noo**: JingJing pulls the rabbit from behind the cushion. But it's not a bit — it's a statement. "I was told to hide this. I was told it wasn't on brand. This is Noo-Noo. She was our ring bearer. She has been with us since the beginning." The crowd's reaction isn't just screaming — it's RECOGNITION. The fans who noticed the rabbit in behind-the-scenes photos, who theorized about it, who made fan art of it, who understood that the rabbit meant something before anyone told them what it meant. JingJing holding Noo-Noo up is JingJing saying: the soft parts of me are not a liability. The things I hide are the things that matter most.
+  5. **"The Real Story" segment**: Not a summary of "they told the truth." Specific moments. JingJing saying "Jan smiles when she talks about me. She doesn't know she does it. She did it in the first interview with Sirin and Lin almost had a heart attack." The crowd laughing. Jan covering her face. The revelation of specific details from the story we've been reading — the fire extinguisher, the dressing room schedule, the group chat name ("Operation: Keep These Idiots Alive" — they tell the crowd and the crowd LOSES it). Lin backstage, hearing her group chat name read aloud to six thousand people, and laughing for the first time.
+  6. **The performance of "งั้นรักละ"**: Live, acoustic. But now the lyrics mean something different. "Don't wanna, but I do" — the audience knows now. The audience sings it back. JingJing cries. Jan's hand on her knee. The song that played over the credits of every episode, that the fans sang at every event, that meant JanJingJing to half a million people — it means the same thing now, but the truth behind it is visible.
+  7. **Backstage after**: Lin at the monitor. Clipboard on the table. Not in her hands. Not needed. She's watching Jan and JingJing on stage and her face is doing the thing — the crack, the joy — and Fah stands beside her and says nothing and they watch together and the silence between them is the sound of a mission completed.
+- CHANGES: The public reveal is complete. Not just "people know" — people have CELEBRATED. The fans aren't just informed, they're participants. The relationship is no longer a secret or an announcement — it's a shared joy.
+- SEX: No. The fancon IS the climax. The emotional release happens in public, in front of six thousand people. The intimacy is the honesty.
+- SIRIN: Not present at the fancon. The article hasn't published yet. But the reader knows it's coming.
 
-**Chapter 27: The Fallout**
-- PURPOSE: The world reacts. Fans, press, network. The fancon (now transformed from closeted fan-service event to public celebration). Lin sleeping twelve hours. Fah crying. The machinery of revelation — what happens when a secret this big enters the world.
-- CHANGES: The world knows. The reactions are in. The fear was unfounded — or rather, the fear was real but the outcome is joy.
-- SEX: No. This chapter is about the public sphere. The intimacy is in the public gestures — holding hands on stage at the fancon, Jan kissing JingJing's temple in front of six thousand people.
-- SIRIN: Not directly present, but the reader knows her article is coming.
+**Chapter 27: Sirin's Piece**
+- PURPOSE: The article publishes. Sirin's arc pays off. The piece is a love letter — earned, not gifted. Jan and JingJing gave her the exclusive sit-down (the debt from Ch 17 honored). The article quotes Jan with attribution because Jan gave permission. The piece is about the space between performance and truth, and it's beautiful because Sirin lived in that space, made a costly professional sacrifice, and was rewarded with a story better than the one she gave up. Also covers: the broader fallout — Lin sleeping twelve hours, Fah crying, KapookCiize's suspiciously well-timed congratulations, the network pivoting. These reactions are woven around the article, not given their own chapter.
+- CHANGES: The story is told. Every version of it — Jan and JingJing's (the post, the fancon), the fans' (the reaction), and now Sirin's (the definitive account). The narrative is complete.
+- SEX: No. The article is the intimacy.
+- SIRIN: Her climax. Excerpts of the article — the Noo-Noo passage, the crew passage, the line about the collar-adjusting footage she chose not to use. The reader should feel that Sirin's article was worth three months of buildup. The gift — the framed wrap-party photograph — was given in Ch 25. Here we see the article that the gift preceded.
 
-**Chapter 28: Sirin's Piece**
-- PURPOSE: The article publishes. The payoff of Sirin's entire arc. The piece is a love letter — but it's EARNED. She earned the right to write it by not writing the exposé. Jan and JingJing gave her the exclusive sit-down (honoring the debt from Ch 17). The article quotes Jan: "I never hated her." Sirin attributes it — Jan gave her permission. The piece is about the space between performance and truth, and it's beautiful because Sirin lived in that space for three months and chose integrity over career and was rewarded with a better story than the one she gave up.
-- CHANGES: The story is told. Sirin's version. The definitive account.
-- SEX: No. The article IS the intimacy — being seen accurately by someone who earned the right to see you.
-- SIRIN: Her climax. The article in full (excerpts, not the whole thing). The reader should feel that this article was worth the wait — that Sirin's arc has paid off, that her choice in Ch 17 led to something better than what she sacrificed.
-
-**Chapter 29: The Honeymoon**
+**Chapter 28: The Honeymoon**
+(was Ch 29 in original outline)
 - PURPOSE: Release. Freedom. Kyoto. The sex without walls. JingJing and Noo-Noo at the airport. Public affection without consequence. The honeymoon as the first chapter of the rest of their lives.
 - CHANGES: They're free. The story's central tension — hiding — is gone. What remains is the relationship itself, unmediated.
 - SEX: Yes. MULTIPLE scenes, each with a distinct register:
@@ -303,7 +308,7 @@ When Jan and JingJing go public, they go to Sirin first. They give her the exclu
   Each scene should feel DISTINCT — different pace, different mood, different physical vocabulary. Not the same template three times.
 - SIRIN: Not present. Gone. Her job is done.
 
-**Chapter 30: Epilogue — One Year Later**
+**Chapter 29: Epilogue — One Year Later**
 - PURPOSE: The coda. Same dressing room. Same lot. New show. Milk and Love across the lot, married now (dropped casually — Ditto setup). Noo-Noo on the shelf. The ring in the open. The world knowing. The normalcy of happiness. The extraordinary become ordinary, which is its own kind of miracle.
 - CHANGES: None needed. This is the landing. The story is over.
 - SEX: Not a scene, but a MOMENT — the implication. The deadbolt on the dressing room. JingJing being bratty. Jan already reaching for her belt. The reader knows what happens next. The chapter ends before it happens. The most erotic moment in the epilogue is the one we don't see — because by now, the reader's imagination is the best writer in the room.
@@ -324,6 +329,11 @@ Things that, once established, must be tracked and not repeated or contradicted:
 - [ ] "I never hated you" — the line appears 3 times max: once in the rehearsal (Ch 9), once in the vow scene (Ch 20), once in Sirin's article (Ch 28). Not sprinkled everywhere.
 - [ ] Ring on chain vs. ring on finger: tracked precisely. Chain until wedding, finger after.
 - [ ] Wedding countdown: used sparingly. Not every chapter ending.
+- [ ] Ch 7 fan's question ("are you together?"): asked in Ch 7, deflected. Same fan or same question returns in Ch 26 fancon. The callback must be specific — not just thematic echo, an actual mirror.
+- [ ] The rough cut's collar-adjusting moment (Ch 12): Sirin chose not to use it. Referenced in Ch 27's article as the footage she left out. Closed.
+- [ ] Sirin's professional sacrifice (Ch 17): the debt. Honored in Ch 25 when Jan/JingJing give her the exclusive sit-down. Referenced in Ch 27's article.
+- [ ] "Operation: Keep These Idiots Alive" (Ch 10): the group chat name. Revealed to the crowd at the fancon (Ch 26). Lin's reaction to hearing it said aloud.
+- [ ] Fah's folder: appears when needed, not in every chapter. Not a running gag — a character detail.
 
 ---
 
@@ -349,9 +359,9 @@ Each sex scene has a distinct emotional function. No two scenes share the same r
 | 21 | Impatient/overflow | Quick/one-sided | JingJing | In the car, Jan driving, traffic light |
 | 22 | Transcendent/sacred | Wedding night | Both | First time as wives, crying and coming |
 | 23 | Comedic/stolen | Quickie | Jan | 4-minute window, Lin counting outside |
-| 26 | Free/open | Post-reveal | JingJing rides | Chain removed, curtains open, phones buzzing |
-| 29a | Luxurious/slow | Honeymoon arrival | Jan | Ryokan futon, unlimited time |
-| 29b | Loud/exhibitionist | Outdoor | Both | Hot spring, steam, acoustics, freedom version |
-| 29c | New/unnamed | "Free sex" | Both | Conversation about what changed |
+| 25 | Free/open | Post-reveal | JingJing rides | Chain removed, curtains open, phones buzzing |
+| 28a | Luxurious/slow | Honeymoon arrival | Jan | Ryokan futon, unlimited time |
+| 28b | Loud/exhibitionist | Outdoor | Both | Hot spring, steam, acoustics, freedom version |
+| 28c | New/unnamed | "Free sex" | Both | Conversation about what changed |
 
 No two scenes share the same combination of register + dynamic + who leads.
