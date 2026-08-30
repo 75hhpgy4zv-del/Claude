@@ -2603,3 +2603,415 @@ She drank her coffee. The production hummed around her. Somewhere in the buildin
 For now.
 
 ---
+
+## Chapter 9: The Rehearsal
+
+The table read for the vow scene was scheduled for Tuesday at 10 AM. Main rehearsal room. Windowless, bad lighting, good acoustics, a conference table that seated twenty. Prae had diagrammed the blocking on the whiteboard in three colors of dry-erase marker that nobody but Prae could interpret.
+
+The vow scene was the centerpiece of *Married to My Enemy*. Twelve pages. Lal and Wine in the Nonthaburi garden, exchanging vows they'd written privately, neither knowing what the other would say. Snow Leopard had written it to be the emotional apex of the special. Prae intended to film it as such. The table read was the first test of whether the material could bear the weight.
+
+Everyone was there.
+
+Prae at the head. Kapook reading Tangkwa's reaction shots. Ciize reading Proud's, having arrived from the Ditto set across the lot with the exhausted, untethered energy of someone living in two shows and sleeping in neither. Two camera operators who needed to map the emotional arc before they could plan their shots. The script supervisor. The continuity editor. Lin, reading her supporting role. Fah in the corner with her clipboard, vibrating at her baseline frequency.
+
+And Sirin. Chair against the wall. Notebook open.
+
+Lin had tried to exclude her. She'd made the case to Prae at 7 AM in the supply closet, arguing that table reads were sacred, that actors needed psychological safety to be vulnerable, that a journalist's presence would contaminate the performance.
+
+Prae had listened. "You're right. And we can't. Her access agreement covers table reads. If I block her now, she'll know I'm blocking her. She'll wonder why. Wondering is worse than watching."
+
+"Worse for whom?" Lin had asked.
+
+Prae didn't answer.
+
+Now Lin sat at the table with her script open and her hands folded on top of it. She had taken half a Xanax at 6 AM. She was hoping it would last.
+
+Jan and JingJing arrived together. Jan carrying both coffees. JingJing half a step behind in an oversized cardigan that swallowed her hands and made her look, as Jan privately and helplessly noted, like something you needed to protect from the weather. Her hair was in the two small buns. The chain was under the cardigan. The Noo-Noo keychain was clipped inside her bag, positioned so it was visible if she looked down.
+
+She would look down during the hard parts.
+
+"Page forty-seven," Prae said. "The garden. Exterior. Day. Lal and Wine face each other. The officiant has stepped back. The vows are unscripted. I need truth. I need rawness. I need you to forget this room exists."
+
+Jan opened her script. The page was marked with a small pencil star in the margin. The stage direction read: *Lal takes Wine's hands. Holds them. Looks at her. Speaks.*
+
+Jan looked up from the script. Across the table. At JingJing.
+
+JingJing was mouthing the lines silently, tasting them, the way actors did when they wanted to feel the words before they committed to them.
+
+"When you're ready," Prae said.
+
+Jan read:
+
+"Wine. I spent a year pretending I didn't want you. I was good at it. I was professional. I was controlled. I stood on my side of the room and you stood on yours and the distance between us was a performance I gave every day, for everyone including myself, and the whole time the distance was a lie. Every argument was a love letter. Every insult was a confession. Every time I said 'I hate you,' what I meant was 'I want you so badly it feels like hate, because wanting someone this much is supposed to be painful, it's supposed to cost something, and the cost was pretending I didn't.'"
+
+Jan's voice was steady. Clear. She was not reading. She was reciting something she had known before she'd read it.
+
+"And now I'm standing here and I'm done pretending. I'm done performing distance. I'm done being controlled and professional and careful, because careful is just afraid with better posture. I'm not afraid anymore. I'm not afraid of wanting you. I'm not afraid of people seeing that I want you. The only thing I was ever afraid of was losing you, and you're here, and you're staying, and I—"
+
+Jan stopped. The script had four more sentences. Careful, crafted lines that Snow Leopard had written to land the moment.
+
+Jan didn't read them.
+
+She looked at JingJing across the conference table and said:
+
+"I never hated you. I wanted you so badly it felt like hate."
+
+The room stopped.
+
+Not paused. Stopped. The air conditioning hummed. Nobody moved. Fah's clipboard was pressed against her chest like a shield. Two camera operators stared at the table. Lin, at the far end, was holding her pen in both hands with her jaw locked, the specific rigidity of someone who had swallowed a scream and was waiting for it to dissolve.
+
+JingJing's hands were flat on the table. Her script was forgotten. Her eyes were full, and not the performative wet that actors summoned on command. This was involuntary. This was real. Her right hand drifted toward her chest, found the chain through the cardigan, held.
+
+"That's not in the script," JingJing whispered.
+
+"No."
+
+"P'Jan—"
+
+"Read your vows. Read them to me."
+
+JingJing looked at her script. Blinked until the words sharpened. Read:
+
+"Lal. I was cold because warm was too dangerous. I was strict because loose meant falling, and falling meant trusting someone to catch me, and I didn't trust anyone. I built walls. I organized my life into spreadsheets and protocols and rules, and every rule was a way of saying 'don't touch me, don't see me, don't get close enough to find out what's underneath the cold, because underneath the cold is someone who loves you so much she doesn't know how to say it without the walls. Someone who needs the walls because without them the love is too big. It fills every room I'm in. It takes up every thought I have. It makes me want things I've never wanted before. Be vulnerable. Be soft. Be *seen*.'"
+
+JingJing's voice cracked. She kept reading.
+
+"'And those things terrify me. Being seen terrifies me. But you see me anyway. Through the cold and the walls and the spreadsheets, you've always seen the person I actually am, and you loved her, and that's—'"
+
+Her hand tightened on the chain.
+
+"'That's the bravest thing anyone has ever done for me.'"
+
+The words were in the script. The way she said them was not. The way she said them was the way she said *I love you* at 3 AM, in their bed, small and honest and completely undefended.
+
+The silence held for six full seconds. Sirin counted.
+
+Prae was the first to move. She looked at Jan. At JingJing. At the script, which was irrelevant now, which had been hollowed out and filled with something the writer hadn't put there.
+
+"That," Prae said carefully, "was very good."
+
+"Thank you," Jan said. Her ears were red. Her voice was professional.
+
+"The off-script line stays. I'll talk to Snow Leopard."
+
+"Okay."
+
+"Reaction shots. Lin — page fifty."
+
+Lin did not respond. Lin was sitting at the end of the table in a state that was either clinical shock or chemical calm and was probably both. Her pen had not moved. Her face was a color Sirin had seen on people at funerals.
+
+"Lin," Prae said again.
+
+"I need a minute." Lin stood. The chair scraped. She walked out with the controlled, careful gait of someone whose knees couldn't be trusted.
+
+The door closed behind her.
+
+In the hallway, Lin leaned against the wall, put her face in her hands, and breathed. Just breathed. In through the nose. Out through the mouth. The way her therapist had taught her for moments of acute stress, which had originally been designed for presentation anxiety and was now being applied to the problem of two people she loved destroying their careers in slow motion while reading fictional vows that were obviously, transparently, agonizingly real.
+
+She was fine. She was going to be fine. She was going to walk back in there and sit down and read page fifty and not cry and not scream and not grab both of them by the shoulders and say *do you understand what you just did in front of a journalist*.
+
+She breathed.
+
+In the rehearsal room, Sirin was writing:
+
+*The improvised line. Off-script. "I never hated you. I wanted you so badly it felt like hate." Watch the footage. PS's delivery: addressed to PY, not to the character. PY's response: involuntary. Not acting. The hand to the chest — holding something under the clothing, a habitual gesture I've observed 11 times now. Something on a chain. She reaches for it during emotional peaks.*
+
+*Lin's exit: she didn't leave because the performance moved her. She left because the performance scared her. Different muscles. A person moved by art relaxes afterward. A person scared by truth gets rigid. Lin was rigid.*
+
+*Cross-reference: the "sunrise smile" from the announcement (Sept 1), the fan meet hand-stopping pattern (Sept 14), the adjacent hotel rooms in Chiang Mai, the paired Instagram timestamps, and now this — PS improvising a line that was not Lal speaking to Wine but Jan speaking to JingJing, in front of 18 people, including me, because she could not help herself.*
+
+*Current assessment: the pattern is complete. What remains is the question of what I do with it.*
+
+---
+
+That night, they wrote their real vows.
+
+Not Lal's. Not Wine's. Theirs.
+
+They did it separately, in different rooms. This was the one tradition they'd agreed on without argument: the vows would be heard for the first time in the garden, in front of twelve people. No drafts. No previews. No peeking.
+
+Jan sat at the kitchen table with a notebook and a pen from the Chiang Mai hotel, the one she'd taken without thinking, a small theft from the trip where everything shifted.
+
+She wrote slowly.
+
+*JingJing. You are the worst person I've ever met.*
+
+She looked at the sentence. Smiled. Kept writing.
+
+*You are loud when silence would be easier. You are soft when hardness would be safer. You argue about things that don't matter and go quiet about things that do, which means I always know what you actually care about, because the things you go quiet about are the things that mean the most.*
+
+*You stole my favorite shirt and never gave it back. You eat cereal from the box with your hands. You can't be quiet during anything, ever, and I used to think that was a flaw and now I think it's the bravest thing about you, because being loud means being heard and being heard means being known and you have never once been afraid of being known.*
+
+*I have been afraid of being known my entire life. Then you said "don't you dare stop" and I didn't.*
+
+*I love you. I love Noo-Noo. I love your skincare routine and your platform sneakers and the way you cry at things that aren't sad. I love the way you say "Daddy." Every way. Because every time you say it, you're giving me something you don't give anyone else, and I will spend the rest of my life earning the trust that word contains.*
+
+*I promise to kiss your forehead every morning. I promise to turn the rabbit to face the wall. I promise to never stop.*
+
+Jan put the pen down. Read it back. Changed nothing.
+
+In the bedroom, behind the closed door, JingJing sat cross-legged on the bed with Noo-Noo in her lap and a pen she'd stolen from Jan's desk, because JingJing's relationship with office supplies was the same as her relationship with Jan's wardrobe: what's yours is mine.
+
+She wrote fast. First draft, only draft.
+
+*Jan. P'Jan. Daddy. Three names, same person, my whole world, and I want that on the record.*
+
+*I didn't know I was looking for you. I didn't know I needed someone who could hold both my wrists in one hand and also hold me when I cry and also make my coffee exactly right without asking. I didn't know that was something one person could be. But you are. You are all of those things specifically for me and I am so grateful it makes me stupid. I can't hide it. I've tried. Fah can tell and Lin can tell and the caterers can tell and I don't care. I want everyone to know. I want to stand on a roof and scream it and I will and when I do the scream will sound like your name.*
+
+*You asked me on a beach and I said yes before you finished. I would do it a thousand times. Every time you ask me anything — come here, say please, are you mine — the answer is yes. It was yes in the dressing room when I didn't know what it meant and it's yes now and it will be yes tomorrow and the day after that.*
+
+*I love you. I love your patience and your red ears and the way you think you're subtle when you are not subtle at all. I love that you turned Noo-Noo to face the wall the first time and every time because you understood, without being told, that respecting what's real to me IS loving me.*
+
+*I promise to be loud. I promise to be soft. I promise to steal your clothes and eat cereal from the box and cry at things that aren't sad. I promise to say your name every day until the word is worn smooth and all that's left is the feeling, which is: home.*
+
+*That's what you are. Home.*
+
+JingJing put the pen down. Cried. Wiped her eyes on Jan's Sizzy shirt. Held Noo-Noo.
+
+"What do you think?" she asked the rabbit.
+
+The rabbit said nothing. Being a rabbit.
+
+"Yeah," JingJing said. "Me too."
+
+She put the notebook in the nightstand drawer, behind the extra phone charger. Seven weeks from being said.
+
+In the kitchen, Jan folded her vows into thirds and slipped them into the pocket of the jacket she'd worn to the beach at Hua Hin. Back of the closet, in the dark corner where Jan's clothes lived in exile, pushed there by JingJing's wardrobe expansion, which had consumed the front of the closet like a slow-moving and well-dressed invasion.
+
+She turned off the kitchen light. Opened the bedroom door. JingJing was in bed, eyes red, Noo-Noo under her arm, wearing the post-crying softness that made her look sixteen and bulletproof at the same time.
+
+"Did you finish?" JingJing asked.
+
+"Did you?"
+
+"No peeking."
+
+"I would never."
+
+"Liar. You peeked at my Christmas list."
+
+"You asked for a horse. We live in an apartment."
+
+"I wanted a *small* horse."
+
+Jan climbed into bed. Pulled JingJing against her. JingJing came, the way she always did — eventually, once the brat had run its course and the softness replaced it.
+
+"Today was—" JingJing started.
+
+"I know."
+
+"You went off-script."
+
+"Yes."
+
+"That wasn't Lal."
+
+"No."
+
+JingJing's finger traced Jan's collarbone. The idle cartography of a body she knew by heart.
+
+"Sirin was watching."
+
+"I know."
+
+"She wrote something."
+
+"Probably."
+
+"Do you care?"
+
+Jan thought about it. Not the reflexive dismissal. The real question.
+
+"No," she said.
+
+"Me neither." JingJing paused. "Should we care?"
+
+"Probably."
+
+"Lin would want us to care."
+
+"Lin wants us encased in bubble wrap and stored in a vault until the wedding."
+
+"Lin wants a lot of things she's not going to get."
+
+Jan kissed the top of her head. JingJing pressed closer. The ring on its chain caught between them, warm from JingJing's skin, hard and certain.
+
+"The vows are written," JingJing said quietly. "The real ones."
+
+"They are."
+
+"Seven weeks."
+
+"Seven weeks."
+
+"P'Jan?"
+
+"Mm."
+
+"I cried writing mine."
+
+"I know." Jan didn't say *me too*. But her arms tightened, and JingJing understood, because she always understood the things Jan said without saying them, the way Jan understood the things JingJing said too loudly.
+
+The room was quiet. The vows were written, the fictional and the real, the ones the camera would see and the ones it wouldn't. Seven weeks until a garden and twelve people and the end of pretending.
+
+JingJing shifted against her. Not the restless shifting of someone seeking comfort but the deliberate shifting of someone seeking something else, her hips pressing, her hand sliding down from Jan's collarbone to her stomach to the waistband of her shorts.
+
+"Baby," Jan said.
+
+"Don't talk."
+
+"We just—"
+
+"I know what we just did. I sat in a room full of people and read love vows to you and couldn't touch you and couldn't cry properly and couldn't do anything except hold a chain under my shirt. I had to sit there and feel everything and show nothing and I am *done* being careful for today."
+
+JingJing's hand slipped under the waistband. Found Jan already half-hard, because Jan's body had understood before Jan's mind did that JingJing's breathing had changed, that the softness had shifted into something focused and hungry.
+
+"We don't have to—"
+
+"I want to. Slowly. I want to look at you."
+
+Jan's breath caught. Not because of the touch, though the touch was purposeful, JingJing's small hand wrapping around the shaft with the possessive certainty of someone who knew exactly what she was doing and had long since stopped pretending otherwise. What caught Jan's breath was the word. *Slowly*. Because JingJing never asked for slow. JingJing asked for harder, faster, more. JingJing was impatience embodied, greed made flesh, a twenty-two-year-old who wanted everything immediately and loudly and could not fathom why anyone would voluntarily delay gratification when gratification was *right there*.
+
+And tonight she was asking for slow.
+
+"Okay," Jan said. Her voice was different now. Not the commanding voice, not Daddy's voice. Something lower and softer, the voice she used when JingJing needed holding more than handling.
+
+JingJing pushed the shorts down. Pulled her own sleep shirt over her head. Nothing underneath. She climbed over Jan, straddling her, and Jan's hands went to her waist automatically, thumbs settling into the grooves of her hip bones.
+
+"I want to see your face," JingJing said.
+
+"You're seeing it."
+
+"When you're inside me. I want to see your face when you're inside me. We always — it's always from behind, or I'm looking at the wall, or your hand is on my throat, or we're in some insane position because we have four minutes in a dressing room. Tonight I want to see you."
+
+JingJing reached behind herself. Took Jan in her hand. Jan was fully hard now, the length of her curving slightly left against JingJing's wrist, thick and insistent. JingJing guided the head between her legs, rocking forward to let the tip slide through the wetness that had been building since Jan said *I never hated you* across a conference table.
+
+"You're already—"
+
+"Since the table read," JingJing said. "Since you looked at me and stopped reading the script. I've been like this for twelve hours."
+
+She sank down.
+
+Slowly.
+
+Jan watched her face. JingJing had asked her to watch, so she watched, and what she saw was: everything. Every fraction of an inch registered on JingJing's face like a seismograph recording a tremor. Her lips parted. Her eyes went unfocused, then focused, then unfocused again. Her hands pressed flat on Jan's stomach. A sound came from somewhere in her chest, low and involuntary, the sound of something opening.
+
+"Oh," JingJing breathed. "Oh, god."
+
+"Slowly," Jan said.
+
+"I know. I'm — oh. You're so—"
+
+JingJing's hips shifted. Not thrusting. Settling. Letting gravity do the work, taking Jan deeper in increments so small they were almost imaginary, and each increment made JingJing's eyes widen by a fraction and her fingers press harder into Jan's stomach.
+
+"P'Jan—"
+
+"I'm here."
+
+"I can feel all of you. Every — every inch, I can—"
+
+"I know."
+
+"It's so much. You're so much."
+
+Jan's thumbs stroked her hip bones. Slow circles. The gentlest touch she knew. JingJing was fully seated now, all of Jan inside her, and she was trembling, not with effort but with the specific overwhelm of feeling everything at once and not being able to hide from any of it.
+
+"Look at me," Jan said.
+
+JingJing looked. Her eyes were wet. Not crying, not yet, but close. The proximity of tears that came not from sadness but from the accumulation of a day that had asked her to feel everything publicly and contain it and now, finally, in the dark, in their bed, she could stop containing.
+
+"I meant it," Jan said. "Every word."
+
+"The script or the real ones?"
+
+"There's no difference."
+
+JingJing started to cry. Silently, the tears just falling, her hips still rocking in that slow, devastating rhythm, taking Jan deep and holding her there and then rising and sinking again. She didn't wipe her face. She didn't look away. She kept her eyes on Jan's and let Jan see her cry and let Jan see her fuck and let Jan see her do both at the same time because that was the thing about JingJing that made Jan crazy, the thing that had made Jan fall in love with her in the first place: JingJing could not fake a single thing. Every sound was real. Every tear was real. Every clench of her body around Jan's cock was real, and she was clenching now, rhythmic and involuntary, her body responding to something her mind couldn't language.
+
+"I love you," JingJing said. Her voice was wrecked. "I love you, I love you, I wrote you vows and they're terrible and perfect and I cried and Noo-Noo watched and—"
+
+"Shh."
+
+"Don't shh me. I want to talk. I want to talk while you're inside me because nobody else gets this. Nobody else in the world gets to hear me say I love you while you're this deep and that's — that's mine. That's ours."
+
+Jan's hips lifted. A slow, deep thrust from below. JingJing gasped, her words dissolving, her head tilting back.
+
+"Again," she whispered.
+
+Jan thrust again. Slow. Deep. Letting JingJing feel the full length, the slight leftward curve that pressed into the spot that made JingJing's thighs shake, and they were shaking now.
+
+"Daddy—"
+
+"I'm here, baby."
+
+"I'm close. Already. I'm — how am I already—"
+
+"Because you've been waiting twelve hours."
+
+"Because you said *I never hated you* and my whole body said *yes* and I've been saying yes ever since and I can't stop."
+
+"Then don't stop."
+
+JingJing's rhythm broke. The slow, careful rolling became something uneven and urgent, her body overriding her intention, chasing what it needed. Jan held her waist, not guiding, just holding, being the steady thing she moved against. JingJing's sounds climbed, the breathy gasps becoming words becoming fragments becoming the unbroken, unself-conscious noise that Jan loved, the noise that meant JingJing had stopped thinking entirely.
+
+"Oh god, oh god, P'Jan, right there, don't stop, don't you dare—"
+
+"I won't."
+
+"*Daddy*—"
+
+She came with Jan's name in her mouth. Not the title, the name. *Jan*. Said like a prayer, said like a promise, said like the word she'd written seventeen times in her vows because it was the only word that meant everything. Her whole body seized and then opened, the orgasm pulling through her in waves that Jan could feel, tight and rhythmic and endless around the length still buried inside her.
+
+Jan followed. Not the usual controlled release but something that matched JingJing's rawness, a sound torn from her throat, her hips pushing up once, deep, and holding while she emptied everything she had into the body of the woman she loved, the woman she was going to marry, the woman who was crying on top of her and coming around her and holding her face in both hands and kissing her with salt on her lips.
+
+They stayed like that. Connected. Breathing.
+
+JingJing's forehead against Jan's. Tears still wet on her cheeks. Jan still inside her, softening, the intimacy of staying past the urgency, the intimacy of not pulling away.
+
+"That was—" JingJing started.
+
+"I know."
+
+"Different."
+
+"Yes."
+
+"Good different."
+
+"The best different."
+
+JingJing lifted herself carefully. Rolled to Jan's side. Pressed against her. Jan reached for the tissues, cleaned them both, pulled the blanket up. JingJing's hand found the ring on its chain, held it the way she held it when she needed to feel something certain.
+
+"Seven weeks," JingJing whispered.
+
+"Seven weeks."
+
+"Then I never have to read fake vows again."
+
+"Then you say the real ones."
+
+"I'm going to cry."
+
+"I know."
+
+"In front of twelve people."
+
+"I know."
+
+"Noo-Noo's going to be there."
+
+"Noo-Noo will be the ring bearer."
+
+"Noo-Noo will be the best man. And the maid of honor. And the flower girl. Noo-Noo will hold every role because Noo-Noo is unlimited."
+
+Jan kissed her forehead. JingJing's eyes were closing, the post-orgasm softness dissolving into the deeper softness of sleep, the two states indistinguishable in someone who gave herself entirely to both.
+
+"Goodnight, Daddy," JingJing murmured.
+
+"Goodnight, baby."
+
+"Goodnight, Noo-Noo."
+
+The room was dark. The vows were written. On the headboard shelf, Noo-Noo kept watch.
+
+---
