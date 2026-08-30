@@ -3365,3 +3365,499 @@ Sirin would find it.
 She always did.
 
 ---
+
+## Chapter 11: The Magazine
+
+The studio was in Thonglor. Converted warehouse, exposed brick, polished concrete, floor-to-ceiling windows letting in the kind of natural light that photographers called "golden" and that JingJing, watching from a folding chair behind a rack of styling options, called "the light in which a man is going to hold my fiancée's hand while I develop an ulcer."
+
+*L'Officiel Thailand*. Six-page spread. "Modern Elegance, Unexpected Pairings." The concept: juxtaposition. Feminine and masculine. The electricity of opposites. Khun Dao had forwarded the creative brief to Jan with the subject line "Please review, no changes."
+
+The male model's name was Golf.
+
+Golf was six-one. Golf had cheekbones that looked computer-generated. Golf had been modeling since seventeen and had the easy, detached professionalism of someone who spent his career being positioned next to beautiful people and forgetting them by Tuesday.
+
+JingJing hated him.
+
+Not personally. JingJing had no personal feelings about Golf. Golf had said "nice to meet you" and shaken her hand and JingJing had smiled and gone to her corner and opened her chat with Love.
+
+**JingJing:** He's tall.
+
+**Love:** How tall?
+
+**JingJing:** Taller than Jan.
+
+**Love:** Oh no.
+
+**JingJing:** He has CHEEKBONES, Love. The kind that have their own lighting requirements.
+
+**Love:** Is he touching her?
+
+**JingJing:** Not yet. Solo shots first. Jan is in a black suit with the sharp shoulders and she looks so good I want to climb her like a tree and also fight everyone in this building.
+
+**Love:** Both valid.
+
+**JingJing:** They're adjusting her collar. The STYLIST is touching Jan's COLLAR. I didn't sign up for strangers touching my wife's collar.
+
+**Love:** She's not your wife yet.
+
+**JingJing:** She is my wife in EVERY way that matters and the government can catch up.
+
+The solo shots took forty-five minutes. Jan in the suit. Jan with the jacket off, sleeves rolled to the elbows, the forearms that JingJing had once described to Love as "structural engineering that I want to ruin me." Jan leaning against a wall, looking into the camera with the amber-eyed steadiness that had been making people fall in love with her face since she was nineteen.
+
+JingJing watched. She watched the photographer, a compact energetic woman named Kwan, orbit Jan calling out adjustments. She watched the lighting crew shift reflectors. She watched Jan be beautiful in a room full of professionals doing an excellent job of something that required no effort because Jan was beautiful the way water was wet.
+
+Then Golf came to set.
+
+Cream linen shirt, open collar, tan trousers, the casual-expensive look of a man who belonged on a yacht or in a cologne ad or in a shallow grave in the Chao Phraya River, which was where JingJing's brain had put him within three seconds.
+
+"Golf, you're on Jan's right," Kwan called. "Hands on the railing. Not touching. Just close. The negative space is the story."
+
+The negative space. The *story*.
+
+**JingJing:** They want NEGATIVE SPACE between their hands. As a STORY.
+
+**Love:** Negative space is literally the absence of touching. The opposite of touching.
+
+**JingJing:** It's the PROMISE of touching. It's the ghost of a touch. It's worse than touching because it makes the viewer IMAGINE the touch and the viewer is going to put my fiancée's hand in a stranger's hand and I am going to RIOT.
+
+**Love:** Deep breaths.
+
+**JingJing:** Deep breaths are for people who are not watching their fiancée be aesthetically paired with a man who was DESIGNED IN A LABORATORY.
+
+Kwan called for hands together. Golf's hand on Jan's, on the railing. Light, no grip. "Chemistry without intention," the creative director said.
+
+Chemistry. Without. Intention.
+
+JingJing's jaw clenched so hard her molars ground.
+
+**JingJing:** He's touching her. His WHOLE HAND on her WHOLE HAND. The photographer said "chemistry without intention" and I need you to talk me down from a federal crime.
+
+**Love:** It's modeling. It's not real.
+
+**JingJing:** I KNOW it's not real. My BRAIN knows. My brain is a RATIONAL ORGAN. The rest of me wants to walk over and sit in Jan's lap and stare into the camera and dare them to crop me out.
+
+**Love:** Do not do that.
+
+**JingJing:** I'm CONSIDERING doing that and then NOT DOING IT because I am a PROFESSIONAL.
+
+**Love:** 🐰
+
+**JingJing:** Don't rabbit emoji me right now. I am too angry for emotional support rabbit.
+
+A voice from behind JingJing's chair, low, carrying the specific resonance of someone raised bilingual in Danish and Thai:
+
+"Is that your murder face or your jealousy face? I can never tell."
+
+JingJing looked up. Milk.
+
+Milk Pansa Vosbein stood behind her like someone who had materialized from the wall. Tall, angular, the jawline that JingJing had once described as "weaponizable." Black hoodie and joggers.
+
+"How did you know where I was?"
+
+"Jan texted me the address this morning. Said, quote, 'JingJing is coming. She's going to be fine.' The word 'fine' was a distress signal."
+
+"I AM fine."
+
+"You're gripping your phone hard enough to crack the screen protector."
+
+JingJing looked at her hands. She was. She loosened her grip. Slightly.
+
+Milk pulled up a folding chair, flipped it around, sat on it backwards with her chin on her arms.
+
+"So," Milk said, nodding at the set. "Golf."
+
+"Golf."
+
+"He's tall."
+
+"I know."
+
+"Good-looking."
+
+"I will end you."
+
+Milk grinned. The grin Love called "the one that means she's about to say something terrible and she knows it."
+
+"Love would already be in jail," Milk said.
+
+"Love would have the body in the trunk."
+
+"Love would have the body in the trunk and the trunk in the river and an alibi involving a book club."
+
+"Love doesn't read."
+
+"Love reads *plenty*. She's on her third reread of the Ditto novel. She highlights passages and reads them to me in bed, and the highlighted parts are all the scenes where the flight attendant takes care of the ballerina, and she reads them in this voice like she's *studying*, like there's going to be a *test*—"
+
+"That's disgusting."
+
+"It's adorable."
+
+"It's disgusting AND adorable and I need you to stop talking about your perfect relationship while I'm watching a man hold my wife's hand."
+
+Milk's grin softened. The shift from shit-stirring to something warmer, acknowledging the real feeling underneath.
+
+"She's not looking at him," Milk said quietly.
+
+JingJing turned back to the set. Jan was on the balcony, Golf's hand on hers, the camera clicking. But Milk was right. Jan's eyes, between setups, drifted. Not to the camera, not to the creative director.
+
+To the corner.
+
+To JingJing.
+
+Every time. Between every click. A glance, quick, involuntary. She'd do what the photographer asked. Then her eyes would find JingJing's and for a fraction of a second the performance would fall away and there would be nothing on Jan's face except the truth.
+
+"See?" Milk said.
+
+JingJing saw.
+
+"She's been doing that since we met," Milk said. "On the *Enemies with Benefits* set, between takes — you'd be on the other side of the studio and she'd look at you. Every time. Like she was checking that the world still made sense."
+
+"When did you notice?"
+
+"First week. Everyone noticed the first week. You two have never been subtle."
+
+Kwan called for the next setup. "Golf, behind Jan. Hands on her shoulders. Jan, straight at camera. Power and vulnerability."
+
+JingJing's spine went rigid.
+
+Hands. On. Shoulders.
+
+"Breathe," Milk said.
+
+"I'm breathing."
+
+"You stopped breathing when she said 'hands on her shoulders.' Your face went homicide color."
+
+"I'm not planning a homicide."
+
+"Your right hand is in a fist."
+
+JingJing looked. It was. She uncurled it. Four crescents in her palm.
+
+Golf moved behind Jan. His hands settled on her shoulders. Large, tanned, fingers spreading slightly. Jan's face to the camera. Jan's expression perfect, controlled, the professional exterior.
+
+But JingJing saw the wall behind the expression. She saw it because she knew what lived behind it — the Jan who came apart in the dark, the Jan whose hands shook undoing buttons, the Jan who whispered *good girl* with reverence. The Jan whose shoulders belonged under one set of hands, currently balled into fists sixty feet away.
+
+"Four minutes," Milk said. "Then the setup changes. Look at me."
+
+JingJing looked.
+
+"This is the job," Milk said. "The job is a performance. The performance ends when you go home. When you go home, she's yours. Golf is going to leave this studio and eat chicken breast and do bicep curls and not think about Jan for a single second."
+
+"I know."
+
+"So stop planning his murder."
+
+"I was planning something more creative."
+
+"How do you handle it?" JingJing asked after a moment. "When they pair Love with someone."
+
+Milk was quiet. Her eyes on the set.
+
+"I remind myself of the math," she said. "This is ninety seconds. Three minutes across a two-hour shoot. The other twenty-three hours and fifty-seven minutes, she's mine. She's in my bed wearing my shirt reading me passages from a novel. Getting jealous about three minutes is bad arithmetic. It's letting the denominator win."
+
+"You sound like Jan."
+
+"Jan and I share a brain cell about our respective women. We pass it back and forth like a custody arrangement."
+
+Milk paused. A slight color appeared on her cheekbones. Milk Pansa Vosbein was blushing.
+
+"Also — when we get home — Love does this thing where she—" She stopped. "Never mind."
+
+"WHAT thing?"
+
+"She reclaims. After shoots where someone's touched me. She's very — thorough." Milk cleared her throat. "About reminding me whose I am. She's small but she's *decisive*."
+
+JingJing stared. "Love? Our Love? Five-foot-two Love who cries at dog videos?"
+
+"That Love."
+
+"*Decisive?*"
+
+"JingJing, you have no idea what that woman is capable of when she's motivated."
+
+JingJing filed this under THINGS TO DISCUSS WITH LOVE AT LENGTH.
+
+The last composition: Jan center frame, Golf's hand exiting on the right edge. Leaving or arriving, the ambiguity the point.
+
+"Jan, I want the thing you do," Kwan said. "The thing with your eyes."
+
+"What thing?" Jan said. She genuinely didn't know. The thing was: her eyes looked at you like you were the only person in the world, like the room had emptied and the planet had emptied and what remained was you and a gravity that had nothing to do with physics.
+
+Jan did the thing for the camera. For the cover. For thirty million readers who would see this image and think Jan's intensity was general, available, undirected.
+
+It wasn't. It contained JingJing. It had always contained JingJing. The camera just didn't know where to look.
+
+---
+
+The shoot ended at five. Golf shook Jan's hand and left. The crew broke down. Kwan packed her cameras.
+
+Milk hugged JingJing. Brief, hard.
+
+"Go home," Milk said. "Do the thing."
+
+"What thing?"
+
+"Reclaim." No joke in her eyes now. "She spent four hours being positioned next to someone else. Take her back."
+
+Milk left. JingJing waited while Jan did the professional-closing rituals that Jan performed with grace and JingJing could never have managed because her patience had been consumed four hours ago.
+
+In the car, Jan drove. JingJing was silent. Not angry silent. Dangerous silent. The silence Jan recognized the way you recognize the pressure drop before a storm.
+
+"You're quiet," Jan said.
+
+"I'm thinking."
+
+"About what?"
+
+"About where I'm going to put my mouth when we get home."
+
+Jan's hands tightened on the wheel.
+
+"Where is that?" Jan said, carefully.
+
+"Everywhere his hands were."
+
+The car accelerated slightly.
+
+"His hands were on my shoulders," Jan said. "And my hand."
+
+"Then that's where I start."
+
+"Start?"
+
+"I'm going to touch every place he touched and then every place he didn't, and when I'm done there won't be a single inch of your skin that remembers anyone but me."
+
+They didn't speak the rest of the drive. Thonglor to Ekkamai, the familiar route, the same buildings and intersections, all of it irrelevant to what was building inside the car.
+
+The apartment door closed. JingJing locked the deadbolt, the chain, the finality of *no one else gets in*, and turned.
+
+Jan stood in the hallway in the suit from the shoot. Beautiful, controlled, the perfect exterior. But her eyes were the JingJing eyes. Dark. Waiting.
+
+"Take off the jacket," JingJing said.
+
+Jan let it fall.
+
+"The shirt."
+
+Jan unbuttoned it. Slowly. One at a time. The white shirt opened: lean muscle, flat stomach, sports bra. The body that had been arranged and photographed beside a man and was now here, in a hallway, being unclothed by the person who owned it.
+
+JingJing stepped forward. Put her hands on Jan's shoulders, on the exact spots where Golf's hands had been. Pressed flat. Felt the warmth. Felt the tension.
+
+"Here," JingJing said. "He touched you here."
+
+"It was the shoot—"
+
+"I know what it was." JingJing's voice was steady. Not angry. Something older and more animal. "I know it was professional. I know Golf is a stranger who will never think about you again. I know all of that. And I'm still going to erase him."
+
+JingJing kissed Jan's left shoulder. Opened her mouth against the skin. Not biting. Not yet. Tasting. The deliberate claiming that began with lips and would end with teeth. She kissed where Golf's thumb had rested. Where his fingers had spread. The hollow of Jan's throat, the collarbone, across the geography of contact with the methodical attention of someone restoring.
+
+"Hand," JingJing said.
+
+Jan raised her right hand. The one Golf had covered on the railing. JingJing took it. Turned it palm-up. Kissed the center with her tongue tracing the lines.
+
+"Mine," JingJing said against Jan's palm.
+
+"Yours."
+
+"Say it again."
+
+"*Yours.* Always. The hand is yours and the shoulder is yours and the face the camera wanted is yours—"
+
+"The cock is mine."
+
+Jan's breath caught.
+
+"Say it."
+
+"The cock is yours."
+
+JingJing's hand found it through the trousers. Found the hardness that had been building since the car. She gripped through the fabric, not gentle, not harsh, with the precise pressure of someone who knew exactly how much Jan could take and how much more she wanted.
+
+"This was never in the photograph," JingJing said. "This was never in the negative space. This is the part of you no camera gets. No model gets. No magazine gets."
+
+"Only you."
+
+"Only ever me."
+
+JingJing pushed Jan toward the bedroom. Pushed her onto the bed. Didn't follow immediately. Stood over her instead, looking down, and the look on JingJing's face was the look that made Jan's cock throb against the trousers: the brat gone, the provocation gone, replaced by something predatory and focused and not asking for permission.
+
+JingJing pulled her own shirt over her head. Nothing underneath. She unzipped Jan's trousers, pulled them down with the boxer briefs, and Jan's cock sprang free, thick, curving slightly left, already leaking at the tip.
+
+JingJing didn't touch it. Not yet. She climbed onto Jan, straddling her thighs, and lowered her mouth to Jan's left shoulder. Bit. Not playing. The real thing, teeth pressing into muscle until Jan hissed, until JingJing tasted the salt of skin and the faint chemical trace of set makeup, and when she pulled back there was a mark. Red, already darkening. Specific. Hers.
+
+"That's for the railing," JingJing said.
+
+She moved to the right shoulder. Bit again. Jan's hands came to her waist and JingJing knocked them away.
+
+"I didn't say you could touch."
+
+"JingJing—"
+
+"*Hands down.*"
+
+Jan's hands dropped to the bed. Her jaw locked. Her cock twitched between JingJing's thighs, and JingJing could feel it, the length pressed against her still-clothed center, and she rocked against it once, deliberate, and watched Jan's face crack.
+
+"That's for the shoulder pose."
+
+JingJing worked her way down. Biting Jan's collarbone, the inside of her bicep, the spot below her left ear that made Jan's whole body shudder. Each bite placed with strategic precision, each one a mark in a location no photographer would ever see, no stylist would ever touch. The constellation of bruises that said *mine* in a language no magazine could publish.
+
+She pushed her skirt up. Pulled her underwear aside. She was soaked. Had been soaked since the car, since *everywhere his hands were*, since the decision that this was not going to be about patience or permission or any of the careful, controlled things they usually were.
+
+She took Jan's cock in her hand. Positioned the head against her entrance. Jan's hips lifted and JingJing pressed them back down.
+
+"I ride tonight," JingJing said. "You stay still. You take what I give you."
+
+"Fuck—"
+
+"Answer me."
+
+"Yes. Whatever you want. Yes."
+
+JingJing sank down. All at once. No warm-up, no slow descent, the entire length of Jan buried in one motion. Her body screamed and opened and screamed again and the sound that came out of her mouth was not a word but a claim, raw and involuntary, the sound of a woman who had spent four hours watching someone else's hands and was now taking back everything they had touched.
+
+"*God*—" Jan's voice broke. Her hands fisted in the sheets. Her back arched off the bed. "JingJing—"
+
+JingJing didn't let her adjust. She started moving immediately, riding hard, fast, her hands pinning Jan's shoulders to the mattress, on Golf's spots, her spots now, her hips snapping with a rhythm that had nothing to do with tenderness and everything to do with reclamation. The bed frame hit the wall. She didn't care. She was loud. She was always loud and tonight she was louder, the sounds filling the room, filling the apartment, obliterating any memory of a quiet, professional shoot where hands were positioned and negative space was manufactured.
+
+"This is mine," JingJing said, grinding down, taking Jan impossibly deep. "Not his. Not the camera's. Not the magazine's. *Mine.*"
+
+"Yours — fuck — *yours*—"
+
+"Every inch. Every time. Nobody else gets this. Nobody else gets to feel what I feel when you're inside me. This is *mine*, P'Jan, this is—"
+
+JingJing's rhythm shattered. The controlled aggression gave way to desperation, her body chasing what it needed, and she was close, already close, the combination of hours of jealousy and the visual of Jan pinned beneath her with bite marks darkening on her shoulders pushing her toward the edge with a speed that felt violent.
+
+"I'm close," JingJing gasped. "I'm close, I'm — oh *god* — Daddy—"
+
+"Come, baby. I'm right here. Take it."
+
+"*Daddy*—"
+
+Jan's hips broke free of JingJing's pin and thrust up, one deep, hard stroke from below, the leftward curve hitting the spot that made JingJing's vision go white. JingJing screamed. Not a word, not a name, a sound that came from somewhere primal, from the place where jealousy and love and ownership melted into one undifferentiated thing, and her body seized around Jan's cock in contractions so strong she could feel them in her spine.
+
+Jan followed. Couldn't have stopped if she'd tried. JingJing's body was a vise, rhythmic and merciless, and Jan came with her teeth in her own lip, her hips pushing up into JingJing's orgasm, filling her, the release so intense her vision darkened at the edges.
+
+JingJing collapsed forward. Her face in Jan's neck. Both of them breathing like they'd run a race. Jan's cock still inside her, still twitching with aftershocks, and JingJing clenched around it deliberately and Jan made a sound like she'd been hit.
+
+"One more," JingJing said against her neck.
+
+"What—"
+
+"I need one more." JingJing sat up. Started rolling her hips again. Jan was still hard — she stayed hard after the first, always, and JingJing had discovered this early and exploited it relentlessly. "I'm not done. I can still feel his hand on yours when I close my eyes. I need one more."
+
+"Baby, I just—"
+
+"*One more.*"
+
+Jan's hands came to JingJing's hips. This time JingJing let them stay. She rode slower now, deeper, the urgency replaced by something deliberate and devastating, each roll of her hips grinding Jan's cock against the swollen, sensitized spot inside her, each movement sending shocks through both of them.
+
+"Look at me," JingJing said.
+
+Jan looked. Her eyes were wrecked. Blown wide, dark, the amber nearly gone. JingJing held her gaze and rolled her hips and watched Jan's face and thought: *this. This is what the camera wanted and couldn't have. This is the thing with the eyes. This is what Jan looks like when she's being owned. No magazine will ever publish this face. This face is mine.*
+
+The second orgasm built slowly. A heat that started where they were connected and spread outward through JingJing's body in waves, each wave higher, each crest sharper. JingJing's sounds dropped from loud to low, the moans becoming something guttural and intimate, the sounds she made when she was past performance and into the animal truth of what she needed.
+
+"Daddy — I'm — I'm there—"
+
+"I know. I can feel you."
+
+"Come with me. Please. Inside me. I want to feel you—"
+
+"I'm there. I'm with you."
+
+They came together. JingJing's body arching backward, Jan's hips pressing up, the room filled with nothing but the sounds they made and the creak of the bed and the wet, obscene sound of Jan emptying into JingJing for the second time, and JingJing cried out Jan's name, the real name, not Daddy, just *Jan*, and the name sounded like a brand being pressed into skin: permanent, painful, necessary.
+
+JingJing fell forward again. This time she stayed. Jan's arms wrapped around her. The post-sex trembling that JingJing's body always did, fine and continuous, like a tuning fork that had been struck too hard.
+
+Minutes passed. JingJing lifted herself off Jan carefully, wincing at the sensitivity, and rolled to her side. Jan reached for tissues. Cleaned them both. Pulled the blanket up.
+
+JingJing inspected her work. Counted the marks on Jan's body. Seven. One for the railing. One for each shoulder. One for the hand pose. One for the cover. Two extra, because JingJing had never been good at restraint.
+
+"I look like I was attacked," Jan said, examining the bruise on her inner bicep.
+
+"You were. By your fiancée who had to sit in a folding chair for four hours watching a man named *Golf* touch your hand."
+
+"His name is Golf."
+
+"His name is irrelevant because I've overwritten him. I've — what's the computer word — defragmented you."
+
+Jan laughed. "You defragmented me."
+
+"Thoroughly."
+
+"Thoroughly." Jan pulled her close. JingJing came, the predator retreating, the softness returning. She fit against Jan's side with the precision of a puzzle piece, the ring on its chain between them.
+
+"Love does this too," JingJing murmured. "Milk told me. She said Love is 'decisive.'"
+
+"Milk texted me during the shoot. Said: 'Your girl is planning a war crime. Thought you should know.'"
+
+"I was experiencing NORMAL HUMAN EMOTIONS."
+
+"She also said Love told her to tell you: the defragmentation method works and start at the shoulders."
+
+JingJing was quiet.
+
+"I started at the shoulders," she said.
+
+"I noticed."
+
+"Love knows me."
+
+"Love knows you. Milk knows me. They're us in a different font."
+
+JingJing traced the mark behind Jan's ear. The last one, the final punctuation.
+
+"P'Jan."
+
+"Yeah?"
+
+"I'm tired of sitting in folding chairs while other people touch you. I'm tired of negative space. I want to close the gap and I want to close it in front of everyone."
+
+"Six weeks."
+
+"Six weeks."
+
+"Then no more folding chairs. No more Golf. No more 'very good friends.'"
+
+"Promise?"
+
+"I promised you on a beach before you let me finish. I'll promise you as many times as you need."
+
+JingJing pressed her face into Jan's chest. The heartbeat under her ear. Steady, constant. The rhythm she fell asleep to. The sound that meant home.
+
+"I'm going to tell Love about the defragmentation," JingJing said sleepily.
+
+"Love invented the defragmentation."
+
+"I improved it. I added bite marks. The Love version probably doesn't have bite marks."
+
+Jan was quiet for a moment. "Milk once showed me a mark on her collarbone that she said Love left after a fan meet."
+
+"Love?"
+
+"Love."
+
+"Five-foot-two Love."
+
+"Milk said, and I quote: 'She's small but the jaw strength is no joke.'"
+
+JingJing laughed. The sound was warm, exhausted, the laugh of someone who had spent her jealousy and found safety on the other side.
+
+"We should double-date," JingJing said. "After. When everything's public. A real double date where I can hold your hand in front of a restaurant and Love can hold Milk's hand and nobody has to pretend."
+
+"I'd like that."
+
+"Milk would probably just stare at Love the whole time."
+
+"Milk already stares at Love the whole time. The staring would just be visible."
+
+"Like us."
+
+"Like us."
+
+JingJing's breathing slowed. Deepened. Jan held her and listened and felt the marks cooling on her skin, seven small claims that would fade in a week and be renewed as needed because JingJing was nothing if not thorough.
+
+On the headboard shelf, Noo-Noo kept watch. The marks were not visible from that angle, which was for the best. Noo-Noo had seen enough.
+
+---
