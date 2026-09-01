@@ -545,11 +545,11 @@ Jan reached between them. Angled herself. The head pressed against JingJing's en
 
 "Slow."
 
-Jan pushed in slowly. One inch at a time. And JingJing felt every one. The deep, living pressure of being filled by someone who knew her body the way Jan knew everything — with the specific patience of someone who understood that the build was the point.
+Jan pushed in slowly. One inch at a time. And JingJing felt every one — the stretch, the leftward curve finding the angle that made her thighs shake, Jan pausing each time JingJing's breath hitched to let her body adjust before pressing deeper.
 
 "Daddy—" The word came out strangled. "You're so — *fuck* — all the way, I want all of it—"
 
-Jan gave her all of it. Sank to the hilt and held there, and JingJing's legs tightened around her waist, heels digging into the small of Jan's back, pulling her deeper, closer, as if closer existed, as if there were some final inch of distance left to erase.
+Jan sank to the hilt and held there, and JingJing's legs tightened around her waist, heels digging into the small of Jan's back, pulling her deeper, closer, as if closer existed, as if there were some final inch of distance left to erase.
 
 "Move," JingJing whispered. "Please."
 
@@ -1181,7 +1181,7 @@ JingJing pulled back. Looked at Jan. Jan's face was certain, the bedrock steadin
 
 "Take me to bed," JingJing said.
 
-Jan started to stand, started to lift JingJing with her the way she usually did, but JingJing stopped her. Hands on Jan's shoulders. Pressing down.
+Jan started to stand, started to lift JingJing with her, but JingJing stopped her. Hands on Jan's shoulders. Pressing down.
 
 "No," JingJing said. "Let me."
 
@@ -1821,7 +1821,7 @@ The elevator stopped. Fifth floor. Doors opened. No one there. Doors closed.
 
 "JingJing—"
 
-"It's FINE." The word cracked. Jan heard it the way she heard everything about JingJing: with total attention, catching the false note from inches away.
+"It's FINE." The word cracked. Jan caught the false note from inches away.
 
 Jan hit the stop button. The elevator lurched. Halted between floors.
 
@@ -1925,7 +1925,7 @@ JingJing was not at the dentist. JingJing was in a car outside the magazine stud
 
 **Milk:** Because I've talked to her. She called me last night. She wanted to know how Love and I handle it — the PR, the performative straight moments, the whole machine. She wasn't asking for herself. She was asking because she could see what it was doing to you and she wanted to know how to help.
 
-JingJing stared at the phone. Jan had called Milk. Jan had called Milk last night, while JingJing was asleep, and asked how to protect JingJing from the thing that was hurting her. Jan had done this quietly, privately, the way Jan did everything that mattered.
+JingJing stared at the phone. Jan had called Milk. Jan had called Milk last night, while JingJing was asleep, and asked how to protect JingJing from the thing that was hurting her. Jan had done this quietly, privately, without waking her.
 
 **JingJing:** What did you tell her?
 
@@ -1971,7 +1971,7 @@ Jan sat beside her. Close. Their thighs pressed together.
 
 "Did he—" JingJing swallowed. "Did he hold your hand well?"
 
-Jan turned and looked at her. JingJing was staring at the cooking show. Her jaw was tight. Her fingers were working Noo-Noo's ear the way she did when she was managing something that threatened to overflow.
+Jan turned and looked at her. JingJing was staring at the cooking show. Her jaw was tight. Her fingers were kneading Noo-Noo's left ear, rhythmic and tight.
 
 "It was like holding a prop," Jan said. "Like holding a coffee cup for a scene. His hand was warm and dry and it didn't mean anything."
 
@@ -2410,7 +2410,7 @@ She ordered a coffee. She had time.
 
 Three weeks in, Sirin stopped watching Jan and JingJing.
 
-Not because they were uninteresting. They were endlessly interesting — the way they occupied the same physical space like two instruments tuned to the same frequency, the way Jan's hand found JingJing's lower back as naturally as breathing, the way JingJing's entire body oriented toward Jan the way sunflowers orient toward light. They were interesting the way a phenomenon is interesting: captivating, suggestive, and — after three weeks of careful observation — conclusively uninformative.
+Not because they were uninteresting. They were endlessly interesting — two instruments tuned to the same frequency, Jan's hand finding JingJing's lower back as naturally as breathing, JingJing's entire body orienting toward Jan like a sunflower toward light. Interesting the way a phenomenon is interesting: captivating, suggestive, and — after three weeks of careful observation — conclusively uninformative.
 
 Jan and JingJing did not behave like people hiding something. They behaved like two women who had exceptional chemistry and a warm professional relationship and the comfortable physical intimacy that GL co-leads often developed. They touched constantly, but GL pairs did. They arrived together, but they'd been open about carpooling since the original series. They looked at each other with an intensity that made the air between them feel thin, but that was either acting or it was not, and Sirin could not determine which from observation alone.
 
@@ -2686,7 +2686,7 @@ Her hand tightened on the chain.
 
 "'That's the bravest thing anyone has ever done for me.'"
 
-The words were in the script. The way she said them was not. The way she said them was the way she said *I love you* at 3 AM, in their bed, small and honest and completely undefended.
+The words were in the script. Her voice wasn't — small, honest, completely undefended, stripped of everything that made it a performance.
 
 The silence held for six full seconds. Sirin counted.
 
@@ -2854,7 +2854,7 @@ Jan kissed the top of her head. JingJing pressed closer. The ring on its chain c
 
 "I cried writing mine."
 
-"I know." Jan didn't say *me too*. But her arms tightened, and JingJing understood, because she always understood the things Jan said without saying them, the way Jan understood the things JingJing said too loudly.
+"I know." Jan didn't say *me too*. But her arms tightened, and that was enough.
 
 The room was quiet. The vows were written, the fictional and the real, the ones the camera would see and the ones it wouldn't. Seven weeks until a garden and twelve people and the end of pretending.
 
@@ -2984,7 +2984,7 @@ JingJing's forehead against Jan's. Tears still wet on her cheeks. Jan still insi
 
 "The best different."
 
-JingJing lifted herself carefully. Rolled to Jan's side. Pressed against her. Jan reached for the tissues, cleaned them both, pulled the blanket up. JingJing's hand found the ring on its chain, held it the way she held it when she needed to feel something certain.
+JingJing lifted herself carefully. Rolled to Jan's side. Pressed against her. Jan reached for the tissues, cleaned them both, pulled the blanket up. JingJing's hand found the ring on its chain, held it, the metal warm against her palm.
 
 "Seven weeks," JingJing whispered.
 
@@ -4062,7 +4062,7 @@ Lin reached across the table. Took Jan's hand. Held it.
 
 "Hands off the collar."
 
-Jan smiled. The small, rueful smile of someone who understood that what was being asked of her was both entirely reasonable and nearly impossible.
+Jan smiled. Small, rueful. What Lin was asking was entirely reasonable and nearly impossible.
 
 "Hands off the collar," she said.
 
@@ -4470,7 +4470,7 @@ They shot until noon. Between takes, JingJing reached into the bag and touched N
 
 During the lunch break, the set emptied. JingJing stayed in her chair. She unzipped the pocket. Took Noo-Noo out. Held her.
 
-Not dramatically. Just held. The way she held her at home, at 3 AM, when the gap between who she was allowed to be and who she actually was had widened enough to hurt. Noo-Noo smelled like their apartment. Like Jan's laundry detergent. Like home.
+Not dramatically. Just held her against her chest, thumb on the left ear, because the gap between who she was allowed to be on set and who she actually was had widened enough to hurt. Noo-Noo smelled like their apartment. Like Jan's laundry detergent. Like home.
 
 "I miss you at set," JingJing told the rabbit softly. "I miss you and I hate that I can't bring you because you're 'off-brand' and Sirin would notice and—"
 
@@ -5168,9 +5168,9 @@ Jan lifted JingJing's right leg, hooking her arm under the knee, opening her wid
 
 JingJing watched. She watched her own orgasm build in the mirror — the flush spreading down her chest, the trembling in her raised thigh, the way her stomach muscles contracted. She watched Jan's jaw clench behind her, the tendons in Jan's neck standing out, Jan's hips losing their mechanical precision and going instinctive, harder, faster. She watched her own mouth open and heard herself say *Daddy Daddy Daddy please please please* and then the orgasm hit and she screamed.
 
-Not a restrained sound. Not the muffled version she'd trained herself to produce in hotel rooms and dressing rooms and against doors with people outside. A scream. The acoustics of the small room amplified it, bounced it off the walls and the mirror and the garment racks full of vintage fabric that rattled on their hangers.
+A scream — full, unrestrained, nothing muffled for walls or witnesses. The acoustics of the small room amplified it, bounced it off the walls and the mirror and the garment racks full of vintage fabric that rattled on their hangers.
 
-Jan came inside her with a groan that she buried in JingJing's shoulder, her hips stuttering, her arm still holding JingJing's leg up, and JingJing felt Jan pulse inside her — the deep throb that meant Jan was coming hard, coming the way she came when the risk was highest and the hiding was least.
+Jan came inside her with a groan that she buried in JingJing's shoulder, her hips stuttering, her arm still holding JingJing's leg up, and JingJing felt Jan pulse inside her — the deep throb that meant Jan was coming hard, her whole body shuddering against JingJing's back.
 
 Jan lowered JingJing's leg carefully. Held her steady. JingJing's knees were not cooperating with the concept of standing. She braced herself against the mirror, palms flat on the glass, and the glass was warm now where their bodies had heated it.
 
@@ -5424,7 +5424,7 @@ Jan's coffee arrived. She picked it up. Her hand was steady.
 
 "I have the documentary rough cut. Three seconds of footage I captured through a doorway: you adjusting JingJing's collar before a take. Not the adjustment itself — wardrobe does that. The way you did it. The domesticity. The ownership in the touch. It's not proof of anything. My editor would say it's two colleagues. But I've been covering this industry for eight years, Jan, and I know the difference between a colleague adjusting a collar and a partner adjusting a collar, and you did not touch JingJing's collar like a colleague."
 
-Jan drank her coffee. The bitterness grounded her. She was listening the way she listened to direction from Prae — with full attention, with the specific focus of someone who recognized competence when it sat across from her.
+Jan drank her coffee. The bitterness grounded her. She was listening with full attention. Sirin had earned it.
 
 "I have the crew's behavioral pattern," Sirin said. "Lin's stress responses when you touch JingJing. Fah's door-blocking. The camera operators who subtly reframe when a moment runs long. The staggered dressing room schedule that started six weeks ago and coincides exactly with my arrival. The social media lockdown. The shadow system. Your entire crew has been running a protection operation, and they've been running it *at me*, and they've been running it badly enough that I noticed the operation itself before I finished noticing what it was protecting."
 
@@ -5478,7 +5478,7 @@ Not because Sirin was a threat. Because Sirin was *good*. Because Sirin was a ge
 
 "At the situation. At the fact that doing the right thing is going to cost me the best story I've ever had access to. At the fact that I care about you and JingJing enough to give up something I've worked eight years to earn." Sirin's jaw flexed. "I don't want to be noble about this, Jan. I'm not doing it because I'm a good person. I'm doing it because if I publish this without your consent, I become the journalist who outed two women for a byline, and I won't be that journalist, and the reason I won't be that journalist is that I've been that woman. The one who gets outed. The one whose story gets told by someone who didn't earn the right to tell it. And I swore I would never do that to someone else."
 
-The admission landed like a stone in still water. Jan received it the way she received all important things: with full attention, with the silence that meant she was taking the weight of it into herself.
+The admission landed like a stone in still water. Jan received it in silence, taking the weight of it into herself.
 
 "I didn't know," Jan said.
 
@@ -5958,7 +5958,7 @@ Nine seconds of silence. Jan counted.
 
 "Twenty-four hours," Jan agreed.
 
-"And congratulations." He said it the way he said everything — with professional warmth and no visible feeling. But his handshake at the door held one beat longer than protocol.
+"And congratulations." He said it with professional warmth and no visible feeling. But his handshake at the door held one beat longer than protocol.
 
 ---
 
@@ -6172,7 +6172,7 @@ Jan was still holding JingJing's hands. JingJing was still crying.
 
 Prae, from behind the monitors: "Yes."
 
-Jan kissed her. On a soundstage, in front of cameras and a crew and a journalist and a director who'd just authorized something that would give Khun Dao a cardiac event when she saw the dailies. Jan kissed JingJing the way she kissed her at home — slow, complete, both hands cupping her face.
+Jan kissed her. On a soundstage, in front of cameras and a crew and a journalist and a director who'd just authorized something that would give Khun Dao a cardiac event when she saw the dailies. Jan kissed JingJing — slow, complete, both hands cupping her face.
 
 The extras applauded. The crew applauded. Prae was crying. Lin had given up and was sitting on the floor behind the monitor bank with her face in her hands.
 
@@ -6692,7 +6692,7 @@ The legal portion was brief. Signatures. Fah and Lin as witnesses, their names o
 
 Jan went first.
 
-She took JingJing's hands. Both of them. Held them the way she held everything that mattered — firm, careful, aware of the weight.
+She took JingJing's hands. Both of them. Held them — firm, careful, aware of the weight.
 
 "I wrote this six times," Jan said. Her voice was rough with the effort of keeping it level. "Every version started with a joke, because that's what I do. But you don't let me hide behind jokes. You never have."
 
