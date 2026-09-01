@@ -555,13 +555,9 @@ Jan sank to the hilt and held there, and JingJing's legs tightened around her wa
 
 Jan moved.
 
-Slow. Deep. The kind of strokes that pulled almost all the way out before pressing back in, that made JingJing feel the full length of the withdrawal and the full length of the return. Unhurried. Indulgent. This was not stolen-dressing-room sex. This was not hallway sex or backseat sex or risky sex. This was the luxury of a locked apartment and a whole night and nothing to hide from, and Jan fucked her like she had time, because she did. She had all night. She had the rest of their lives.
+Slow. Deep. The kind of strokes that pulled almost all the way out before pressing back in, that made JingJing feel the full length of the withdrawal and the full length of the return.
 
 "Right there — *ah* — Daddy, right there, don't stop—"
-
-JingJing was loud. JingJing was always loud. Not a choice. A physiological fact, like her hair was black and her blood type was A and her voice went up an octave when Jan hit that angle. She could not be quiet during sex the way she could not be quiet during an argument: fully, permanently, regardless of circumstance.
-
-Jan loved it. Loved the sound of JingJing the way musicians love their instrument. Loved learning which strokes produced which sounds, which angles earned the gasp versus the moan versus the high, broken *ah ah ah* that meant she was close.
 
 Jan's hips rolled. Found the angle. JingJing's back arched off the bed.
 
@@ -573,7 +569,7 @@ Harder. Jan's rhythm shifted, the slow indulgence tightening into something more
 
 "I know." Jan's breath against her neck. "I can feel you."
 
-She could. JingJing was tightening around her, the involuntary grip that meant the edge was close, the trembling in her thighs, the way her nails were digging into Jan's shoulders. Jan held the rhythm steady. Didn't speed up. Didn't slow down. Held the exact pace that was taking JingJing apart and refused to change it, because Jan understood something fundamental about JingJing's body: it didn't need more. It needed consistent. It needed to trust that the next stroke would be exactly like the last, that the rhythm wouldn't shift, that Jan wouldn't stop. JingJing came from trust, not from force. She came because she knew Jan would hold her steady while she fell.
+She could. JingJing was tightening around her — the involuntary grip, the trembling in her thighs, nails digging crescents into Jan's shoulders. Jan held the exact rhythm. The exact angle. Steady and unwavering, the pace that was taking JingJing apart, and she refused to change it.
 
 "Come for me," Jan said. Simple. Certain.
 
