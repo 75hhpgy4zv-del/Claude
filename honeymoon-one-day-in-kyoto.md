@@ -12,13 +12,13 @@ JingJing was awake.
 
 This was unusual. She fought mornings like a legal battle — appeals filed from under the blanket, continuances requested. But today she'd surfaced before Jan, and she lay in the futon on the tatami floor listening to her wife breathe and feeling the word *wife* settle into her chest like a stone dropped into still water.
 
-Three days in Kyoto. The futon was somehow more comfortable than their bed at home, the room smelled like tatami grass and cedar, and there was absolutely no one in the world who needed them to be anywhere.
+Three days in Kyoto. The futon was somehow more comfortable than their bed at home and the room smelled like tatami grass and cedar. Nobody in the world needed them to be anywhere.
 
-JingJing turned onto her side. Jan was on her back, one arm above her head, the sheet at her waist. Her mouth was slightly open. Her hair was wrecked. She looked like someone who had been fucked twice the night before and had the audacity to look elegant while unconscious.
+JingJing turned onto her side. Jan was on her back with one arm thrown above her head. The sheet sat at her waist. Her mouth was slightly open. Her hair was wrecked. She looked like someone who had been fucked twice the night before and had the audacity to look elegant while unconscious.
 
 JingJing's hand found Jan's stomach under the sheet. Warm skin, the muscle beneath it. She traced a line from Jan's navel downward, slow, the touch light enough that Jan didn't stir.
 
-She found what she was looking for. Jan was hard — morning, reliable — the cock thick against her thigh even in sleep. JingJing wrapped her hand around it and felt Jan's breathing change, a catch, a deepening, the body registering what the brain hadn't yet.
+She found what she was looking for. Jan was hard — morning, reliable — the cock thick against her thigh even in sleep. JingJing wrapped her hand around it and felt Jan's breathing change — a catch, then a deepening as the body registered what the brain hadn't yet.
 
 "Mm." Jan's voice was gravel. Her eyes were still closed. "What time is it."
 
@@ -26,7 +26,7 @@ She found what she was looking for. Jan was hard — morning, reliable — the c
 
 "How early."
 
-"Early enough that you don't need to know." JingJing's hand moved. A slow stroke, base to tip, her thumb circling the head. Jan's hips shifted.
+"Early enough that you don't need to know." JingJing's hand moved. A slow stroke from base to tip, thumb circling the head. Jan's hips shifted.
 
 "JingJing—"
 
@@ -66,7 +66,7 @@ Jan's hands tightened on her hips. Pulled her down on the next stroke, deeper, a
 
 "Keep going," Jan murmured.
 
-She rode Jan with the slow, deliberate patience of someone who had nowhere to be and intended to take her time getting there. Her head fell back. Her hair, loose and sleep-tangled, brushed her own shoulders. The light through the screens was turning gold at the edges as the sun found the garden, and the room warmed by degrees, and JingJing's sounds warmed with it — soft at first, then fuller, her hips finding their own rhythm independent of her brain.
+She rode Jan with the slow, deliberate patience of someone who had nowhere to be and intended to take her time getting there. Her head fell back. Her hair, loose and sleep-tangled, brushed her own shoulders. The light through the screens was turning gold as the sun found the garden. JingJing's sounds warmed with the room — soft at first, then fuller, her hips finding their own rhythm.
 
 "Daddy." Whispered. Almost reverent. "Right there. Stay right there."
 
@@ -84,11 +84,11 @@ Jan's hips matched her rhythm from below, a gentle counter-thrust that kept the 
 
 Jan's right hand left JingJing's hip. Found her clit. One slow circle, two, and JingJing's breath locked and her body clenched and she came with a sound so quiet it surprised both of them — a sigh, a catch, her mouth open and her eyes squeezed shut and the orgasm rolling through her in long, warm pulls.
 
-She kept moving through it. Slower. Jan's hands back on her hips, steadying her, and Jan was close too — JingJing could feel it in the tension of her stomach muscles, the slight arch in her back, her jaw clenching.
+She kept moving through it. Slower. Jan's hands back on her hips, steadying her, and Jan was close too — JingJing could feel it in the tension of her stomach and her jaw clenching.
 
 "Come inside me," JingJing said. Quiet. Like asking for the salt.
 
-Jan came. Her hips pushed up, her fingers pressed bruises into JingJing's hipbones, and JingJing felt the warmth of it — the pulse and heat of Jan emptying into her in long, shuddering waves while the garden outside filled with birdsong and the light turned from grey to gold.
+Jan came. Her hips pushed up, fingers pressing bruises into JingJing's hipbones. JingJing felt the warmth of it — Jan emptying into her in long, shuddering waves while the garden filled with birdsong and the light turned gold.
 
 She lowered herself to Jan's chest, Jan still inside her, and felt the fullness settle.
 
@@ -112,6 +112,6 @@ JingJing laughed. The laugh pressed her body against Jan's, which pressed Jan's 
 
 "You. Inside me. In a room that smells like tatami grass. With nobody watching."
 
-Jan kissed the top of her head. The garden light fell across the futon in narrow bars through the screen gaps, striping their tangled bodies in gold. JingJing closed her eyes. Felt Jan's heartbeat against her cheek, Jan's cock softening inside her, the warmth of what Jan had left in her — specific, hers.
+Jan kissed the top of her head. The garden light fell across the futon in narrow bars through the screen gaps, striping their tangled bodies in gold. JingJing closed her eyes. Felt Jan's heartbeat against her cheek and the warmth of Jan still inside her, softening.
 
 Somewhere in the garden, the bird called again. JingJing didn't know what kind it was and didn't care. She knew what her wife's heartbeat sounded like at five in the morning in Kyoto, and that was enough ornithology for one day.

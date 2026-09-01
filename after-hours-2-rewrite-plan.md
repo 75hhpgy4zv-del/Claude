@@ -44,6 +44,8 @@
 13. **"The way" is a hinge for empty constructions.** Most uses of "the way [someone] [verb]" are filler that avoids describing the actual thing. Before writing "the way," ask: can I just describe the thing directly? If yes, do that.
 14. **Never step out of a sensory scene to explain it.** During sex, during a kiss, during any scene that lives in the body — the narrator does not get to pause and deliver a lecture. No categorizing what type of sex this is. No thesis statements about what a character's body "needs." No essay paragraphs analyzing why someone is loud. If the reader isn't in the bed, on the wall, in the body, the sentence is wrong. The dialogue and the physical description carry it. Trust them.
 15. **No bridge sentences that summarize what the next sentence shows.** "Jan gave her all of it. Sank to the hilt" — the second sentence does the work. The first is a narrator confirming delivery. Cut the bridge. Start with the verb.
+16. **No comma-separated triplicates.** Three clauses or phrases of roughly equal length joined by commas create a hollow metronome cadence: "X, Y, and Z." The rhythm sounds like prose without doing work. Two items break the pattern. If you need three details, vary the structure — make one a separate sentence, nest one inside another, change the lengths so they don't land identically.
+17. **No echo-word bridges.** Pulling a word from dialogue and repeating it as a standalone sentence to hinge into narration ("harder—" / "Harder. Jan's rhythm shifted...") is a crutch. The reader heard the dialogue. Start with the action.
 
 ---
 
