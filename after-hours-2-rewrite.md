@@ -6297,3 +6297,197 @@ Jan kissed her forehead. JingJing closed her eyes under it.
 They lay there with their rings catching the lamplight, the garden five days away, the vows already living in the space between a soundstage and a bed.
 
 ---
+
+## Chapter 21: The Decision
+
+Fah's kitchen table had been cleared of everything except a laptop and a physical folder labeled *Wedding — CONFIDENTIAL* in Fah's handwriting. She had a pen she kept clicking with the nervous percussion of someone channeling feeling into office supplies.
+
+"Twelve guests," Fah said. "Final list. Tonight."
+
+Jan and JingJing sat across from her. Eleven PM, straight from set, Jan's hair stiff with product and JingJing still in stage makeup with Noo-Noo tucked under one arm because she'd grabbed the rabbit on the way out the door the way other people grabbed car keys.
+
+"Twelve," Jan confirmed.
+
+"Names."
+
+"Us," JingJing said.
+
+"You are two of the twelve, not a category." Fah didn't look up from the screen. "Full names, spelled correctly. The officiant needs them for paperwork."
+
+"The officiant is your aunt."
+
+"My aunt is a licensed officiant with professional standards and a Gmail address she checks once a week, which means the paperwork goes in by tomorrow morning. Names."
+
+JingJing adjusted Noo-Noo's ears. "Jan. Me. You. Lin. Mook. Prae, who asked during the last table read if she could come, and I said yes because she directed the Chiang Mai episode and I owe her my career."
+
+"Six."
+
+"Milk and Love."
+
+"Have you asked them?" Fah glanced at Jan.
+
+"This afternoon. During JingJing's fitting."
+
+"And?"
+
+"Love started screaming about wearing pink before Milk could finish saying hello."
+
+"Eight." Fah typed. "Kapook and Ciize?"
+
+"Ten," Jan said.
+
+"JingJing's sister," JingJing added.
+
+"She knows?"
+
+"She's known since Chiang Mai. She called the morning after and said, and I quote, 'Your Instagram story was you on a balcony at sunrise looking like you just got laid, who is she.' She is not a woman who deals in subtlety."
+
+"Eleven." Fah's typing stopped. She didn't say *twelfth*. She waited.
+
+Jan picked up the pen Fah had set down. Clicked it twice. "Jan's mother."
+
+The kitchen went quiet except for the refrigerator and the distant sound of Sukhumvit traffic eleven floors below.
+
+"I told her last week," Jan said. "On the phone. Wednesday."
+
+Fah closed the laptop. Not to type — to give what was coming room. "What did she say?"
+
+"She cried. Then she asked if JingJing was eating enough. Then she cried again and asked what kind of flowers, and I said I didn't know, and she said jasmine because jasmine is what her mother had." Jan's voice was steady in the way that took visible effort. "Then she cried a third time and said she'd take the train from Chiang Rai on Friday."
+
+JingJing's face was buried in Noo-Noo. When she looked up, her eyes were red and her mascara had left a dark smudge on the rabbit's ear.
+
+"Twelve." Fah opened the laptop. Typed the name. Then, without looking at either of them: "Venue is confirmed. Garden in Nonthaburi, booked under my name. Ceremony at five-thirty — sunset's at five forty-seven. Be there by four for photos."
+
+"Photos," Jan said.
+
+"You are getting married. There will be photos." Fah pulled a second folder from the chair beside her, thicker and tabbed with the methodical intensity of someone who processed love as logistics. "My cousin is photographing. Two family weddings under her belt, and she signed an NDA this morning."
+
+Jan blinked. "You had your cousin sign an NDA."
+
+"I had everyone attending your wedding sign an NDA. You'll both sign yours at the garden gate." She flipped to a tabbed section. "Lin drafted it. She also designed the phone policy: all devices go into a locked box at the entrance, my cousin is the only camera. Photos delivered on a USB drive the next morning — nothing gets posted until you say so."
+
+Jan was looking at Fah with an expression that was trying not to become something it couldn't take back.
+
+"Don't," Fah said. "The caterer is my uncle. Four courses. I need to know about allergies."
+
+---
+
+They drove home with the windows cracked, warm night air carrying garlic smoke from the food carts and something floral from the highway median. JingJing had her feet on the dashboard and Noo-Noo in her lap with the mascara smudge drying on his ear.
+
+"Your mom cried three separate times," JingJing said.
+
+"She's a crier."
+
+"So am I. The wedding is going to be a disaster. Two criers and Love in the same garden? Fah should add tissues to the supply list."
+
+"Fah already has tissues on the supply list. She showed me the spreadsheet."
+
+JingJing let the silence fill the car for a block. She should have been tired — fourteen hours on set, the stunt harness digging into her shoulders for the sequence Prae had added because someone decided Wine could parkour. But her body was humming with something that wasn't fatigue.
+
+"Are we doing the right thing?" she asked.
+
+"Which part?"
+
+"The secret part. Getting married without telling anyone."
+
+Jan was a careful driver, which surprised people who knew what she was like with her hands in other contexts. She used her mirrors and her turn signals, which in Bangkok was practically sainthood. It gave conversations in the car a particular rhythm: the pauses belonged to traffic, not hesitation.
+
+"Everyone has a plan for how we go public," Jan said, merging left. "Sirin and the network have mapped the whole thing out." She glanced sideways. "I want one day where it's ours. Before it becomes content."
+
+"Content." JingJing turned the word over. She'd watched fan accounts dissect every on-camera glance until a manufactured version of them took up all the space the private one needed.
+
+"After the ceremony, after the finale airs, we post. Our accounts, our timing."
+
+"And Sirin?"
+
+"She gets the exclusive after we go public. She's earned it — two months sitting on a story that would have made her career."
+
+"Do you trust her?"
+
+"I trust that she made the harder choice when the easy one would have gotten her promoted." Jan's hand found JingJing's thigh, settling with the unconscious certainty of a compass needle swinging north. "That's enough."
+
+JingJing covered Jan's hand with hers. Pressed it flat. Felt the warmth through the thin cotton of her joggers, the length of Jan's fingers past mid-thigh.
+
+"Okay," JingJing said. "Secret wedding. Our way."
+
+Jan's hand tightened.
+
+JingJing didn't move it away. She moved it up.
+
+---
+
+Two inches. Enough that Jan's fingers shifted from the outside of her thigh to the inside, where the skin ran warmer and the joggers were thinner and the intent couldn't be misread.
+
+"JingJing." Jan's eyes stayed on the road. "I'm driving."
+
+"I know you're driving."
+
+"On Sukhumvit. At midnight."
+
+"I know where we are." JingJing guided Jan's hand higher until her fingers met cotton and heat, and JingJing's hips tilted forward before she could decide whether to let them. "I sat in Fah's kitchen for three hours listening to NDA clauses and allergy requirements while your hand was on my knee under the table. I have been very patient. I am done."
+
+Jan's thumb pressed — reflex, not choice, her hand responding to familiar territory before the rest of her caught up with traffic. JingJing's breath snagged.
+
+"The apartment is twenty minutes away," Jan said.
+
+"I don't have twenty minutes."
+
+"You have twenty minutes. You just don't want them."
+
+"I don't want them." JingJing rocked up into the pressure. "Please. Just your fingers."
+
+Jan kept her left hand on the wheel. Her right slid past the waistband of JingJing's joggers, past the underwear, into the wet that had been building since Fah said *ceremony at five-thirty* and JingJing had pictured walking toward Jan in a garden and her body had decided, independently of any higher function, that it was done waiting for anything.
+
+Two fingers. Jan found her without looking — muscle memory, terrain mapped so thoroughly the landmarks were instinct. JingJing grabbed the handle above the passenger door and held on. Jan's fingers moved in slow circles, the kind JingJing would normally talk her out of because she wanted faster, except tonight the slow was enough because every nerve had been at the surface since the kitchen.
+
+"Oh *god* —" Her head fell back against the headrest, hips pushing into Jan's hand in small hitching movements. "Don't stop. Whatever you're doing, don't change anything —"
+
+"I need to shift gears."
+
+"Shift with your left hand."
+
+"I'm not going to shift with my left hand."
+
+"Jan, I will *scream* in this car."
+
+Jan shifted with her left hand. Her right stayed where it was, fingers working JingJing with the focused precision of someone simultaneously watching a taxi merge without signaling. The car lurched. JingJing moaned.
+
+"Red light," Jan said.
+
+They stopped. Engine idling. A food cart vendor ten feet from Jan's window stirred a wok that sent smoke billowing into the neon-stained air. Jan turned and looked at JingJing for the first time since her hand had been redirected.
+
+JingJing was wrecked — hair stuck to her forehead, hips still moving against Jan's hand in the absent rhythm of someone right at the edge.
+
+Jan curled her fingers. Found the angle. Pressed.
+
+JingJing came at the intersection of Sukhumvit Soi 39, in the passenger seat, with her joggers shoved to her thighs and Noo-Noo sliding off her lap. She came with her hand over her mouth — which muffled nothing — while the food cart vendor six feet away argued with a customer about the price of extra basil. Her thighs locked around Jan's wrist and the sound that escaped between her fingers was half gasp and half laugh, because the absurdity and the orgasm arrived at the same moment and both were too much.
+
+The light turned green.
+
+Jan withdrew her hand. Wiped it on her own jeans — a gesture so casually obscene that JingJing, still floating, felt a fresh pulse of want just from watching.
+
+"You shifted with your left hand," JingJing said when speech came back.
+
+"I adapted."
+
+JingJing pulled up her joggers. Repositioned Noo-Noo, who'd ended up wedged against the center console. She leaned across and pressed her face into Jan's shoulder, breathing in hair product and the faint metallic residue that studio lighting left in skin after fourteen hours under the rigs.
+
+"I love you," she said into Jan's sleeve. "More than I have words for, which is a problem because I have to write vows and everything I come up with sounds like a greeting card."
+
+"Read me what you have."
+
+"I'm not reading you my vows in a car at midnight after you just made me come at a traffic light. There's a minimum dignity threshold."
+
+"You literally just —"
+
+"Minimum. Dignity. Threshold." JingJing sat up and smoothed her hair with the exaggerated primness of someone who had zero leverage and knew it. "I'll read them to you in the garden. In white. With my mascara running."
+
+"Waterproof mascara," Jan said. "Fah budgeted for it."
+
+JingJing laughed — a bark from her belly that surprised her own ears. Jan's mouth pulled to one side, and she took JingJing's hand and held it on the gearshift for the rest of the drive home.
+
+Jan's ring pressed warm against JingJing's knuckle.
+
+Three days.
+
+---

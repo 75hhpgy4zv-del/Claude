@@ -363,7 +363,7 @@ Story spans mid-August through late November 2026 (~3.5 months). EWB ended July 
 | 11 | Mid Oct (Tue) | Ch 18 | Ring spotted "Tuesday afternoon." **"Two weeks."** |
 | 12 | Late Oct (Mon) | Ch 19 | Network response "Monday." **"A week."** |
 | 12 | Late Oct (Wed) | Ch 20 | Vow scene "on a Wednesday." **"Five days."** |
-| 12-13 | Late Oct | Ch 21 | The Decision. Logistics. |
+| 12-13 | Late Oct | Ch 21 | Fah's war room. Guest list (12). NDA. Phone policy. Jan's mother told. **"Three days."** |
 | 13 | Late Oct (Sat) | Ch 22 | **THE WEDDING.** |
 | 13 | Late Oct–Early Nov | Ch 23 | Morning after. Back on set. |
 | 13-14 | Early Nov | Ch 24 | The finale live broadcast. |
