@@ -14,7 +14,7 @@ This was unusual. She fought mornings like a legal battle — appeals filed from
 
 Three days in Kyoto. The futon was somehow more comfortable than their bed at home and the room smelled like tatami grass and cedar. Nobody in the world needed them to be anywhere.
 
-JingJing turned onto her side. Jan was on her back with one arm thrown above her head, the sheet at her waist. Her mouth was slightly open and her hair was wrecked. She looked like someone who had been fucked twice the night before and had the audacity to look elegant while unconscious.
+JingJing turned onto her side. Jan was on her back with one arm thrown above her head, the sheet at her waist. Her mouth was slightly open and her hair was wrecked. Fucked twice the night before and still elegant while unconscious. Audacity.
 
 JingJing's hand found Jan's stomach under the sheet. Warm skin, the muscle beneath it. She traced a line from Jan's navel downward, slow, the touch light enough that Jan didn't stir.
 

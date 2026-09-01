@@ -46,7 +46,14 @@
 15. **No bridge sentences that summarize what the next sentence shows.** "Jan gave her all of it. Sank to the hilt" — the second sentence does the work. The first is a narrator confirming delivery. Cut the bridge. Start with the verb.
 16. **No comma-separated triplicates.** Three clauses or phrases of roughly equal length joined by commas create a hollow metronome cadence: "X, Y, and Z." The rhythm sounds like prose without doing work. Two items break the pattern. If you need three details, vary the structure — make one a separate sentence, nest one inside another, change the lengths so they don't land identically.
 17. **No echo-word bridges.** Pulling a word from dialogue and repeating it as a standalone sentence to hinge into narration ("harder—" / "Harder. Jan's rhythm shifted...") is a crutch. The reader heard the dialogue. Start with the action.
-18. **No "with the [noun] of someone who" constructions.** This is a fill-in-the-blank simile template: "[verb] with the [adjective] [noun] of someone who [explanation]." It compares a character to a category of person instead of describing the action. "She peeled it with the focus of someone defusing ordnance" = she peeled it carefully. Say what the character does. Drop the simile.
+18. **No hypothetical-person similes.** All of these are the same dodge — comparing a character to an invented category of person instead of describing what's actually happening. The narrator routes around direct description by summoning a stranger. Kill every variation:
+    - "with the [noun] of someone who [explanation]" — "she peeled it with the focus of someone defusing ordnance" = she peeled it carefully.
+    - "the [noun] of someone who [explanation]" (no "with") — "the expression of someone who had just heard a sound she'd been dreading" = her face went white.
+    - "[verb] like someone who [explanation]" — "she looked like someone who had been specifically designed to stand at the end of an aisle" = she was stunning.
+    - "the kind of [noun] that [explanation]" — "the kind of kiss that was a conversation" = describe the kiss.
+    - "[looked] like someone who [had done X]" — "she looked like someone who had held herself together for an entire ceremony" = she was finally letting go.
+    The test: does the sentence contain a hypothetical person or category that the character is being compared to? If yes, cut the frame. Describe the character directly. Dialogue uses are fine ("You look like someone married you") — the problem is the narrator using it as a default simile frame.
+19. **No false-precision words.** "Specific," "specifically," "particular," "particularly" are honing words that promise sharpness and deliver padding. They signal *trust me, this is exact* while the clause after them does the actual work. "The specific silence of two people whose bodies knew each other" — cut "specific" and the sentence loses nothing because the description already specifies. "The particular warmth that bodies make at four AM" — "particular" is a toll booth before the real description. If the word can be cut without changing meaning, it was filler. Exception: dialogue ("I remember specifically wanting to scream"), technical precision ("anatomically specific"), and cases where "particular" genuinely means "this one, not that one" as a pronoun-like selector. The test: remove the word. If the sentence still means the same thing, the word was a bridge, not a lens.
 
 ---
 
@@ -60,6 +67,8 @@ Before committing ANY new chapter or significant edit, read the new text and ask
 4. **Did I just write the same construction I'm supposed to be fixing?** Read the replacement text as if someone else wrote it. Check for X/Y parallels, triplicates, absence-of patterns IN THE NEW TEXT.
 5. **Is the narrator delivering a paper during sex?** If a paragraph during a sex scene could be read aloud at a conference, it doesn't belong in the scene.
 6. **Is there a bridge sentence before the real sentence?** "Jan did it. [Description of Jan doing it.]" Cut the bridge.
+7. **Is there a hypothetical person?** Does the sentence compare a character to "someone who," "the kind of person who," or "the kind of [noun] that"? Cut the frame. Describe the character.
+8. **Does "specific," "particular," or any variation appear?** Remove it. If the sentence means the same thing, the word was filler.
 
 ---
 
