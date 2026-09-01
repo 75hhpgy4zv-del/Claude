@@ -10,7 +10,7 @@ Milk was already awake. Had been for twenty minutes, reading something on her ph
 
 "Morning."
 
-Love made a sound. Not a word.
+Love made a sound against her neck.
 
 Milk's hand found the back of Love's head. Fingers in her hair, slow. Love's arm tightened across Milk's stomach. Outside, a motorbike went past on the soi, the engine high and thin in the early air, and then it was quiet again except for the fan turning overhead.
 
@@ -90,7 +90,7 @@ Milk followed. She carried the bags. She didn't mind carrying the bags. Love wou
 
 They bought too much. They always bought too much. Love negotiated prices in a way that Milk found genuinely impressive — sweet and firm and somehow the vendor ended up giving her a discount while also feeling good about it, like they'd done her a favor instead of the other way around.
 
-In the car on the way home, Love put her hand on Milk's thigh. Not moving. Just there. She was quieter now. The market energy burning off, the public Love folding back in. Her thumb moved against the fabric of Milk's jeans in small circles and she looked out the window at Bangkok going past and didn't say anything for a while.
+In the car on the way home, Love put her hand on Milk's thigh. She was quieter now. The market energy burning off, the public Love folding back in. Her thumb moved against the fabric of Milk's jeans in small circles and she looked out the window at Bangkok going past and didn't say anything for a while.
 
 Milk covered Love's hand with hers. Drove one-handed. The AC was on but Love's palm was warm through the denim and Milk could feel the circles, each one smaller than the last, slowing down.
 
@@ -218,7 +218,7 @@ Milk slid two fingers in. Love's back arched off the bed and her mouth fell open
 
 Then she started to move.
 
-Slow at first. Deep. Each stroke pressing forward and curling at the end, finding the spot and hitting it with precision, and Love cried out every time, her hand flying to Milk's wrist. Not to stop her. To hold on, to feel the muscles in Milk's forearm working.
+Slow at first. Deep. Each stroke pressing forward and curling at the end, finding the spot and hitting it with precision, and Love cried out every time, her hand flying to Milk's wrist, holding on, feeling the muscles in Milk's forearm working.
 
 "More," Love breathed. "Another. Please, Daddy, I can take more."
 
@@ -228,7 +228,7 @@ Milk added a third finger and Love's whole body jerked and the sound she made wa
 
 "Don't stop. Don't you *dare* stop."
 
-Milk didn't stop. She fucked Love steady and deep, her free hand moving to Love's throat — not squeezing, just resting, the weight of her palm against the pulse point, holding Love in place. Love's eyes flew open at the touch. Her pupils were blown. Her mouth was wet.
+Milk didn't stop. She fucked Love steady and deep, her free hand resting on Love's throat, the weight of her palm against the pulse point, holding Love in place. Love's eyes flew open at the touch. Her pupils were blown. Her mouth was wet.
 
 "Daddy," Love said, and this time it broke in the middle, the word cracking open.
 
@@ -240,7 +240,7 @@ Milk's thumb found her clit. Love's whole body seized. Her hand clamped around M
 
 "Look at me," Milk said.
 
-Love opened her eyes. Tears on her face. Not from pain.
+Love opened her eyes. Tears on her face.
 
 Milk held her gaze and kept her hand moving and pressed her thumb in a slow circle and Love came. Her back arched and her thighs clamped around Milk's hand and she cried, actually cried, tears running into her hair and her body shaking in long rolling contractions around Milk's fingers. Milk didn't stop. Didn't ease up. Kept the pressure steady, kept the rhythm, her other hand moving from Love's throat to her face, thumb catching the tears.
 
