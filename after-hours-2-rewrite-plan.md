@@ -29,7 +29,7 @@
 
 ## PROSE RULES FOR THE REWRITE
 
-1. **No triplicate noun lists.** Not "the X, the Y, the Z." If you need three descriptors, you've found zero.
+1. **No triplicate constructions of ANY kind.** Not "the X, the Y, the Z." Not "Not X. Not Y. The other kind." Not "No X. No Y. No Z." The absence-of construction (defining by listing what something ISN'T before revealing what it IS) is the same banned pattern. Two negatives followed by a positive ("Not X, not Y, just Z") in prose is the same violation. If it has three parts in any configuration — noun lists, negative lists, absence-of reveals — kill it.
 2. **No "the real one."** Every laugh is real. Every smile is real. Describe what makes THIS one specific instead.
 3. **Maximum 3 em-dashes per page.** Use commas, periods, subordinate clauses. Let sentences breathe.
 4. **Never explain what the action already showed.** If Jan's jaw tightens, don't add "because she was holding something heavy." The jaw said it.
@@ -39,6 +39,8 @@
 8. **Trust the reader.** Say it once. Say it well. Move on.
 9. **Kill the word "composure."** Find twelve other ways to describe Jan's self-control.
 10. **Noo-Noo facing the wall is a once-per-act image, not a chapter-ending refrain.**
+11. **No stacked short declarative sentences** as scene-setting lists. "X. Y. Z." is a list masquerading as prose.
+12. **Never use "the way [character] always [verb]" / "like she always did" / "[character]'s usual [noun]."** These are empty references that avoid actual description. SHOW what the look/action IS. Don't reference a habit the reader hasn't witnessed — describe what's happening now.
 
 ---
 
@@ -364,7 +366,7 @@ Story spans mid-August through late November 2026 (~3.5 months). EWB ended July 
 | 12 | Late Oct (Mon) | Ch 19 | Network response "Monday." **"A week."** |
 | 12 | Late Oct (Wed) | Ch 20 | Vow scene "on a Wednesday." **"Five days."** |
 | 12-13 | Late Oct | Ch 21 | Fah's war room. Guest list (12). NDA. Phone policy. Jan's mother told. **"Three days."** |
-| 13 | Late Oct (Sat) | Ch 22 | **THE WEDDING.** |
+| 13 | Late Oct (Sat) | Ch 22 | **THE WEDDING.** 4 AM wake. Fah drives. Phone confiscation. Lin as event coordinator. Love in pink (crying). Milk fist-bump → hug ("soft" bit). Khun Pranee officiates. Noo-Noo ring bearer (wire stand). "งั้นรักละ" on guitar. 22 barefoot steps. Jan's vow (wrote 6×, starts with MtME set + Noo-Noo in bag). JingJing's vow (abandons prepared speech: "you made it safe to be who I already was"). Ring exchange. Fah's folder during kiss. Love's unintelligible toast. Lin's one-sentence toast. Fah cries alone → Mook + moo ping. Dancing without music. Wedding night: transcendent/sacred, white dress up, no underwear, slow, JingJing cries, "wife" as transformative word, quiet orgasm, Jan comes inside. "Married." |
 | 13 | Late Oct–Early Nov | Ch 23 | Morning after. Back on set. |
 | 13-14 | Early Nov | Ch 24 | The finale live broadcast. |
 | 14 | Early Nov | Ch 25 | Wrap party + Instagram post. |
