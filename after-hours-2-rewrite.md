@@ -4744,7 +4744,7 @@ Jan studied the photo with genuine confusion. "I can't see anything. It's too da
 
 Jan tilted the phone. "Could be anyone."
 
-"No," Sirin agreed. "You can't see faces."
+"Right," Sirin said. "You can't see faces."
 
 Across the kitchenette, JingJing had stopped eating. Her spoon was in the sticky rice. She was looking at Jan's back with an expression that was precisely nothing. JingJing's nothing-face was her best face.
 
