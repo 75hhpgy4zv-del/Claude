@@ -2027,7 +2027,7 @@ JingJing lifted their joined hands. Kissed Jan's knuckles. Then Jan's ring. Then
 
 "I know."
 
-JingJing pulled Jan's arm around her. Settled into her side. Noo-Noo was between them. The cooking show played. The soufflé was unsalvageable.
+JingJing pulled Jan's arm around her and settled into her side, Noo-Noo wedged between them like a chaperone while the cooking show contestant cremated a soufflé.
 
 The possessiveness was still there. Teeth and all. It would be there at the fan meet this weekend, when JingJing would have to watch fans scream at Jan and Jan would have to smile and perform availability and JingJing would have to sit on a stool and say "we're very good friends" and mean none of it.
 
@@ -2049,7 +2049,7 @@ Available.
 
 The ring on the chain was under the blouse. She could feel it pressing against her sternum.
 
-Jan appeared behind her in the mirror. Black suit. White shirt. No tie. Hair in a low ponytail. She looked like money. She looked like trouble. She looked like the reason JingJing's brain had a permanent short-circuit.
+Jan appeared behind her in the mirror, black suit and white shirt open at the collar, hair in a low ponytail that made her look like money and trouble and the reason JingJing's brain had a permanent short-circuit.
 
 "You look good," Jan said.
 
@@ -4124,7 +4124,7 @@ In the center: a single mango tree. Old. Gnarled. Its branches spread wide enoug
 
 Not a word. A sound. The sound a person makes when something they've been imagining becomes concrete and the concrete version is better.
 
-Jan's hand found hers. The automatic grip. The hand that always found hers.
+Jan's hand found hers, the same automatic grip that had found her a thousand times without looking.
 
 "This is it," JingJing said.
 
@@ -4138,7 +4138,7 @@ Jan's hand found hers. The automatic grip. The hand that always found hers.
 
 "Noted."
 
-The garden's owner, Khun Noi — sixties, silver-streaked hair, the calm energy of someone who'd spent thirty years tending this space — showed them the grounds. The pergola. The jasmine. The stone path. The koi pond in the far corner where the fish caught the afternoon light.
+The garden's owner, Khun Noi — sixties, silver-streaked hair, the calm energy of someone who'd spent thirty years tending this space — walked them through it: pergola first, then the jasmine beds, then down a stone path to a koi pond in the far corner where the fish caught the afternoon light.
 
 "Morning ceremonies get better coverage under the tree," she said. "Evening ceremonies photograph better at the pergola."
 
@@ -4280,7 +4280,7 @@ In the wedding group chat:
 
 JingJing put the phone down. Looked out the window at the city coming back — billboards and skyline. The world that didn't know about the garden. The world that saw two women in a car on a Thursday and thought: colleagues.
 
-She looked at Jan. At Jan's profile, the jaw, the slight smile that meant Jan was thinking about the same thing JingJing was thinking about. The same garden. The same twenty-two steps. The same future.
+She looked at Jan's profile — the jaw, the slight smile that meant Jan was counting the same twenty-two steps in her head.
 
 "P'Jan."
 
@@ -4494,7 +4494,7 @@ She knew exactly why. The gap was too wide: between Wine-in-a-wedding-dress and 
 
 "Noo-Noo."
 
-Sirin smiled. The warm kind. The genuine kind that made her impossible to defend against because you couldn't build a wall against someone who stood on your side of it.
+Sirin smiled, and it was the kind that made her impossible to defend against — you couldn't build a wall against someone who stood on your side of it.
 
 "In interviews I've done with GL actresses," Sirin said, "many of them talk about the objects that ground them. A scarf. A ring. A piece of jewelry from someone important. Physical anchors." Her eyes were steady. "Is Noo-Noo that kind of anchor for you?"
 
@@ -4512,7 +4512,7 @@ Sirin seemed to sense the shift. She stepped back.
 
 She walked away. Her shoes were quiet on the studio floor.
 
-JingJing sat very still. She held Noo-Noo against her chest and felt the tears come — not the crying kind. The silent kind. The kind that leaked from the corners of her eyes and ran down the sides of her face and dripped onto a rabbit who had absorbed a lifetime of tears.
+JingJing sat very still, holding Noo-Noo against her chest, and felt tears leak from the corners of her eyes and run down the sides of her face and drip onto a rabbit who had absorbed a lifetime of them.
 
 This feeling was new. The other costs — the lies about being friends, the male model, the social media curation — were external. The price of admission to an industry that wasn't ready for the truth.
 
@@ -5208,7 +5208,7 @@ The mirror was destroyed. Fogged from top to bottom, streaked where JingJing's b
 
 "What are we going to clean it with?"
 
-They surveyed the room. Costume boxes. Garment racks. Vintage fabric.
+They surveyed the room: nothing but costume boxes, garment racks, and vintage fabric worth more than their monthly rent.
 
 "Silk?" JingJing offered.
 
@@ -6074,7 +6074,7 @@ Jan's phone buzzed. Milk, one more time.
 
 **Milk:** That IS changing everything. For all of us.
 
-Jan put the phone down. Kissed the top of JingJing's sleeping head. The TV showed a chef agonizing over a crème brûlée torch. The city hummed. The plan existed.
+Jan put the phone down and kissed the top of JingJing's sleeping head while a chef on the TV agonized over a crème brûlée torch and the city hummed outside the window and the plan — for the first time — felt like something that would actually happen.
 
 Twenty-eight days.
 
@@ -6290,6 +6290,6 @@ Jan kissed her forehead. JingJing closed her eyes under it.
 
 "Twenty-six days."
 
-The rings on their fingers. The garden waiting. The vows already said, already real, already living in the space between a soundstage and a bed.
+They lay there with their rings catching the lamplight, the garden twenty-six days away, the vows already living in the space between a soundstage and a bed.
 
 ---
