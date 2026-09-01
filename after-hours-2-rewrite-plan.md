@@ -46,6 +46,7 @@
 15. **No bridge sentences that summarize what the next sentence shows.** "Jan gave her all of it. Sank to the hilt" — the second sentence does the work. The first is a narrator confirming delivery. Cut the bridge. Start with the verb.
 16. **No comma-separated triplicates.** Three clauses or phrases of roughly equal length joined by commas create a hollow metronome cadence: "X, Y, and Z." The rhythm sounds like prose without doing work. Two items break the pattern. If you need three details, vary the structure — make one a separate sentence, nest one inside another, change the lengths so they don't land identically.
 17. **No echo-word bridges.** Pulling a word from dialogue and repeating it as a standalone sentence to hinge into narration ("harder—" / "Harder. Jan's rhythm shifted...") is a crutch. The reader heard the dialogue. Start with the action.
+18. **No "with the [noun] of someone who" constructions.** This is a fill-in-the-blank simile template: "[verb] with the [adjective] [noun] of someone who [explanation]." It compares a character to a category of person instead of describing the action. "She peeled it with the focus of someone defusing ordnance" = she peeled it carefully. Say what the character does. Drop the simile.
 
 ---
 

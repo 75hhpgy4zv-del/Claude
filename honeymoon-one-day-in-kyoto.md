@@ -18,7 +18,7 @@ JingJing turned onto her side. Jan was on her back with one arm thrown above her
 
 JingJing's hand found Jan's stomach under the sheet. Warm skin, the muscle beneath it. She traced a line from Jan's navel downward, slow, the touch light enough that Jan didn't stir.
 
-She found what she was looking for. Jan was hard — morning, reliable — the cock thick against her thigh even in sleep. JingJing wrapped her hand around it and felt Jan's breathing change — a catch, then a deepening as the body registered what the brain hadn't yet.
+She found what she was looking for. Jan was hard, cock thick against her thigh even in sleep. JingJing wrapped her hand around it and felt Jan's breathing change: a catch, then a deepening as the body registered what the brain hadn't yet.
 
 "Mm." Jan's voice was gravel. Her eyes were still closed. "What time is it."
 
@@ -44,9 +44,9 @@ Jan's eyes opened. Amber in the blue-grey light, sleep-soft and unfocused.
 
 "Closer."
 
-JingJing moved. Threw one leg over Jan's hips, the sheet tangling between them. She was naked — had been naked since round two last night, when Jan had pulled the yukata off her and she hadn't bothered to put anything back on because the futon was warm and Jan's skin was warmer.
+JingJing moved. Threw one leg over Jan's hips, the sheet tangling between them. She was naked. Had been since round two last night, when Jan had pulled the yukata off her and she hadn't bothered to put anything back on because the futon was warm and Jan's skin was warmer.
 
-She positioned herself. Jan's hands came to her hips, thumbs in the hollows, and JingJing sank down slowly — the stretch of being filled at five in the morning when her body was still soft from sleep and last night and the general condition of being on her honeymoon.
+She positioned herself. Jan's hands came to her hips, thumbs in the hollows, and JingJing sank down slowly, into the stretch of being filled at five in the morning when her body was still soft from sleep and last night and the general condition of being on her honeymoon.
 
 "Oh," JingJing breathed. Her eyes closed. Her hands found Jan's chest, fingers spread over her sternum. The leftward curve pressed against her front wall and she rocked forward, just barely, finding the angle that made her breath stutter.
 
@@ -66,7 +66,7 @@ Jan's hands tightened on her hips. Pulled her down on the next stroke, deeper, a
 
 "Keep going," Jan murmured.
 
-She rode Jan with the slow, deliberate patience of someone who had nowhere to be and intended to take her time getting there. Her head fell back. Her hair, loose and sleep-tangled, brushed her own shoulders. The light through the screens was turning gold as the sun found the garden. JingJing's sounds warmed with the room — soft at first, then fuller, her hips finding their own rhythm.
+She rode Jan slowly, taking her time, intending to take more of it. Her head fell back. Her hair, loose and sleep-tangled, brushed her own shoulders. The light through the screens was turning gold as the sun found the garden. JingJing's sounds warmed with it, soft at first, then fuller, her hips finding their own rhythm.
 
 "Daddy." Whispered. Almost reverent. "Right there. Stay right there."
 
@@ -82,9 +82,9 @@ Jan's hips matched her rhythm from below, a gentle counter-thrust that kept the 
 
 "Shut up and let me come."
 
-Jan's right hand left JingJing's hip. Found her clit. One slow circle, two, and JingJing's breath locked and her body clenched and she came with a sound so quiet it surprised both of them — a sigh, a catch, her mouth open and her eyes squeezed shut and the orgasm rolling through her in long, warm pulls.
+Jan's right hand left JingJing's hip. Found her clit. One slow circle, two, and JingJing's breath locked and her body clenched and she came with a sound so quiet it surprised both of them: a sigh, a catch, her mouth open and her eyes squeezed shut and the orgasm rolling through her in long, warm pulls.
 
-She kept moving through it. Slower. Jan's hands back on her hips, steadying her, and Jan was close too — JingJing could feel it in the tension of her stomach and her jaw clenching.
+She kept moving through it. Slower. Jan's hands back on her hips, steadying her, and Jan was close too. JingJing could feel it in the tension of her stomach and her jaw clenching.
 
 "Come inside me," JingJing said. Quiet. Like asking for the salt.
 
