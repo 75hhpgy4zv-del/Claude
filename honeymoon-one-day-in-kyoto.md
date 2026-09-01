@@ -14,7 +14,7 @@ This was unusual. She fought mornings like a legal battle — appeals filed from
 
 Three days in Kyoto. The futon was somehow more comfortable than their bed at home and the room smelled like tatami grass and cedar. Nobody in the world needed them to be anywhere.
 
-JingJing turned onto her side. Jan was on her back with one arm thrown above her head. The sheet sat at her waist. Her mouth was slightly open. Her hair was wrecked. She looked like someone who had been fucked twice the night before and had the audacity to look elegant while unconscious.
+JingJing turned onto her side. Jan was on her back with one arm thrown above her head, the sheet at her waist. Her mouth was slightly open and her hair was wrecked. She looked like someone who had been fucked twice the night before and had the audacity to look elegant while unconscious.
 
 JingJing's hand found Jan's stomach under the sheet. Warm skin, the muscle beneath it. She traced a line from Jan's navel downward, slow, the touch light enough that Jan didn't stir.
 
@@ -46,49 +46,79 @@ Jan's eyes opened. Amber in the blue-grey light, sleep-soft and unfocused.
 
 JingJing moved. Threw one leg over Jan's hips, the sheet tangling between them. She was naked. Had been since round two last night, when Jan had pulled the yukata off her and she hadn't bothered to put anything back on because the futon was warm and Jan's skin was warmer.
 
-She positioned herself. Jan's hands came to her hips, thumbs in the hollows, and JingJing sank down slowly, into the stretch of being filled at five in the morning when her body was still soft from sleep and last night and the general condition of being on her honeymoon.
+She positioned herself. Jan's hands came to her hips, thumbs in the hollows, and JingJing sank down. Slowly. Inch by inch, the stretch enormous even now, even after hundreds of times, her body opening around the thickness of Jan's cock while her thighs trembled and her breath came in small, broken pulls. Halfway down she stopped, adjusting, and Jan's thumbs moved in circles on her hipbones.
 
-"Oh," JingJing breathed. Her eyes closed. Her hands found Jan's chest, fingers spread over her sternum. The leftward curve pressed against her front wall and she rocked forward, just barely, finding the angle that made her breath stutter.
+"Okay?" Jan murmured.
 
-"Good morning," Jan said.
+"Mm-hm. Just — give me a second. You're a lot at five AM."
 
-"Good — mm — good morning."
+"I'm a lot at every hour."
 
-JingJing moved slowly. The futon shifted on the tatami with each roll of her hips, a soft rhythmic whisper that mixed with the garden sounds and Jan's breathing underneath her. The day stretched ahead of them, empty and theirs.
+"Accurate." JingJing sank the rest of the way. The leftward curve pressed hard against her front wall and her mouth fell open and the sound she made was low, guttural, the kind of sound that would have carried through apartment walls back home. Here there were no walls. Just screens and the garden beyond. "Oh, *fuck*. Oh, that's — Daddy, you're so deep."
 
-"I like this," JingJing said. Her voice was quiet, morning-quiet. "Being on top of you before the sun is up. In a room that smells like grass."
+"I know."
+
+"I can feel you in my *stomach*."
+
+"You can't actually—"
+
+"I can feel you in my stomach and I am NOT accepting corrections right now." She rocked forward, just barely, and the curve shifted inside her and hit the spot that made her vision swim. "*There.* Oh my god. Good morning."
+
+Jan laughed underneath her. "Good morning."
+
+JingJing started to move. Slow rolls of her hips, rising until just the head was inside her, then sinking back down until she'd taken everything. The futon shifted on the tatami with each descent, a soft rhythmic whisper under the garden sounds.
+
+"I like this," JingJing said, her voice lower than usual, rougher. "Being on top of you before the sun is up. In a room that smells like grass."
 
 "Tatami."
 
 "Tatami grass. I'm on your cock and you're giving me a vocabulary lesson."
 
-Jan's hands tightened on her hips. Pulled her down on the next stroke, deeper, and JingJing's correction died in her throat and became a sound.
+Jan's hands tightened on her hips. Pulled her down on the next stroke, deeper than JingJing had been going, and JingJing's correction died in her throat and became a moan that rolled out of her and filled the room.
 
-"Keep going," Jan murmured.
+"You feel incredible," Jan said. Her voice had thickened. "You're so wet."
 
-She rode Jan slowly, taking her time, intending to take more of it. Her head fell back. Her hair, loose and sleep-tangled, brushed her own shoulders. The light through the screens was turning gold as the sun found the garden. JingJing's sounds warmed with it, soft at first, then fuller, her hips finding their own rhythm.
+"I've been wet since I woke up. I opened my eyes and you were lying there and I thought, *I'm going to ride my wife before sunrise*, and my body just — agreed. Immediately. Without consulting me."
 
-"Daddy." Whispered. Almost reverent. "Right there. Stay right there."
+Jan's hips pushed up. JingJing gasped, caught off guard by the depth, and her nails dug into Jan's chest.
 
-Jan's hips matched her rhythm from below, a gentle counter-thrust that kept the angle precise. JingJing's thighs tightened. Her fingers curled against Jan's chest.
+"Do that again."
 
-"I'm close," JingJing said. "Already. I'm — how am I already—"
+Jan did it again. JingJing's spine arched and the sound she made was louder now, closer to her usual volume, the restraint of the morning burning off.
 
-"Because you woke up wanting this."
+"Again. Harder."
 
-"I woke up wanting *you*. There's a difference."
+"I thought you were taking your time."
 
-"Is there?"
+"I changed my mind. *Harder*, Daddy."
 
-"Shut up and let me come."
+Jan planted her feet on the futon and thrust up, and JingJing cried out, hands bracing against Jan's chest, her body jolting with each stroke. She was still on top but Jan was driving now, fucking up into her while JingJing's hips rolled to meet each thrust, the angle sending the curve directly into the swollen spot inside her.
 
-Jan's right hand left JingJing's hip. Found her clit. One slow circle, two, and JingJing's breath locked and her body clenched and she came with a sound so quiet it surprised both of them: a sigh, a catch, her mouth open and her eyes squeezed shut and the orgasm rolling through her in long, warm pulls.
+"Right there right there right there — oh *god* — don't stop, don't you dare stop—"
 
-She kept moving through it. Slower. Jan's hands back on her hips, steadying her, and Jan was close too. JingJing could feel it in the tension of her stomach and her jaw clenching.
+"I'm not stopping."
 
-"Come inside me," JingJing said. Quiet. Like asking for the salt.
+"Promise me."
 
-Jan came. Her hips pushed up, fingers pressing bruises into JingJing's hipbones. JingJing felt the warmth of it — Jan emptying into her in long, shuddering waves while the garden filled with birdsong and the light turned gold.
+"I promise. Come here." Jan's hand found the back of JingJing's neck, pulled her down. Their foreheads pressed together. JingJing's hair fell around both their faces. Jan kept the rhythm steady, kept the angle, and JingJing's moans were landing directly against Jan's mouth now, each one a small hot breath.
+
+"Daddy, I'm close," JingJing whispered. "I'm so close. I can feel it building and it's — it's everywhere, it's in my legs—"
+
+"I know. I can feel you tightening."
+
+"Touch me. Please."
+
+Jan's hand slid between them. Found her clit. One slow circle, and JingJing's whole body seized, her breath caught, and she came with a sound that started silent and then broke open into a moan so raw it startled the bird in the garden into flight. Her body clenched around Jan's cock in rhythmic, rolling contractions. Her forehead stayed pressed to Jan's and her mouth hung open, shaking.
+
+Jan held her through it. Kept her fingers moving, drawing it out, and JingJing kept coming, longer than she expected, the orgasm returning in waves every time she thought it was finished.
+
+"Oh my god," JingJing breathed when her body finally released. "Oh my *god*."
+
+She was still trembling when she felt Jan's stomach tighten under her. Jan was close. JingJing forced her hips to move again, clenching deliberately around Jan's cock, grinding down.
+
+"Come inside me," JingJing said against Jan's mouth. "I want to feel it. Fill me up, Daddy."
+
+Jan came. Her hips pushed up hard, her hands gripping JingJing's hips bruise-tight, and JingJing felt the first pulse of warmth inside her and moaned at the sensation, grinding down to take Jan as deep as possible while Jan emptied into her in long, shuddering waves.
 
 She lowered herself to Jan's chest, Jan still inside her, and felt the fullness settle.
 
