@@ -172,61 +172,93 @@ Later.
 
 The larb was eaten, the dishes were done, the apartment was dark except for the bedroom where the lamp by the bed put a warm circle on the wall and the rest was shadow.
 
-Love was on her back. Milk was over her, one hand by Love's head, the other on her hip, and they were kissing, slow and deep, not going anywhere because they were already there.
+It started on the couch. Love climbed into Milk's lap during a scene she wasn't narrating for once and kissed her, and the kiss had teeth in it. Love bit Milk's lower lip and Milk's hands went to Love's waist, gripping, and Love made a sound into her mouth that was already past conversation.
 
-Love's hand was in Milk's hair. She pulled. Not hard. A tug that said *more* without saying it, and Milk gave her more, pressing down, her weight settling onto Love's body, and Love made a sound against Milk's mouth that was small and open and had nothing in it except want.
+They made it to the bedroom. Barely. Milk walked Love backward through the doorway with her hands under the hoodie, on bare skin, and Love's back hit the doorframe and she gasped and Milk kissed the gasp out of her mouth and kept going. Through the door. To the bed.
 
-"Tell me," Milk said against her lips.
+Love was on her back. Milk was over her, one hand by Love's head, the other pulling the hoodie up and off. Love lifted her arms, let it go. Milk's shirt followed and then it was skin on skin, Milk's weight pressing Love into the mattress, and Love wrapped her legs around Milk's waist and pulled her closer and the sound she made was open and desperate and had nothing in it except *now*.
 
-"I want you."
+"Tell me what you want," Milk said. Low. Her mouth against Love's ear.
+
+"You. I want you."
 
 "You have me."
 
-"More. I want — more of you."
+"I want *more* of you. I want — Daddy, please."
 
-Milk pulled back enough to look at her. Love's eyes were dark in the lamplight and wet at the edges, not crying, just full, and her lips were swollen and her chest was moving fast.
+The word came out quiet. Stripped bare. The filter was off.
 
-"Okay," Milk said. "I'm here."
+Milk's hand closed around Love's jaw. Turned her face. Love's eyes were dark and wet at the edges and her breathing was fast.
 
-She pulled the hoodie over Love's head. Her own shirt followed. Love's skin was warm and Milk put her mouth on Love's neck, on the tendon, and Love's back arched and her hand fisted in the sheet and the sound she made was louder than the one before. Milk bit down. Not gently. Love gasped and her hips came up off the bed and Milk's hand pinned them back down.
+"Again," Milk said.
 
-"Stay."
+"Daddy." Barely a whisper. "Please."
 
-Love stayed. Trembling, but she stayed. Milk kissed the bite mark, tongued it, and Love whimpered — the word was embarrassing but it was the right word, the sound high and thin and stripped of anything that wasn't need.
+Milk kissed her. Hard. Her tongue in Love's mouth and her hand sliding down Love's body, over her ribs, her stomach, hooking into the waistband of her shorts and pulling them down. Love kicked them off and Milk's hand was between her legs before the shorts hit the floor.
 
-Milk worked down her body. Unhurried. She had time and she used it — mouth on Love's collarbone, teeth on her ribs, tongue flat across her nipple and then circling, slow, while Love's body twitched and her breathing unraveled. Milk's hands held her hips steady against the mattress, thumbs pressing into the hollows, and Love's hands were in Milk's hair, not guiding, just holding on.
+Love was soaked. Had been since the kitchen, since the counter, since Milk's hand on the back of her neck and the words *I've got you* landed in her body and opened something that hadn't closed.
 
-"Milk — please —"
+"God, maew miew." Milk's voice had dropped into the low register that Love felt in her spine. "You're dripping."
 
-"Please what."
+Love's hips pushed against Milk's hand. Desperate, chasing friction.
 
-Love's eyes were closed. Her jaw was tight. She was trying to find words for something that wasn't a word and Milk watched her try and waited.
+"Don't rush." Milk's free hand pressed Love's hip into the mattress. Held her still. "I've got you. Let me."
 
-"I need to feel you. I need — I need you inside me. Please."
+Love whimpered. Her body fought the pin for a second and then surrendered, going slack under Milk's hand, trusting her.
 
-Milk kissed her stomach. The soft skin below her navel. Love's thighs fell open and Milk's fingers traced the inside of her thigh, up, and Love was wet, had been wet since the kitchen, since the counter, since Milk's hand on the back of her neck and the word *I've got you* landed in her body and opened something.
+Milk worked slowly. Two fingers tracing through the wet, circling Love's clit, pressing but not entering, and Love's body shook with each pass. Her mouth was open and her eyes were closed and her hands were fisted in the sheet and the sounds coming out of her were raw and continuous and she didn't try to quiet them.
 
-Milk slid two fingers in. Slowly. Love took them and her whole body curved and she cried out, loud, not holding anything back, and the sound filled the room.
+"Inside," Love managed. "Please. I need you inside me."
 
-"More," Love said. "Please. Another."
+"How much."
 
-Milk added a third finger and Love cried out and her hand found Milk's wrist, not to stop her, to hold on to her, to feel the muscles in Milk's forearm working, and Milk started to move. Steady. Deep. Each thrust deliberate, pressing forward and up, curling at the end, hitting the place that made Love's vision go white.
+"All of you. Everything."
+
+Milk slid two fingers in. Love's back arched off the bed and her mouth fell open and the sound that came out of her was loud, full-throated, the volume she never used in public. Milk gave her a moment. Felt Love's body clench around her fingers, adjust, soften.
+
+Then she started to move.
+
+Slow at first. Deep. Each stroke pressing forward and curling at the end, finding the spot and hitting it with precision, and Love cried out every time, her hand flying to Milk's wrist. Not to stop her. To hold on, to feel the muscles in Milk's forearm working.
+
+"More," Love breathed. "Another. Please, Daddy, I can take more."
+
+Milk added a third finger and Love's whole body jerked and the sound she made was close to a scream and her nails dug into Milk's forearm, leaving marks that would be there tomorrow.
+
+"Okay?" Milk murmured.
+
+"Don't stop. Don't you *dare* stop."
+
+Milk didn't stop. She fucked Love steady and deep, her free hand moving to Love's throat — not squeezing, just resting, the weight of her palm against the pulse point, holding Love in place. Love's eyes flew open at the touch. Her pupils were blown. Her mouth was wet.
+
+"Daddy," Love said, and this time it broke in the middle, the word cracking open.
+
+"I know," Milk said. "I know, maew miew. I'm right here."
+
+She increased the pace. Love's body moved with her, hips rising to meet each thrust, and the bed frame knocked against the wall in a rhythm that neither of them heard because the only sound in the room was Love, saying Milk's name and then Daddy and then just sound.
+
+Milk's thumb found her clit. Love's whole body seized. Her hand clamped around Milk's wrist.
 
 "Look at me," Milk said.
 
 Love opened her eyes. Tears on her face. Not from pain.
 
-Milk held her gaze. Didn't look away. Her hand kept moving, steady, relentless, and her other hand came to Love's face, thumb brushing the tears, and Love turned her head and kissed Milk's palm and Milk felt it in her chest, behind her ribs, the place where she kept the things she didn't say.
+Milk held her gaze and kept her hand moving and pressed her thumb in a slow circle and Love came. Her back arched and her thighs clamped around Milk's hand and she cried, actually cried, tears running into her hair and her body shaking in long rolling contractions around Milk's fingers. Milk didn't stop. Didn't ease up. Kept the pressure steady, kept the rhythm, her other hand moving from Love's throat to her face, thumb catching the tears.
 
-"I love you," Love whispered against Milk's hand. "I love you. I love you."
+"That's it," Milk said, quiet. "That's my girl. Let go."
 
-Milk curled her fingers and pressed her thumb against Love's clit and Love came apart. Her back arched off the bed and her hand clenched around Milk's wrist and she cried, actually cried, tears and her whole body shaking while Milk held her open and didn't stop, didn't soften, kept the pressure steady until Love's body let go.
+Love came again. Or still. The orgasm rolling back over her before the first one finished, her body clenching hard around Milk's fingers, and the sound she made was Milk's name, just Milk's name, over and over until it wasn't a name anymore, just breath.
 
-Love came down slowly. Her body relaxed in stages — hands first, then shoulders, then hips, then finally her breathing, which took the longest. Milk slid her fingers out, gentle now, and Love flinched at the loss and reached for her.
+Milk slowed. Gradually. Brought Love down in stages, her fingers gentling, her thumb easing off, until Love's body finally unclenched and Love lay there shaking, chest heaving, face wet.
+
+Milk slid her fingers out. Gently. Love flinched and then reached for her, both hands, urgent.
 
 "Come here. Come here come here come here."
 
 Milk lay down beside her. Love rolled into her immediately, face in her neck, leg thrown over her hip, arm tight across her chest. The same position as the morning. The day circling back to where it started.
+
+"Maew miew," Milk said into Love's hair. Her hand running down Love's spine, slow. "I've got you."
+
+Love pressed closer. Her body was still trembling. Aftershocks, small ones, her muscles twitching against Milk's.
 
 "Stay," Love said. Against Milk's throat.
 
