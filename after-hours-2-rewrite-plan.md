@@ -41,6 +41,22 @@
 10. **Noo-Noo facing the wall is a once-per-act image, not a chapter-ending refrain.**
 11. **No stacked short declarative sentences** as scene-setting lists. "X. Y. Z." is a list masquerading as prose.
 12. **Never use "the way [character] always [verb]" / "like she always did" / "[character]'s usual [noun]."** These are empty references that avoid actual description. SHOW what the look/action IS. Don't reference a habit the reader hasn't witnessed — describe what's happening now.
+13. **"The way" is a hinge for empty constructions.** Most uses of "the way [someone] [verb]" are filler that avoids describing the actual thing. Before writing "the way," ask: can I just describe the thing directly? If yes, do that.
+14. **Never step out of a sensory scene to explain it.** During sex, during a kiss, during any scene that lives in the body — the narrator does not get to pause and deliver a lecture. No categorizing what type of sex this is. No thesis statements about what a character's body "needs." No essay paragraphs analyzing why someone is loud. If the reader isn't in the bed, on the wall, in the body, the sentence is wrong. The dialogue and the physical description carry it. Trust them.
+15. **No bridge sentences that summarize what the next sentence shows.** "Jan gave her all of it. Sank to the hilt" — the second sentence does the work. The first is a narrator confirming delivery. Cut the bridge. Start with the verb.
+
+---
+
+## PRE-COMMIT REVIEW (MANDATORY)
+
+Before committing ANY new chapter or significant edit, read the new text and ask these questions of every sentence. This is not a grep. This is a read.
+
+1. **Does this sentence keep me in the scene or pull me to a lectern?** If it's explaining, categorizing, or delivering a thesis about what's happening — cut it. Especially during sex.
+2. **Am I defining something by listing what it ISN'T?** "Not X. Not Y. The real thing." Kill it. Say what it IS.
+3. **Does "the way" appear?** Is it doing real work (a simile with a specific vehicle) or is it a hinge for an empty habitual reference? If the latter, describe the thing directly.
+4. **Did I just write the same construction I'm supposed to be fixing?** Read the replacement text as if someone else wrote it. Check for X/Y parallels, triplicates, absence-of patterns IN THE NEW TEXT.
+5. **Is the narrator delivering a paper during sex?** If a paragraph during a sex scene could be read aloud at a conference, it doesn't belong in the scene.
+6. **Is there a bridge sentence before the real sentence?** "Jan did it. [Description of Jan doing it.]" Cut the bridge.
 
 ---
 

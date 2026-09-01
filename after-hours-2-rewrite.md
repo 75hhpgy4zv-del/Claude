@@ -321,7 +321,7 @@ JingJing was in an oversized lilac hoodie, denim shorts, and platform sneakers t
 
 "Thanks, Daddy," she murmured.
 
-Quiet. Under her breath. A frequency meant for one.
+Under her breath. A frequency meant for one.
 
 Lin, six feet away, heard it. Her pen stopped. A muscle in her jaw worked.
 
@@ -555,7 +555,7 @@ Jan sank to the hilt and held there, and JingJing's legs tightened around her wa
 
 Jan moved.
 
-Slow. Deep. The kind of strokes that pulled almost all the way out before pressing back in, that made JingJing feel the full length of the withdrawal and the full length of the return.
+Each stroke pulled almost all the way out before pressing back in, slow and deep, making JingJing feel every inch.
 
 "Right there — *ah* — Daddy, right there, don't stop—"
 
@@ -563,13 +563,13 @@ Jan's hips rolled. Found the angle. JingJing's back arched off the bed.
 
 "*There* — oh fuck, Daddy, *there*, right there — harder—"
 
-Harder. Jan's rhythm shifted, the slow indulgence tightening into something more focused, each thrust deeper, more precise, the leftward curve hitting the spot inside JingJing that made her vision blur and her vocabulary collapse to single syllables.
+Jan's rhythm shifted, each thrust deeper, more precise, the leftward curve hitting the spot inside JingJing that made her vision blur and her vocabulary collapse to single syllables.
 
 "Yes — *yes* — don't stop — I'm — Daddy, I'm so close—"
 
 "I know." Jan's breath against her neck. "I can feel you."
 
-She could. JingJing was tightening around her — the involuntary grip, the trembling in her thighs, nails digging crescents into Jan's shoulders. Jan held steady. Same depth, same angle, unwavering, and she refused to change it.
+She could. JingJing was tightening around her, thighs trembling, nails digging crescents into Jan's shoulders. Jan held the rhythm, refusing to change a single thing even as JingJing's body begged her to.
 
 "Come for me," Jan said. Simple. Certain.
 
@@ -581,7 +581,7 @@ She could. JingJing was tightening around her — the involuntary grip, the trem
 
 "Good girl. Let go."
 
-JingJing came. Her whole body seized, back arched, hands clawing at the sheets, and the sound she made was loud enough that the neighbors probably heard it and neither of them cared, because the apartment was theirs and the night was theirs and JingJing could scream if she wanted to, and she wanted to. The orgasm rolled through her in waves, each one pulling a different sound out of her, and Jan kept moving through all of it, drawing it out, riding the contractions.
+JingJing came. Her whole body seized, back arched, hands clawing at the sheets, the scream filling the apartment. The orgasm rolled through her in waves, each one pulling a different sound out of her, and Jan kept moving through all of it, drawing it out, riding the contractions.
 
 "Again," Jan said.
 
@@ -1181,7 +1181,7 @@ Jan started to stand, started to lift JingJing with her, but JingJing stopped he
 
 "No," JingJing said. "Let me."
 
-Jan stilled. This was different. JingJing didn't initiate. JingJing provoked, teased, dared, presented herself. She made Jan take. She never took for herself. It was the architecture of their dynamic, the load-bearing wall. And tonight JingJing was putting her hands on it and saying *let me carry this one.*
+Jan stilled. Her hands opened at her sides, palms up on the floor. Waiting.
 
 "Okay," Jan said.
 
@@ -1197,11 +1197,11 @@ Jan's hands rested on JingJing's thighs. Waiting.
 
 JingJing reached behind herself and pulled Jan's joggers down, working them past her hips, and Jan lifted to help. The boxer briefs followed. Jan was hard. JingJing wrapped her hand around her and stroked once, slowly, and Jan's eyes went dark.
 
-"That's my wife," JingJing whispered. Not a joke. Not a bit. The word landed in the room like a stone in water, and the ripples went everywhere.
+"That's my wife," JingJing whispered. The word landed in the room like a stone in water, and the ripples went everywhere.
 
 She rose up. Positioned Jan beneath her. Sank down.
 
-The first inch was a gasp. The stretch, always the stretch, no matter how many times. Her body opening around Jan, the fullness, the ache of being filled by someone you love when the word "wife" is still hanging in the air between you.
+The first inch was a gasp. The stretch. Her body opening around Jan, the fullness, the ache of being filled while the word "wife" was still hanging in the air between them.
 
 "JingJing—" Jan's voice was rough. Her hands tightened on JingJing's thighs.
 
@@ -1237,7 +1237,7 @@ She was moving faster now. The slow pace dissolving as her body took over from h
 
 "I love you," JingJing gasped. "I love you and I want to — *Daddy, right there* — I want to be married to you and I want everyone to know and I'm so — I'm so *tired* of hiding—"
 
-Her voice cracked. She was crying. Not the dramatic kind. The two-tear kind. The overflow kind, where everything she'd held in all day, the fitting and the mask and the "very lesbian wedding catalogue," came spilling out of her while Jan was inside her and the ring was in Jan's hand and the spreadsheet was still glowing on the floor with its twelve names and its empty cells.
+Her voice cracked. She was crying. Two tears, the overflow, where everything she'd held in all day, the fitting and the mask and the "very lesbian wedding catalogue," came spilling out of her while Jan was inside her and the ring was in Jan's hand and the spreadsheet was still glowing on the floor with its twelve names and its empty cells.
 
 "Come here," Jan said, and sat up, and JingJing folded into her, arms around Jan's neck, forehead against Jan's forehead, still moving, still riding, but closer now, their chests pressed together, the ring caught between their bodies.
 
@@ -1267,7 +1267,7 @@ JingJing let go. She came with Jan's name in her mouth and Jan's hands on her ba
 
 "That's the same thing."
 
-JingJing laughed into Jan's shoulder. A wet, incandescently happy sound. She pulled back and looked at Jan's face, and Jan's eyes were bright, and JingJing realized that Jan had been crying too. Silently. The way Jan cried. Two tears, caught in her lashes, visible only from this close.
+JingJing laughed into Jan's shoulder. A wet, incandescently happy sound. She pulled back and looked at Jan's face, and Jan's eyes were bright, and JingJing realized that Jan had been crying too. Silently. Two tears, caught in her lashes, visible only from this close.
 
 "You cried," JingJing said.
 
@@ -1571,7 +1571,7 @@ Not hard. An open palm to the shoulder, more impact than pain, the kind of hit t
 
 The elevator opened. Their floor. JingJing yanked her wrist free and stalked to the apartment door, fumbled the key, got it open, and Jan was through behind her, door slamming, and the argument continued in the dark entryway with their shoes still on.
 
-"You could have gotten us caught," JingJing said again, and this time the words cracked open and what was underneath was not anger but the thing that lived next to anger, the twin that shared its heartbeat, the heat that was indistinguishable from fury until you got close enough to feel the direction of the flame.
+"You could have gotten us caught," JingJing said again, and this time the words cracked open and what was underneath was heat, indistinguishable from fury until you got close enough to feel the direction of the flame.
 
 "And you would have let me," Jan said.
 
@@ -1588,8 +1588,6 @@ The elevator opened. Their floor. JingJing yanked her wrist free and stalked to 
 "Because you wanted it."
 
 JingJing shoved her. Both hands against Jan's chest, pushing her backward into the hallway wall. Jan's back hit the plaster and JingJing was on her, mouth on her mouth, kissing her the way she'd wanted to kiss her in the hallway, the way she'd been wanting to kiss her since Jan's fingers touched her neck at a table full of colleagues and short-circuited her entire nervous system.
-
-This was not the tender sex from the night before. This was not whispering about weddings. This was the collision, the argument that had nowhere to go but through each other, the fight that couldn't be won with words.
 
 JingJing bit Jan's lower lip. Hard. Jan hissed, and her hands found JingJing's hips and gripped, and JingJing felt the bite land in Jan's body, felt her go rigid, felt the sharp inhale that meant the line between pain and want had blurred exactly the way JingJing intended.
 
@@ -1621,7 +1619,7 @@ Jan let go of her wrists. Pulled JingJing's shorts down. JingJing kicked them of
 
 "*Fuck* — you — Daddy—"
 
-Jan thrust up into her — sharp and insistent, the fight's rhythm, each stroke punctuating the argument they'd been having and would keep having and would never resolve because the argument was the relationship: Jan's recklessness and JingJing's inability to resist it, two forces that should cancel each other out but instead multiplied.
+Jan thrust up into her — sharp and insistent, each stroke punctuating the argument they'd been having and would keep having and would never resolve.
 
 "You're so — *ah* — so fucking reckless—" JingJing's nails dug into Jan's shoulders. "You kissed me — in a *hallway* — and now Lin is going to need — *oh god right there* — is going to need therapy—"
 
@@ -1645,7 +1643,7 @@ Jan shifted the angle. Deeper. JingJing cried out.
 
 JingJing came. Screaming. Nails drawing lines down Jan's back that would sting in the shower tomorrow. Her whole body clenching around Jan, the orgasm ripping through her with the same intensity as the argument, the anger and the pleasure fusing into something she couldn't name and didn't want to.
 
-Jan came moments later, buried deep, forehead against JingJing's collarbone, and the sound she made was quiet, almost silent, a breath and a shudder and JingJing's name, and the contrast between Jan's quiet and JingJing's screaming was its own kind of harmony.
+Jan came moments later, buried deep, forehead against JingJing's collarbone, and the sound she made was quiet, almost silent, a breath and a shudder and JingJing's name.
 
 They stayed against the wall. Breathing. JingJing's legs still wrapped around Jan's waist. Something had definitely fallen off the hallway table. A shoe was in the kitchen somehow.
 
@@ -2205,7 +2203,7 @@ Jan's arms tightened. She reached for her phone and booked the room.
 
 The hotel was a Marriott. The room was on the fourteenth floor. The door closed behind them and JingJing locked it — deadbolt, chain, the compulsive double-check of someone who needed the boundary between inside and outside to be physical, tangible, something she could hear click.
 
-Jan stood in the center of the room. Still in the suit. The suit that twelve hundred fans had seen. The suit that Sirin had documented. The suit that Golf's hand had held three days ago in photographs that were right now being color-corrected at a magazine office somewhere, photographs of Jan's hand in someone else's, photographs that the world would see and interpret as evidence of a life that didn't include JingJing.
+Jan stood in the center of the room. Still in the suit — the same suit twelve hundred fans had screamed at, that Sirin had documented, that Golf's hand had held three days ago in photographs being color-corrected right now at a magazine office somewhere. Photographs of Jan's hand in someone else's. Photographs that the world would see and interpret as evidence of a life that didn't include JingJing.
 
 JingJing turned from the door.
 
@@ -2243,7 +2241,7 @@ Jan's eyes were dark. Her breathing had changed. Her hands hung at her sides, no
 
 "I know you know. I want your body to know too."
 
-JingJing kissed her. Hard. Not the tender kiss, not the forehead kiss, not any kiss they'd shared before. This was the possessive kiss, the one with teeth and ownership and the accumulated fury of three hours of "very good friends." She bit Jan's lower lip and Jan groaned, and the sound was the best thing JingJing had heard all day, better than the screaming fans, better than the applause, better than everything, because this sound was hers alone.
+JingJing kissed her. Hard. With teeth, with ownership, with the accumulated fury of three hours of "very good friends." She bit Jan's lower lip and Jan groaned, and the sound was the best thing JingJing had heard all day, better than the screaming fans, better than the applause, better than everything, because this sound was hers alone.
 
 She dropped to Jan's neck. Bit. Jan's head fell back against the wall.
 
@@ -2281,7 +2279,7 @@ JingJing pulled the briefs down. Jan sprang free, thick and hard and curved to t
 
 "Yours."
 
-"All of it. Every inch. Not Golf's. Not the fans'. Not the magazine's. Mine."
+"All of it. Every inch. Golf and the fans and the magazine can have their version. This is mine."
 
 "Yours, JingJing. All of it."
 
@@ -2311,9 +2309,7 @@ JingJing rose up. Took Jan inside her in one motion. All of it. Ten inches. Fast
 
 "You — *ah* — you feel so good — Daddy — *fuck*—"
 
-She was losing the script. The possessive fury dissolving into the physical, the anger bleeding into pleasure, because Jan inside her was Jan inside her regardless of the emotional framework and JingJing's body didn't care about jealousy or magazines or PR strategy, JingJing's body just cared about *this*, about the angle that hit the spot that made her scream.
-
-She screamed. Not quietly. The hotel room walls were thick enough or they weren't. She didn't care.
+She screamed. The hotel room walls were thick enough or they weren't. She didn't care.
 
 "Come inside me," JingJing gasped. "I want to feel it. I want — Daddy, I'm close — come with me—"
 
@@ -2321,7 +2317,7 @@ She screamed. Not quietly. The hotel room walls were thick enough or they weren'
 
 "*Now.*"
 
-They came together. JingJing clenching around Jan, Jan pulsing inside her, JingJing's nails drawing four parallel lines down Jan's chest that would sting for days and that Jan would touch in the shower tomorrow and remember. JingJing screamed Jan's name and Jan said hers, quiet, reverent, and the contrast was their whole relationship: JingJing loud and Jan steady and both of them destroyed.
+They came together. JingJing clenching around Jan, Jan pulsing inside her, JingJing's nails drawing four parallel lines down Jan's chest that would sting for days and that Jan would touch in the shower tomorrow and remember. JingJing screamed Jan's name and Jan said hers, quiet, reverent.
 
 JingJing collapsed onto Jan's chest. Breathing hard. Shaking. Jan's arms came around her, and for a long moment the only sound was their breathing and the distant hum of the hotel air conditioning.
 
@@ -2926,7 +2922,7 @@ JingJing looked. Her eyes were wet. Not crying, not yet, but close. The proximit
 
 "There's no difference."
 
-JingJing started to cry. Silently, the tears just falling, her hips still rocking in that slow, devastating rhythm, taking Jan deep and holding her there and then rising and sinking again. She didn't wipe her face. She didn't look away. She kept her eyes on Jan's and let Jan see her cry and let Jan see her fuck and let Jan see her do both at the same time because that was the thing about JingJing that made Jan crazy, the thing that had made Jan fall in love with her in the first place: JingJing could not fake a single thing. Every sound was real. Every tear was real. Every clench of her body around Jan's cock was real, and she was clenching now, rhythmic and involuntary, her body responding to something her mind couldn't language.
+JingJing started to cry. Silently, the tears just falling, her hips still rocking in that slow, devastating rhythm, taking Jan deep and holding her there and then rising and sinking again. She didn't wipe her face. She didn't look away. She kept her eyes on Jan's and let Jan see everything — the crying, the fucking, both at once, her body clenching around Jan rhythmic and involuntary, responding to something her mind couldn't language.
 
 "I love you," JingJing said. Her voice was wrecked. "I love you, I love you, I wrote you vows and they're terrible and perfect and I cried and Noo-Noo watched and—"
 
@@ -2960,13 +2956,13 @@ JingJing's rhythm broke. The slow, careful rolling became something uneven and u
 
 "*Daddy*—"
 
-She came with Jan's name in her mouth. Not the title, the name. *Jan*. Said like a prayer, said like a promise, said like the word she'd written seventeen times in her vows because it was the only word that meant everything. Her whole body seized and then opened, the orgasm pulling through her in waves that Jan could feel, tight and rhythmic and endless around the length still buried inside her.
+She came with Jan's name in her mouth. *Jan.* The word she'd written seventeen times in her vows because it was the only word that meant everything. Her whole body seized and then opened, the orgasm pulling through her in waves that Jan could feel, tight and rhythmic and endless around the length still buried inside her.
 
-Jan followed. Not the usual controlled release but something that matched JingJing's rawness, a sound torn from her throat, her hips pushing up once, deep, and holding while she emptied everything she had into the body of the woman she loved, the woman she was going to marry, the woman who was crying on top of her and coming around her and holding her face in both hands and kissing her with salt on her lips.
+Jan followed — a sound torn from her throat, her hips pushing up once, deep, and holding while she came inside JingJing, who was crying on top of her and coming around her and holding her face in both hands and kissing her with salt on her lips.
 
 They stayed like that. Connected. Breathing.
 
-JingJing's forehead against Jan's. Tears still wet on her cheeks. Jan still inside her, softening, the intimacy of staying past the urgency, the intimacy of not pulling away.
+JingJing's forehead against Jan's. Tears still wet on her cheeks. Jan still inside her, softening.
 
 "That was—" JingJing started.
 
@@ -3094,7 +3090,7 @@ Jan's hand slid between JingJing's legs, over the costume fabric, pressing with 
 
 "I don't care about the walls, I care about your hand—"
 
-Jan's hand worked faster. Through the fabric, the friction of cotton against heat, pressure calibrated by a year of knowing exactly where the threshold lived.
+Jan's hand worked faster. Through the fabric, the friction of cotton against heat, her fingers finding the exact spot that made JingJing's hips buck.
 
 JingJing's head fell back. Her eyes closed. The sounds she was making were the sounds that carried through walls.
 
@@ -3138,8 +3134,6 @@ Inside the dressing room, Jan and JingJing had not moved. Jan was still on top o
 
 "Yeah."
 
-In another couple, this would have been the moment. The cold water. The recalibration. The slap of reality.
-
 JingJing looked at Jan's face. At the flush. At the way Jan's pupils had blown wide. At the thing happening below Jan's waist, which JingJing could feel pressed against her inner thigh, which was not softening.
 
 "You're hard," JingJing said.
@@ -3148,7 +3142,7 @@ JingJing looked at Jan's face. At the flush. At the way Jan's pupils had blown w
 
 "You're *harder*. Since the door. Since Sirin's voice. You're harder than you were before."
 
-Jan said nothing. Her jaw worked. Her hand was still between JingJing's legs, motionless, and the motionlessness was its own confession because Jan's hand should have been gone by now, Jan should have been across the room, Jan should have been straightening her costume and checking the mirror and being the responsible one.
+Jan said nothing. Her jaw worked. Her hand was still between JingJing's legs, motionless, and the motionlessness was its own confession.
 
 "P'Jan." JingJing's voice was quiet. "Are you turned on because she was right there?"
 
@@ -3156,7 +3150,7 @@ Jan said nothing. Her jaw worked. Her hand was still between JingJing's legs, mo
 
 "Answer me."
 
-Jan's breath came hard through her nose. The truth was on her face, in the rigid line of her jaw, in the heat between them, in the cock that was straining against her trousers in a way that had nothing to do with the four-minute break and everything to do with the door handle turning and the journalist's voice and the proximity of exposure.
+Jan's breath came hard through her nose. The truth was on her face — the rigid jaw, the heat between them, the cock straining against her trousers because a journalist had been on the other side of that door sixty seconds ago.
 
 "Yes," Jan said.
 
@@ -3184,7 +3178,7 @@ JingJing gasped. Her palms flat on the wood. Jan's body behind hers, the full le
 
 "*Yes.*"
 
-Jan's hands pulled JingJing's costume skirt up. JingJing hadn't worn underwear. She hadn't worn underwear to set in three weeks, a choice that made Jan's eyes go dark every time she discovered it, which was the entire point.
+Jan's hands pulled JingJing's costume skirt up. JingJing hadn't worn underwear. She hadn't worn underwear to set in three weeks, a choice designed to make Jan's eyes go dark, which it did.
 
 Jan freed herself from her trousers. The head of her cock pressed against JingJing's ass, slid down between her legs. JingJing was drenched. Had been drenched before the door handle turned and was worse now, the combination of interrupted orgasm and the knowledge that a journalist had been three inches of wood away from the end of their careers.
 
@@ -3674,7 +3668,7 @@ Jan's breath caught.
 
 JingJing's hand found it through the trousers. Found the hardness that had been building since the car. She gripped through the fabric, not gentle, not harsh, with the precise pressure of someone who knew exactly how much Jan could take and how much more she wanted.
 
-"This was never in the photograph," JingJing said. "This was never in the negative space. This is the part of you no camera gets. No model gets. No magazine gets."
+"This was never in the photograph," JingJing said. "This was never in the negative space. This is the part of you no lens has ever touched."
 
 "Only you."
 
@@ -3702,7 +3696,7 @@ Jan's hands dropped to the bed. Her jaw locked. Her cock twitched between JingJi
 
 JingJing worked her way down. Biting Jan's collarbone, the inside of her bicep, the spot below her left ear that made Jan's whole body shudder. Each bite placed with strategic precision, each one a mark in a location no photographer would ever see, no stylist would ever touch. The constellation of bruises that said *mine* in a language no magazine could publish.
 
-She pushed her skirt up. Pulled her underwear aside. She was soaked. Had been soaked since the car, since *everywhere his hands were*, since the decision that this was not going to be about patience or permission or any of the careful, controlled things they usually were.
+She pushed her skirt up. Pulled her underwear aside. She was soaked. Had been soaked since the car, since *everywhere his hands were*, since the decision that this was not going to be about patience or permission.
 
 She took Jan's cock in her hand. Positioned the head against her entrance. Jan's hips lifted and JingJing pressed them back down.
 
@@ -3718,7 +3712,7 @@ JingJing sank down. All at once. No warm-up, no slow descent, the entire length 
 
 "*God*—" Jan's voice broke. Her hands fisted in the sheets. Her back arched off the bed. "JingJing—"
 
-JingJing didn't let her adjust. She started moving immediately, riding hard, fast, her hands pinning Jan's shoulders to the mattress, on Golf's spots, her spots now, her hips snapping with a rhythm that had nothing to do with tenderness and everything to do with reclamation. The bed frame hit the wall. She didn't care. She was loud. She was always loud and tonight she was louder, the sounds filling the room, filling the apartment, obliterating any memory of a quiet, professional shoot where hands were positioned and negative space was manufactured.
+JingJing didn't let her adjust. She started moving immediately, riding hard, fast, her hands pinning Jan's shoulders to the mattress, on Golf's spots, her spots now, her hips snapping with a rhythm that had nothing to do with tenderness and everything to do with reclamation. The bed frame hit the wall. She didn't care. She was loud. She was loud and tonight she was louder, the sounds filling the room, filling the apartment, obliterating any memory of a quiet, professional shoot where hands were positioned and negative space was manufactured.
 
 "This is mine," JingJing said, grinding down, taking Jan impossibly deep. "The cameras and the magazines get their version. This is *mine.*"
 
@@ -3734,7 +3728,7 @@ JingJing's rhythm shattered. The controlled aggression gave way to desperation, 
 
 "*Daddy*—"
 
-Jan's hips broke free of JingJing's pin and thrust up, one deep, hard stroke from below, the leftward curve hitting the spot that made JingJing's vision go white. JingJing screamed. Not a word, not a name, a sound that came from somewhere primal, from the place where jealousy and love and ownership melted into one undifferentiated thing, and her body seized around Jan's cock in contractions so strong she could feel them in her spine.
+Jan's hips broke free of JingJing's pin and thrust up, one deep, hard stroke from below, the leftward curve hitting the spot that made JingJing's vision go white. JingJing screamed. The sound ripped through her, guttural and wordless, and her body seized around Jan's cock in contractions so strong she could feel them in her spine.
 
 Jan followed. Couldn't have stopped if she'd tried. JingJing's body was a vise, rhythmic and merciless, and Jan came with her teeth in her own lip, her hips pushing up into JingJing's orgasm, filling her, the release so intense her vision darkened at the edges.
 
@@ -3756,7 +3750,7 @@ Jan's hands came to JingJing's hips. This time JingJing let them stay. She rode 
 
 Jan looked. Her eyes were wrecked. Blown wide, the amber nearly gone. JingJing held her gaze and rolled her hips and watched Jan's face and thought: *this. This is what the camera wanted and couldn't have. This is the thing with the eyes. This is what Jan looks like when she's being owned. No magazine will ever publish this face. This face is mine.*
 
-The second orgasm built slowly. A heat that started where they were connected and spread outward through JingJing's body in waves, each wave higher, each crest sharper. JingJing's sounds dropped from loud to low, the moans becoming something guttural and intimate, the sounds she made when she was past performance and into the animal truth of what she needed.
+The second orgasm built slowly. A heat that started where they were connected and spread outward through JingJing's body in waves, each wave higher, each crest sharper. JingJing's sounds dropped from loud to low, the moans guttural now, intimate, pressed into Jan's neck.
 
 "Daddy — I'm — I'm there—"
 
@@ -3768,7 +3762,7 @@ The second orgasm built slowly. A heat that started where they were connected an
 
 They came together. JingJing's body arching backward, Jan's hips pressing up, the room filled with nothing but the sounds they made and the creak of the bed and the wet, obscene sound of Jan emptying into JingJing for the second time, and JingJing cried out *Jan* — not Daddy, just the name, and it sounded like a brand being pressed into skin.
 
-JingJing fell forward again. This time she stayed. Jan's arms wrapped around her. The post-sex trembling that JingJing's body always did, fine and continuous, like a tuning fork that had been struck too hard.
+JingJing fell forward again. This time she stayed. Jan's arms wrapped around her. JingJing trembled against her, fine and continuous, a tuning fork struck too hard.
 
 Minutes passed. JingJing lifted herself off Jan carefully, wincing at the sensitivity, and rolled to her side. Jan reached for tissues. Cleaned them both. Pulled the blanket up.
 
@@ -4382,7 +4376,7 @@ The car rocked. Gently at first, then with a rhythm that would have been obvious
 
 "Is that a complaint?"
 
-"That is the OPPOSITE of a complaint." JingJing rolled her hips. Found the angle that made the curve press exactly right. Her head fell back and hit the window and she laughed again and Jan laughed and JingJing's hips kept moving and the laughter dissolved into the sounds that came after laughter, the ones that had nothing to do with funny.
+"That is the OPPOSITE of a complaint." JingJing rolled her hips. Found the angle that made the curve press exactly right. Her head fell back and hit the window and she laughed again and Jan laughed and JingJing's hips kept moving and the laughter dissolved into moans.
 
 "Daddy — oh, right there — the angle is — P'Jan, I'm going to come embarrassingly fast."
 
@@ -4400,7 +4394,7 @@ Jan's hips pushed up. JingJing's words evaporated. The sound she made was high a
 
 She came laughing. Actually laughing, the orgasm and the joy crashing into each other and producing a sound that was both and neither, her body shaking with the combination of pleasure and hilarity, her forehead against Jan's and her eyes squeezed shut and the ring on its chain swinging between them.
 
-Jan came too. The laughter was contagious and the clenching was insistent and Jan buried herself deep and let go with a grin on her face and JingJing's giggles in her ear, and the orgasm was bright and clean and uncomplicated in a way their orgasms rarely were — no desperation, no jealousy, no risk calculus. Just happiness, converted to its physical form.
+Jan came too. The laughter was contagious and the clenching was insistent and Jan buried herself deep and let go with a grin on her face and JingJing's giggles in her ear, and the orgasm hit them both at once, sudden and warm, threaded through with the sound of each other laughing.
 
 They sat in the backseat. Catching their breath. JingJing still in Jan's lap, Jan still inside her, the windows steamed.
 
@@ -4412,7 +4406,7 @@ They sat in the backseat. Catching their breath. JingJing still in Jan's lap, Ja
 
 "Like two idiots who tasted cake and lost their minds."
 
-JingJing kissed her. Soft, lingering, the post-orgasm kiss that was gratitude and tenderness and the specific sweetness of having just done something ridiculous with the person you loved most.
+JingJing kissed her. Soft, lingering, still smiling against Jan's mouth.
 
 "Best day," JingJing said.
 
@@ -4628,7 +4622,7 @@ JingJing put Noo-Noo back in the bag. Zipped the pocket. Safe. Waiting.
 
 That night, Jan was soft.
 
-Not the strategic gentleness of a dominant choosing tenderness as a tool. Just soft. Just Jan. The version that existed underneath everything and knew how to be careful with fragile things.
+Jan with her walls down, careful with fragile things.
 
 She undressed JingJing slowly. The costume first, unzipped and laid on the chair. The undershirt. The bra. The chain with the ring she left — JingJing wore it always, the warm metal against her sternum that meant *this is real*.
 
@@ -4638,23 +4632,23 @@ JingJing lay down. On the headboard shelf, Noo-Noo faced the wall. The private k
 
 Jan lay beside her. Not on top. Beside. Face to face, nose to nose.
 
-She kissed JingJing's forehead. The slow one. Three full seconds. The one that said *I see you and I love what I see and I am never going to ask you to be anything other than what you are*.
+She kissed JingJing's forehead. Held it for three full seconds, lips warm against skin, breathing her in.
 
 "JingJing," Jan said. Her name. Just her name. Not baby, not good girl. The one her parents gave her. The one Jan said differently than anyone in the world.
 
 "Jan," JingJing whispered back.
 
-Jan's hand moved slowly down JingJing's side. Ribcage. Waist. Hip. The path she'd traveled a thousand times, traveling now as if for the first.
+Jan's hand moved down JingJing's side. Ribcage, waist, hip — fingertips barely touching, tracing the shape of her.
 
 "You are not off-brand," Jan said. "You are not too soft. You are not too childish. You are not too much."
 
-Her hand found the waistband. Slid under. JingJing's breath caught — not from stimulation but from the tenderness, the devastating gentleness with which Jan's fingers found her and began to move with the slow patience of someone who was not trying to make her come but trying to make her *feel*.
+Her hand found the waistband. Slid under. JingJing's breath caught. Jan's fingers found her and began to move — slow circles, barely any pressure, just enough to make JingJing's hips lift off the bed toward her hand.
 
 "You are the person who holds a rabbit and cries," Jan said, her forehead against JingJing's. "You are the person who held a stranger's hands at a fan meet. You are the person who wrote vows that included a stuffed animal and a ten-inch cock. You are the funniest, loudest, softest, most impossible person I've ever met, and every single thing about you — including the things they want you to hide — is the reason I'm marrying you."
 
-JingJing's eyes were closed. Her mouth was open. The tears were back, but these weren't the set tears. These were the tears that came when someone saw you, all of you, and said *yes, all of it, I want the unedited version, the director's cut*.
+JingJing's eyes were closed. Her mouth was open. Tears on her cheeks, and Jan's thumb catching them without breaking rhythm.
 
-Jan's fingers moved like a tide. In and out. The steady pulse that built not toward a peak but toward a fullness, a saturation, the point where the body overflowed not with a crash but a sigh.
+Jan's fingers kept their rhythm — in, out, unhurried, building something warm and heavy low in JingJing's belly.
 
 "Jan," JingJing whispered. "Jan. Jan. *Jan.*"
 
@@ -4672,9 +4666,7 @@ Not Daddy. Tonight was for *Jan*. For the person underneath the role.
 
 JingJing let go.
 
-It was not the usual orgasm. Not the sharp, screaming kind. It was the kind that came from being held and seen and spoken to with a tenderness so precise it found every crack in every wall and filled them, one by one, until the walls weren't walls anymore but something permeable, something that let the light in.
-
-She came quietly. A shudder. A sigh. Jan's name on her lips like a whispered secret. Her hands in Jan's hair, holding on — not desperate, anchoring. The grip of someone who had found the thing she was looking for.
+She came quietly. A shudder. A sigh. Jan's name on her lips like a whispered secret. Her hands in Jan's hair, holding on, holding steady. The grip of someone who had found the thing she was looking for.
 
 Afterward, Jan held her. Face to face. The ring between them.
 
@@ -6792,7 +6784,7 @@ Jan was closing the door, jacket draped over the back of a chair, sleeves rolled
 
 JingJing crossed the room and kissed her.
 
-Slow. Jan's hands came to JingJing's face, thumbs along her jaw. JingJing's hands went to Jan's waist, to the belt she'd opened a hundred times before and would open tonight for the first time as Jan's wife.
+Jan's hands came to JingJing's face, slow, thumbs along her jaw. JingJing's hands went to Jan's waist, to the belt she'd opened a hundred times before and would open tonight for the first time as Jan's wife.
 
 "Take me to bed," JingJing said against Jan's mouth. "Wife."
 
