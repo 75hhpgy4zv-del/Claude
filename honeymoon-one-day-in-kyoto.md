@@ -12,7 +12,7 @@ JingJing was awake.
 
 This was unusual. She fought mornings like a legal battle — appeals filed from under the blanket, continuances requested. But today she'd surfaced before Jan, and she lay in the futon on the tatami floor listening to her wife breathe and feeling the word *wife* settle into her chest like a stone dropped into still water.
 
-Three days married. Three days in Kyoto. Three days of sleeping on a futon that was somehow more comfortable than their bed at home, in a room that smelled like tatami grass and cedar, with a garden outside and a woman beside her and absolutely no one in the world who needed them to be anywhere.
+Three days in Kyoto. The futon was somehow more comfortable than their bed at home, the room smelled like tatami grass and cedar, and there was absolutely no one in the world who needed them to be anywhere.
 
 JingJing turned onto her side. Jan was on her back, one arm above her head, the sheet at her waist. Her mouth was slightly open. Her hair was wrecked. She looked like someone who had been fucked twice the night before and had the audacity to look elegant while unconscious.
 
@@ -36,7 +36,7 @@ She found what she was looking for. Jan was hard — morning, reliable — the c
 
 "And you can sleep through it. You're talented."
 
-Jan's eyes opened. Amber in the blue-grey light, sleep-soft, unfocused, pulled from a dream by something better than the dream.
+Jan's eyes opened. Amber in the blue-grey light, sleep-soft and unfocused.
 
 "Come here," Jan said.
 
@@ -90,11 +90,11 @@ She kept moving through it. Slower. Jan's hands back on her hips, steadying her,
 
 Jan came. Her hips pushed up, her fingers pressed bruises into JingJing's hipbones, and JingJing felt the warmth of it — the pulse and heat of Jan emptying into her in long, shuddering waves while the garden outside filled with birdsong and the light turned from grey to gold.
 
-JingJing didn't move. Didn't lift off. She lowered herself to Jan's chest, Jan still inside her, and felt the fullness settle.
+She lowered herself to Jan's chest, Jan still inside her, and felt the fullness settle.
 
 "I like this part," JingJing murmured against Jan's collarbone. "After. When you're still in me and I can feel all of it."
 
-Jan's hand came to her hair. Stroking. Slow.
+Jan's hand came to her hair, stroking slow.
 
 "The full feeling," JingJing said. "Like you're taking up all the space. Like there's no room for anything except you."
 

@@ -4838,15 +4838,11 @@ She could do three weeks. She had no choice. So: yes.
 
 ---
 
-That night, Jan stood on the balcony of their apartment.
+That night, Jan stood on the balcony of their apartment, looking at the Ekkamai skyline and thinking about the photo.
 
-Not the Chiang Mai balcony. Their balcony, the one that overlooked the Ekkamai skyline, the one where they drank coffee on Sunday mornings and where Jan sometimes stood alone at night while JingJing showered, looking at the city and thinking about the version of her life that was visible to it and the version that wasn't.
+She was thinking about the balcony in Chiang Mai — the night air, the sound of the street below, JingJing on her lap with her head thrown back and the city's lights on her skin. Someone had stood on that street and looked up and seen two figures in a posture that was unmistakable and taken a photo and posted it for forty-seven thousand people.
 
-She was thinking about the photo.
-
-Not with fear. Not with Lin's bone-deep dread. She was thinking about the balcony in Chiang Mai: the night air, the sound of the street below, JingJing on her lap with her head thrown back and the city's lights on her skin. She was thinking about the fact that someone had seen them. Someone had stood on the street and looked up and seen two figures in a posture that was unmistakable and had taken a photo and posted it for forty-seven thousand people.
-
-And the feeling Jan had about this — the feeling she could not tell Lin, could not explain to Fah, could not admit to anyone except herself on a balcony at 11 PM — was not fear.
+And what Jan felt about this, alone on the balcony at 11 PM while JingJing showered, was not fear.
 
 "You're hard."
 
