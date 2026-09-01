@@ -328,12 +328,50 @@ Things that, once established, must be tracked and not repeated or contradicted:
 - [ ] The Noo-Noo keychain (from Love): given once, referenced when needed, not re-given.
 - [ ] "I never hated you" — the line appears 3 times max: once in the rehearsal (Ch 9), once in the vow scene (Ch 20), once in Sirin's article (Ch 28). Not sprinkled everywhere.
 - [ ] Ring on chain vs. ring on finger: tracked precisely. Chain until wedding, finger after.
-- [ ] Wedding countdown: used sparingly. Not every chapter ending.
+- [ ] Wedding countdown: used sparingly. Not every chapter ending. Revised progression: 7 weeks (Ch 9) → 6 weeks (Ch 11) → 5 weeks (Ch 12) → 4 weeks (Ch 13) → 25 days (Ch 14) → 3 weeks (Ch 15/16) → 16 days (Ch 17) → 2 weeks (Ch 18) → 1 week / 7 days (Ch 19) → 5 days (Ch 20). Gaps widen early (~1 week per chapter), compress late (days apart in crisis).
 - [ ] Ch 7 fan's question ("are you together?"): asked in Ch 7, deflected. Same fan or same question returns in Ch 26 fancon. The callback must be specific — not just thematic echo, an actual mirror.
 - [ ] The rough cut's collar-adjusting moment (Ch 12): Sirin chose not to use it. Referenced in Ch 27's article as the footage she left out. Closed.
 - [ ] Sirin's professional sacrifice (Ch 17): the debt. Honored in Ch 25 when Jan/JingJing give her the exclusive sit-down. Referenced in Ch 27's article.
 - [ ] "Operation: Keep These Idiots Alive" (Ch 10): the group chat name. Revealed to the crowd at the fancon (Ch 26). Lin's reaction to hearing it said aloud.
 - [ ] Fah's folder: appears when needed, not in every chapter. Not a running gag — a character detail.
+
+---
+
+## MASTER TIMELINE
+
+Story spans mid-August through late November 2026 (~3.5 months). EWB ended July 5, 2026. Sirin's embedded access: 90 days. Shooting: 6 weeks mid-September through late October. Wedding: late October. Fancon: November 21.
+
+| Week | Approx. Dates | Chapters | Key Time Markers |
+|------|--------------|----------|-----------------|
+| 1 | Mid-Aug (Tue) | Ch 1 | "The email arrived at 9:47 a.m. on a Tuesday" |
+| 2 | Late Aug (Thu) | Ch 2 | "Sirin arrived on a Thursday." Day One. "Eighty-nine more to go." |
+| 2-3 | Late Aug | Ch 3 | "five days" since Sirin arrived |
+| 3 | Late Aug–Early Sep | Ch 4 | "By the second week" of Sirin's presence |
+| 3-4 | Early Sep (Fri) | Ch 5 | "Friday, the tail end of Sirin's third week" |
+| 4-5 | Early-Mid Sep (Tue) | Ch 6 | "the following Tuesday — a week after the hallway, four weeks into Sirin's residency" |
+| 5 | Mid-Sep (Sat) | Ch 7 | "last Saturday before principal photography began" |
+| 5-6 | Mid-Sep | Ch 8 | "Three weeks in, Sirin stopped watching" (shifted to crew) |
+| 6 | Mid-Sep (Tue) | Ch 9 | Table read "Tuesday at 10 AM." Vows written. **"Seven weeks"** to wedding. |
+| 6-7 | Mid-Late Sep (Wed) | Ch 10 | "Wednesday at 2:17 PM." Close call. Code Red. |
+| 7 | Late Sep (Tue) | Ch 11 | Magazine shoot "on a Tuesday." **"Six weeks."** |
+| 8 | Late Sep (Thu) | Ch 12 | Rough cut email "Thursday at 2 PM." **"Five weeks."** |
+| 8-9 | Late Sep–Early Oct | Ch 13 | Garden venue visit (Thursday). **"Four weeks."** Backseat sex. |
+| 9 | Early Oct (Mon) | Ch 14 | "JingJing brought the rabbit on a Monday." **"Twenty-five days."** |
+| 10 | Early-Mid Oct | Ch 15 | Photo found "Wednesday night." **"Three weeks."** |
+| 10 | Mid Oct (Tue) | Ch 16 | Jan plans trap "on a Tuesday." **"Three weeks"** (echoes Ch 15). |
+| 10-11 | Mid Oct (Thu) | Ch 17 | Sirin meeting "on a Thursday." "Two months on set." **"Sixteen days."** |
+| 11 | Mid Oct (Tue) | Ch 18 | Ring spotted "Tuesday afternoon." **"Two weeks."** |
+| 12 | Late Oct (Mon) | Ch 19 | Network response "Monday." **"A week."** |
+| 12 | Late Oct (Wed) | Ch 20 | Vow scene "on a Wednesday." **"Five days."** |
+| 12-13 | Late Oct | Ch 21 | The Decision. Logistics. |
+| 13 | Late Oct (Sat) | Ch 22 | **THE WEDDING.** |
+| 13 | Late Oct–Early Nov | Ch 23 | Morning after. Back on set. |
+| 13-14 | Early Nov | Ch 24 | The finale live broadcast. |
+| 14 | Early Nov | Ch 25 | Wrap party + Instagram post. |
+| 17 | Nov 21 (Sat) | Ch 26 | **THE FANCON.** Thunder Dome. |
+| 17-18 | Late Nov | Ch 27 | Sirin's article publishes. |
+| 18-19 | Late Nov–Dec | Ch 28 | Honeymoon (Kyoto). |
+| ~70 | ~Nov next year | Ch 29 | Epilogue — one year later. |
 
 ---
 

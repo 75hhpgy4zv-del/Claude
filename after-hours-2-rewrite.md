@@ -693,7 +693,7 @@ Eighty-nine days.
 
 ## Chapter 3: The Interview
 
-Sirin conducted the interviews separately.
+Sirin had been on set five days — long enough to learn the floor plan, not long enough for anyone to relax — when she announced the interviews would be separate.
 
 She explained this to Fah with the unhurried patience of someone who had done it enough times to know the explanation mattered: "I get more honest answers when people aren't performing for each other. It's not about catching anyone. It's about giving them room to be themselves."
 
@@ -989,7 +989,7 @@ Wine's was an A-line gown. Off-the-shoulder, the bodice draped, the skirt layere
 
 Sirin was in the room.
 
-She was always in the room now. Three days in, and her presence had achieved the quality of weather: constant, ambient, something you adjusted to or got rained on by. She sat on a folding chair near the mirrors, notebook open, watching the fitting with the quiet attention of someone who understood that the best material came from moments people forgot they were being observed.
+She was always in the room now. By the second week, her presence had achieved the quality of weather: constant, ambient, something you adjusted to or got rained on by. She sat on a folding chair near the mirrors, notebook open, watching the fitting with the quiet attention of someone who understood that the best material came from moments people forgot they were being observed.
 
 The crew had not forgotten. Lin was by the door in a pose of elaborate casualness, scrolling through her phone, projecting the energy of someone who was definitely not running surveillance. Fah was by the garment racks, clipboard in hand, radiating controlled panic like a space heater radiates warmth: quietly, but if you got too close, you'd know.
 
@@ -1315,7 +1315,7 @@ Jan didn't plan it. That was important. Later, when Fah was debriefing them with
 
 "The word you're looking for is *suicidal*," Fah said.
 
-But Fah wasn't there yet. Fah was in the production office, triple-checking Sirin's afternoon schedule, which showed the journalist in the editing suite reviewing dailies from 2–4 p.m. This meant the hallway between Studio A and the costume department was, in theory, a Sirin-free zone.
+But Fah wasn't there yet. It was a Friday, the tail end of Sirin's third week on set, and Fah was in the production office triple-checking Sirin's afternoon schedule, which showed the journalist in the editing suite reviewing dailies from 2–4 p.m. This meant the hallway between Studio A and the costume department was, in theory, a Sirin-free zone.
 
 In theory.
 
@@ -1723,6 +1723,8 @@ On Jan's phone, face-down on the hallway table: seven unread messages in the gro
 
 ## Chapter 6: The Instagram Problem
 
+The summons from Khun Dao arrived the following Tuesday — a week after the hallway, four weeks into Sirin's residency, and the first time Jan or JingJing had been called to the fourteenth floor for anything other than a contract signing.
+
 Khun Dao's office was on the fourteenth floor of the GMMTV building, which was technically the marketing department but which everyone on the production side called "the terrarium" because it was all glass walls and carefully controlled conditions and the people inside moved with the slow, predatory patience of well-fed reptiles.
 
 Khun Dao was not a reptile. She was a woman in her late forties with a French manicure and a reputation for making careers and unmaking them with equal efficiency. She wore Chanel blazers over plain t-shirts, a sartorial choice that communicated *I am powerful enough to be casual and precise enough to be expensive, simultaneously.* She had been running PR for GMMTV's top-tier productions for twelve years and had never been surprised by a scandal she hadn't planned.
@@ -2041,7 +2043,9 @@ Tomorrow, it would have to be enough again.
 
 ## Chapter 7: The Fan Meet
 
-The pre-fancon meet-and-greet was held at CentralWorld, in a space decorated with the *Enemies with Benefits* palette: deep purple and rose gold. Twelve hundred fans. Ninety minutes. Forty staff members whose job was to ensure the talent had no opportunity to do anything off-brand.
+The fan meet was the last Saturday before principal photography began — the final public obligation of the pre-production calendar, the final performance of availability before the real performance started.
+
+It was held at CentralWorld, in a space decorated with the *Enemies with Benefits* palette: deep purple and rose gold. Twelve hundred fans. Ninety minutes. Forty staff members whose job was to ensure the talent had no opportunity to do anything off-brand.
 
 JingJing was in the greenroom backstage, staring at her reflection. The outfit Khun Dao's team had selected: cream silk blouse, high-waisted black trousers, ankle boots. Makeup: natural but deliberate, an hour to look like five minutes. She looked like JingJing-the-brand: polished and approachable.
 
@@ -4188,7 +4192,7 @@ They walked the garden again. Slowly. Not as visitors but as occupants. JingJing
 
 "I always do it."
 
-JingJing stood at the pergola and looked back. The mango tree, the koi pond, the frangipani, the gate. In thirty-seven days, she would walk those twenty-two steps toward a woman she'd been walking toward since they met.
+JingJing stood at the pergola and looked back. The mango tree, the koi pond, the frangipani, the gate. In four weeks, she would walk those twenty-two steps toward a woman she'd been walking toward since they met.
 
 She cried. Not the quiet kind. The full, ungoverned, mascara-destroying kind. The cry that came from a place deeper than sadness or happiness, from the place where the two emotions merged into something that had no name.
 
@@ -4224,7 +4228,7 @@ Jan took out her phone. JingJing stood under the mango tree — tear-streaked, r
 
 "It's the best photo anyone has ever taken of us and we can never show it to anyone."
 
-"Thirty-seven days."
+"Four weeks."
 
 JingJing saved it. Created a new album. Named it "groceries."
 
@@ -4448,7 +4452,7 @@ JingJing climbed back to the front seat. The logistics were equally absurd in re
 
 The city moved outside. Inside: certainty. The ring on the chain. The taste of coconut-pandan. The sound of each other laughing.
 
-Thirty-seven days.
+Four weeks.
 
 ---
 
@@ -4552,7 +4556,7 @@ JingJing laughed. Wet, broken. But a laugh.
 
 She couldn't finish. Jan pulled her off the chair, onto the floor, into her lap. JingJing went — bones and crying and the rabbit clutched against her chest. Jan held her completely, structurally, as if Jan's arms were walls and JingJing was the only thing the room was built to contain.
 
-"Thirty-five days," Jan said against her hair. "Then Noo-Noo comes to set. The ring goes on your finger. You never have to say 'just a toy' again."
+"Twenty-five days," Jan said against her hair. "Then Noo-Noo comes to set. The ring goes on your finger. You never have to say 'just a toy' again."
 
 "I said it to her face. I denied her. She's been with me since I was *four*—"
 
@@ -4690,7 +4694,7 @@ Afterward, Jan held her. Face to face. The ring between them.
 
 "Then I'll update her at 5:45."
 
-JingJing closed her eyes. Burrowed closer. One ring, two heartbeats, a garden thirty-five days away.
+JingJing closed her eyes. Burrowed closer. One ring, two heartbeats, a garden twenty-five days away.
 
 "Goodnight, Jan."
 
@@ -4702,7 +4706,7 @@ On the shelf, facing the wall, the rabbit held her vigil. Button eyes seeing not
 
 JingJing slept. Jan held her. In the morning, the rabbit would go back in the bag. The ring would stay on the chain. The performance would resume.
 
-Thirty-five days.
+Twenty-five days.
 
 ---
 
@@ -4840,9 +4844,9 @@ Lin's phone buzzed. The group chat. She looked at it.
 
 Lin put the phone down. Sat back in her chair. Looked at the ceiling.
 
-Thirty-four days. Thirty-four days of maintaining a perimeter around two people who kept blowing holes in it. Thirty-four days of pretending that a blurry photo was deniable and a collar adjustment was ambiguous and sixty-one paired Instagram posts were coincidence.
+Three weeks. Three weeks of maintaining a perimeter around two people who kept blowing holes in it. Three weeks of pretending that a blurry photo was deniable and a collar adjustment was ambiguous and sixty-one paired Instagram posts were coincidence.
 
-She could do thirty-four days. She had no choice. So: yes.
+She could do three weeks. She had no choice. So: yes.
 
 ---
 
@@ -4924,7 +4928,7 @@ The wind moved JingJing's hair. The city lights played across her skin. Jan held
 
 "Let them look up. Let them see us. I don't care. I have never cared. The only thing I have ever cared about is the sound you're making right now and I want the whole city to hear it."
 
-JingJing came with a scream. Not a word, not a name. A sound that belonged nowhere but here — eight stories up, reckless. Two people who could not stop, who would never stop, who were going to stand in a garden in thirty-four days and say out loud what they'd been doing in the dark.
+JingJing came with a scream. Not a word, not a name. A sound that belonged nowhere but here — eight stories up, reckless. Two people who could not stop, who would never stop, who were going to stand in a garden in three weeks and say out loud what they'd been doing in the dark.
 
 Jan followed. Deep, shuddering, her face in JingJing's neck, her arms locked around JingJing's body, holding her against the railing, eight stories above a city that didn't know their names.
 
@@ -4940,9 +4944,9 @@ Jan was still inside her. Still holding her. Still pressed against the railing w
 
 "Yeah."
 
-"Thirty-four days."
+"Three weeks."
 
-"Thirty-four days."
+"Three weeks."
 
 JingJing unwrapped her legs. Jan set her down carefully. They gathered JingJing's shorts from the balcony floor. Went inside. Closed the sliding door. The city continued without them.
 
@@ -4996,7 +5000,7 @@ Sirin closed her laptop. Sat with the weight of fifty-one data points and the gr
 
 Jan planned it on a Tuesday.
 
-She was in the production office during a lighting setup, pretending to answer emails, and what she was actually doing was reconnaissance. The conference room on the third floor. Room 312. Nobody used it because the air conditioner had died three weeks ago and Bangkok in September turned an unventilated room into a slow cooker. The room had been repurposed as overflow storage for the costume department: garment racks, fabric boxes, a full-length fitting mirror retired after its stand cracked, now shimmed upright with folded cardboard against the far wall.
+She was in the production office during a lighting setup, pretending to answer emails, and what she was actually doing was reconnaissance. The conference room on the third floor. Room 312. Nobody used it because the air conditioner had died three weeks ago and Bangkok in October turned an unventilated room into a slow cooker. The room had been repurposed as overflow storage for the costume department: garment racks, fabric boxes, a full-length fitting mirror retired after its stand cracked, now shimmed upright with folded cardboard against the far wall.
 
 One door. A lock that worked. She knew because she'd gone up yesterday morning, during blocking, and tested it. Turned the deadbolt. Heard it catch. Stood in the hot, carpet-glue-smelling room and looked at the mirror and saw herself looking back and thought: *here*.
 
@@ -5296,11 +5300,11 @@ The word sat between them. *Losing*. Fah, who never lost. Fah, who always had th
 
 Silence. The hallway. The hum of the building's ventilation, which worked on every floor except the one that mattered.
 
-"Thirty-four days," Fah said. "Thirty-four days until the wedding. Can you — can both of you, *please*, just help me get you there? That's all I'm asking. Not forever. Thirty-four days."
+"Three weeks," Fah said. "Three weeks until the wedding. Can you — can both of you, *please*, just help me get you there? That's all I'm asking. Not forever. Three weeks."
 
 Jan reached out. Took Fah's hand — the one not holding the clipboard. Held it.
 
-"Thirty-four days," Jan said.
+"Three weeks," Jan said.
 
 Fah looked at Jan's hand on hers. Nodded once. Pulled her hand back. Straightened the clipboard. Pushed her shoulders down. The reassembly of Fah — the efficient, capable, holding-everything-together Fah — took about four seconds, and JingJing watched it happen and felt something she hadn't felt before in all the months of sneaking and performing and being managed: guilt.
 
@@ -5396,7 +5400,7 @@ Jan said yes because Jan said yes to most things and because the word *off-the-r
 
 The coffee shop was small and half-empty at 2 PM on a Thursday. Sirin had the corner table. Iced latte. Notebook closed.
 
-The notebook being closed was the first thing Jan actually noticed. Six weeks on set, and Jan had never seen Sirin without the notebook open. It was as much a part of Sirin as the careful eyes and the digital recorder and the specific quality of attention that made people forget she was observing them until they remembered, suddenly, that she was.
+The notebook being closed was the first thing Jan actually noticed. Two months on set, and Jan had never seen Sirin without the notebook open. It was as much a part of Sirin as the careful eyes and the digital recorder and the specific quality of attention that made people forget she was observing them until they remembered, suddenly, that she was.
 
 Jan ordered a black coffee. Sat down.
 
@@ -5500,7 +5504,7 @@ Jan looked at the table. At her coffee, half-finished. At her hands, which were 
 
 "Why not?"
 
-Sirin was quiet for a moment. Her hands loosened on the glass. The anger receded, and in its place was something quieter, something that looked like the exhaustion of a person who had been carrying a moral decision for six weeks and had just set it down.
+Sirin was quiet for a moment. Her hands loosened on the glass. The anger receded, and in its place was something quieter, something that looked like the exhaustion of a person who had been carrying a moral decision for weeks and had just set it down.
 
 "Because it was beautiful," Sirin said. "The way you touched her collar. The way your hand knew exactly where to go. It was three seconds of something sacred, and I don't publish sacred things for clicks."
 
@@ -5556,9 +5560,9 @@ Jan thought about the three seconds of footage. The collar adjustment that Sirin
 
 They sat on the couch. The cooking show played. Noo-Noo sat in Jan's lap, button eyes facing the screen. JingJing's hand rested on Jan's chest, over the ring, and Jan covered JingJing's hand with hers and held it there.
 
-"Thirty-two days," JingJing said.
+"Sixteen days," JingJing said.
 
-"Thirty-two days."
+"Sixteen days."
 
 "Are you scared?"
 
@@ -5586,9 +5590,9 @@ Jan's hand found the chain at JingJing's collarbone. Followed it down to the rin
 
 "After the wedding."
 
-"Thirty-two days."
+"Sixteen days."
 
-"Thirty-two days."
+"Sixteen days."
 
 JingJing's breathing slowed. Jan held the ring on its chain and stared at the ceiling and thought about Sirin in the coffee shop, the anger in her jaw, the cost of the choice she'd made. A woman who knew what it meant to be outed, choosing not to out someone else. A sacrifice that was also, whether Sirin acknowledged it or not, an act of love — not for Jan and JingJing specifically, but for the principle that a person's truth belongs to them, and no byline is worth taking it.
 
@@ -5596,7 +5600,7 @@ The debt sat in Jan's chest like a second ring. Invisible, specific, heavy with 
 
 Outside, the city continued. Sirin was in her apartment, staring at a laptop screen full of data she wouldn't use and a draft she would rewrite and a career she was bending in a direction she hadn't planned because two women had touched each other's collars with too much love and she'd been watching.
 
-Thirty-two days.
+Sixteen days.
 
 ---
 
@@ -5670,13 +5674,13 @@ Khun Dao was quiet again. Longer. Six seconds.
 
 "When will you be ready?"
 
-Jan and JingJing looked at each other. The look contained the garden and the mango tree and the jasmine and the stone path and Noo-Noo and the thirty days that separated them from it.
+Jan and JingJing looked at each other. The look contained the garden and the mango tree and the jasmine and the stone path and Noo-Noo and the two weeks that separated them from it.
 
 "After the wedding," Jan said.
 
 Khun Dao's left eye twitched.
 
-"We're getting married. Thirty days from now. Twelve guests. Private ceremony. No press."
+"We're getting married. Two weeks from now. Twelve guests. Private ceremony. No press."
 
 Khun Dao stood up. Sat down. Stood up again. Walked to the window and looked out at Bangkok — a city where two women had just told her they were getting married on their own terms and her eighteen months of careful image management could either adapt or get out of the way.
 
@@ -5684,7 +5688,7 @@ Khun Dao stood up. Sat down. Stood up again. Walked to the window and looked out
 
 "It's 3 PM," JingJing said.
 
-"It's 3 PM and my two leads are secretly engaged and getting married in a month and I'm finding out about it from a press photo." She turned around. The professional mask cracked, and underneath it was something human and brief and unexpected. "Are you happy?"
+"It's 3 PM and my two leads are secretly engaged and getting married in two weeks and I'm finding out about it from a press photo." She turned around. The professional mask cracked, and underneath it was something human and brief and unexpected. "Are you happy?"
 
 The question surprised all three of them.
 
@@ -5700,7 +5704,7 @@ JingJing looked at Jan. Jan looked at JingJing. The look that said: *under the m
 
 Khun Dao sat back down. Pressed her palms on the desk. Breathed.
 
-"Here's what's going to happen. You're going to get married. You're going to go public on your terms. And I am going to spend the next thirty days building a contingency plan so that when this breaks, the network pivots from *possibility* to *certainty* without losing a single sponsor. Because I am very good at my job, and my job just became the most interesting job in this building."
+"Here's what's going to happen. You're going to get married. You're going to go public on your terms. And I am going to spend the next two weeks building a contingency plan so that when this breaks, the network pivots from *possibility* to *certainty* without losing a single sponsor. Because I am very good at my job, and my job just became the most interesting job in this building."
 
 "Thank you, Khun Dao."
 
@@ -5710,7 +5714,7 @@ JingJing looked at her hand. At the chain under her blouse that had been visible
 
 "Thank you," JingJing said.
 
-"Now get out of my office. I have a month of contingency planning to do and I haven't had lunch."
+"Now get out of my office. I have two weeks of contingency planning to do and I haven't had lunch."
 
 They left. Elevator. Ground floor. The building ground on around them — PAs with schedules, camera crews with equipment, the machine of production indifferent to the fact that two of its components had just told the machine's chief publicist that they were getting married and dared her to make it work.
 
@@ -5724,9 +5728,9 @@ She held her hand up in the car's interior light and looked at the ring on her f
 
 Jan took her hand. Kissed the ring. Kissed the finger. Kissed the knuckle.
 
-"Thirty days."
+"Two weeks."
 
-"Thirty days."
+"Two weeks."
 
 Jan started the car. Pulled out of the garage. Drove.
 
@@ -5794,9 +5798,9 @@ Jan followed ten seconds later, forehead pressed to JingJing's collarbone, both 
 
 They stayed against the wall. Breathing. The hallway light was on. The keys were on the floor where they'd missed the table. JingJing's skirt was around her waist. Jan's pants were barely still on.
 
-"Thirty days," JingJing said.
+"Two weeks," JingJing said.
 
-"Thirty days."
+"Two weeks."
 
 "And then we don't have to fight anyone anymore."
 
@@ -5814,7 +5818,7 @@ JingJing slid down the wall until she was sitting on the hallway floor, legs str
 
 "That's not the same thing."
 
-"No. But it's enough for thirty days."
+"No. But it's enough for two weeks."
 
 JingJing leaned her head on Jan's shoulder. Jan put her arm around her. The ring on JingJing's finger pressed against Jan's bicep.
 
@@ -5880,7 +5884,7 @@ Milk was quiet for a beat. Jan could hear the Ditto set in the background — so
 
 Milk's voice dropped. The register shift Jan recognized — bravado to real talk, the frequency reserved for conversations that mattered.
 
-"Jan. The wedding is in twenty-eight days."
+"Jan. The wedding is in a week."
 
 "I know."
 
@@ -5936,7 +5940,7 @@ Khun Somchai recalibrated. Jan watched it happen behind his eyes — the shift f
 
 "The sponsors. Three of our top-tier sponsors have conservative audience profiles—"
 
-"Then prepare them." Jan's voice was level. The level that JingJing recognized as the one that preceded an immovable position. "You have twenty-eight days. Four weeks of sponsor briefings, contingency planning, alternative revenue sourcing. That's your job. Our job is to love each other. Your job is to figure out how to sell it."
+"Then prepare them." Jan's voice was level. The level that JingJing recognized as the one that preceded an immovable position. "You have seven days. A week to brief sponsors, build contingency plans, source alternative revenue. That's your job. Our job is to love each other. Your job is to figure out how to sell it."
 
 Silence. Under the table, JingJing's hand found Jan's thigh. Squeezed. The squeeze that said: *you're doing it. Keep going.*
 
@@ -5972,7 +5976,7 @@ In the car afterward, JingJing called Love.
 
 Love laughed — the laugh Milk described as the sound that made her entire chest hurt in a good way. JingJing could hear Milk in the background asking what happened.
 
-"Tell Milk that Jan told the network to prepare the sponsors in twenty-eight days or get out of the way."
+"Tell Milk that Jan told the network to prepare the sponsors in seven days or get out of the way."
 
 Love relayed. Milk's voice came through, muffled: "Tell Jan she's my fucking hero."
 
@@ -6004,7 +6008,7 @@ Milk's voice, clearer, having taken the phone: "JingJing. Thank you. We'll be re
 
 They didn't celebrate. They went home and ordered food and sat on the couch and the weight of what had converged in the past week settled over them like something geological.
 
-Sirin's fifty-one data points. The network's strategy session. The wedding in twenty-eight days. The finale shoot in three weeks. The fancon in November. The debt to Sirin. The contingency plan Khun Dao was building. The invisible machinery of an industry that wanted to own the narrative of their love and the counter-machinery of their refusal to let it.
+Sirin's fifty-one data points. The network's strategy session. The wedding in a week. The finale in two. The fancon in November. The debt to Sirin. The contingency plan Khun Dao was building. The invisible machinery of an industry that wanted to own the narrative of their love and the counter-machinery of their refusal to let it.
 
 "We need to decide," JingJing said.
 
@@ -6024,7 +6028,7 @@ Jan's hand paused in JingJing's hair. Resumed.
 
 "And then Sirin."
 
-"And then Sirin. Within twenty-four hours of the post. The exclusive sit-down. We tell her everything. She writes the piece. The piece she's been carrying for six weeks, the one she didn't publish, the one that cost her."
+"And then Sirin. Within twenty-four hours of the post. The exclusive sit-down. We tell her everything. She writes the piece. The piece she's been sitting on, the one she didn't publish, the one that cost her."
 
 "And then the fancon."
 
@@ -6056,15 +6060,15 @@ Jan picked up her phone with her free hand. Texted Milk.
 
 **Milk:** Love just cried again. She says it's allergies.
 
-**Jan:** It's August.
+**Jan:** It's October.
 
-**Milk:** She's allergic to August.
+**Milk:** She's allergic to October.
 
 Jan smiled. JingJing was asleep in her lap. Jan's hand was in JingJing's hair. The ring on JingJing's finger — she'd stopped putting it back on the chain, wore it openly in the apartment now, only threading it back through the chain for set — pressed against Jan's thigh.
 
-She sat there. Phone in one hand, JingJing's hair in the other, the plan crystallized and solid in her chest for the first time. Not the vague *someday we'll tell them*. Not the abstract *after the wedding*. A sequence. A timeline. Wedding, post, exclusive, fancon. Four steps. Twenty-eight days.
+She sat there. Phone in one hand, JingJing's hair in the other, the plan crystallized and solid in her chest for the first time. Not the vague *someday we'll tell them*. Not the abstract *after the wedding*. A sequence. A timeline. Wedding, post, exclusive, fancon. Four steps. Seven days.
 
-The cooking show played. Noo-Noo watched. JingJing breathed slowly against Jan's leg, the rhythm of deep sleep, and Jan held her hand in JingJing's hair and felt the intimacy that wasn't sexual but was more intimate than sex — the trust of unconsciousness, the vulnerability of falling asleep in someone's lap while the world outside arranged itself into a shape that would, in twenty-eight days, finally include them.
+The cooking show played. Noo-Noo watched. JingJing breathed slowly against Jan's leg, the rhythm of deep sleep, and Jan held her hand in JingJing's hair and felt the intimacy that wasn't sexual but was more intimate than sex — the trust of unconsciousness, the vulnerability of falling asleep in someone's lap while the world outside arranged itself into a shape that would, in seven days, finally include them.
 
 Jan's phone buzzed. Milk, one more time.
 
@@ -6076,7 +6080,7 @@ Jan's phone buzzed. Milk, one more time.
 
 Jan put the phone down and kissed the top of JingJing's sleeping head while a chef on the TV agonized over a crème brûlée torch and the city hummed outside the window and the plan — for the first time — felt like something that would actually happen.
 
-Twenty-eight days.
+Seven days.
 
 ---
 
@@ -6092,7 +6096,7 @@ The same layout as Nonthaburi. A pergola. A stone path. A tree — prop, bolted 
 
 The irony had passed through irony and come out the other side into something closer to pain.
 
-JingJing stood at the end of the stone path in the Wine wedding dress — fitted ivory, mandarin collar, long sleeves that covered her hands, which covered the ring, which was on her finger where Khun Dao had told her to put it. The dress was beautiful. It was not the dress she'd wear in twenty-six days — that one was still being fitted, chosen from a bridal shop in Silom that Fah's aunt had opened privately on a Sunday morning. But it was close enough to make her throat tight.
+JingJing stood at the end of the stone path in the Wine wedding dress — fitted ivory, mandarin collar, long sleeves that covered her hands, which covered the ring, which was on her finger where Khun Dao had told her to put it. The dress was beautiful. It was not the dress she'd wear in five days — that one was still being fitted, chosen from a bridal shop in Silom that Fah's aunt had opened privately on a Sunday morning. But it was close enough to make her throat tight.
 
 Across the set, Jan waited at the pergola. The Lal tuxedo: midnight blue, single-breasted, a gardenia on the lapel. Her hair pulled back. Her jaw sharp. She looked the way she always looked in formal wear — like someone who had been specifically designed to stand at the end of an aisle and make the person walking toward her forget how to breathe.
 
@@ -6172,7 +6176,7 @@ Jan kissed her. On a soundstage, in front of cameras and a crew and a journalist
 
 The extras applauded. The crew applauded. Prae was crying. Lin had given up and was sitting on the floor behind the monitor bank with her face in her hands.
 
-Sirin, on the east wall, lowered her camera. She didn't write anything down. She'd spent six weeks building a case out of data points and behavioral patterns and timing analyses, and in thirty seconds of off-script vows, she'd received more confirmation than fifty-one data points could have ever provided. Jan had said real vows on a fake set. The data was numbers. This was proof.
+Sirin, on the east wall, lowered her camera. She didn't write anything down. She'd spent two months building a case out of data points and behavioral patterns and timing analyses, and in thirty seconds of off-script vows, she'd received more confirmation than fifty-one data points could have ever provided. Jan had said real vows on a fake set. The data was numbers. This was proof.
 
 She watched them. She didn't record. Some things were not footage. Some things were witness.
 
@@ -6184,9 +6188,9 @@ The apartment. Night. The bed. Noo-Noo on the shelf.
 
 JingJing was in the post-cry state — emptied out, translucent, the state that came from crying on camera during eight hours of filming and then crying off camera for the entire drive home. Her eyes were swollen. Her voice was raw. She was wearing Jan's shirt and nothing else, curled against Jan's side, wrung out.
 
-"Twenty-six days," she said.
+"Five days," she said.
 
-"Twenty-six days."
+"Five days."
 
 "And then we do it for real."
 
@@ -6212,7 +6216,7 @@ Jan's hand moved through JingJing's hair. The slow scalp massage that turned Jin
 
 "The consummation."
 
-The word landed with the weight of the whole day — every rehearsed vow that had felt real, every stone step she'd walk again in twenty-six days without cameras.
+The word landed with the weight of the whole day — every rehearsed vow that had felt real, every stone step she'd walk again in five days without cameras.
 
 "Come here," Jan said.
 
@@ -6222,7 +6226,7 @@ JingJing climbed on top of her. Straddled her hips. The shirt rode up. Jan's han
 
 "I'm not your wife yet."
 
-"Twenty-six days close enough."
+"Five days close enough."
 
 JingJing leaned down. Kissed Jan's jaw. The spot below her ear. The pulse point where Jan's heartbeat was visible and fast.
 
@@ -6254,7 +6258,7 @@ Jan pushed in. Inch by inch. The long slide that let JingJing feel everything �
 
 Jan moved slow. Long strokes. The rhythm deliberate, emotional, each thrust a sentence. JingJing's hands, freed from the pin, went to Jan's back — nails digging in, pulling her closer.
 
-"I'm going to marry you," JingJing said between thrusts. "In twenty-six days. In a garden. With Noo-Noo. And I'm going to say vows and I'm going to cry and you're going to hold me and then — then this. Every night. For the rest of my life. This."
+"I'm going to marry you," JingJing said between thrusts. "In five days. In a garden. With Noo-Noo. And I'm going to say vows and I'm going to cry and you're going to hold me and then — then this. Every night. For the rest of my life. This."
 
 "Yes."
 
@@ -6286,10 +6290,10 @@ Afterward. Still connected. Still slow. The room was quiet except for breathing 
 
 Jan kissed her forehead. JingJing closed her eyes under it.
 
-"Twenty-six days."
+"Five days."
 
-"Twenty-six days."
+"Five days."
 
-They lay there with their rings catching the lamplight, the garden twenty-six days away, the vows already living in the space between a soundstage and a bed.
+They lay there with their rings catching the lamplight, the garden five days away, the vows already living in the space between a soundstage and a bed.
 
 ---
