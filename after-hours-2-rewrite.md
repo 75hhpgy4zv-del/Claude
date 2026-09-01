@@ -569,7 +569,7 @@ Harder. Jan's rhythm shifted, the slow indulgence tightening into something more
 
 "I know." Jan's breath against her neck. "I can feel you."
 
-She could. JingJing was tightening around her — the involuntary grip, the trembling in her thighs, nails digging crescents into Jan's shoulders. Jan held the exact rhythm. The exact angle. Steady and unwavering, the pace that was taking JingJing apart, and she refused to change it.
+She could. JingJing was tightening around her — the involuntary grip, the trembling in her thighs, nails digging crescents into Jan's shoulders. Jan held steady. Same depth, same angle, unwavering, and she refused to change it.
 
 "Come for me," Jan said. Simple. Certain.
 
