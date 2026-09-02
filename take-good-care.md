@@ -318,21 +318,27 @@ Inside. Shoes at the door. JingJing's bag hit the counter. Jan locked up and tur
 
 Jan walked her backward down the hall. Through the bedroom door, the back of JingJing's knees catching the mattress. She pulled Jan down on top of her and Jan caught herself on one hand, the other already under JingJing's shirt, shoving it up. JingJing arched to help and Jan pulled it over her head.
 
-JingJing pushed her back. Slid off the edge of the bed to her knees on the floor and reached for Jan's belt.
+JingJing pushed her back. Slid off the edge of the bed to her knees on the floor.
 
 "Now let me get on my knees for you, Daddy."
 
-Jan's hand closed around JingJing's jaw. Tilted her face up. JingJing's breath stopped.
+She undid Jan's belt. The button. The zipper. Jan's hand went to JingJing's hair — not pushing, just holding — and JingJing pulled Jan's jeans and boxers down together and Jan's cock came free, heavy, the leftward curve she knew behind her eyelids.
 
-"This is what taking care of you looks like." Low. From above. Jan's thumb pressing into the hinge of JingJing's jaw until her mouth opened. "You need to be held down and you need to be wrecked and you've never been confused about which one you're asking for."
+JingJing pressed her face against it. Lips along the shaft, slow, reverent, breathing her in. She kissed the tip and looked up through her lashes and Jan's hand tightened in her hair.
 
-"Daddy." The word cracked on its way out. JingJing's eyes were wet. "Please."
+"You're so hard, Daddy."
 
-Jan pulled her up by the jaw and put her on the bed. Kissed her deep, claiming, tongue in JingJing's mouth and her hand sliding from jaw to throat. JingJing moaned into it and her hips shoved upward and she felt Jan against her thigh through Jan's jeans, hard, thick, straining against the zipper.
+She took the head in her mouth and Jan's hips jerked. JingJing hummed around her and took more, one hand wrapped around what her mouth couldn't reach, working them together. Sloppy. Devoted. She pulled off to lick a long stripe up the underside and Jan's breath came out ragged.
 
-"Off," JingJing said, yanking at the waistband. "I need you. I need you inside me."
+"JingJing —"
 
-Jan stood and stripped. JingJing watched from the bed as Jan's cock came free, heavy, the leftward curve she knew behind her eyelids. She kicked her own shorts off and when Jan came back to the bed JingJing's legs opened and Jan settled between them and the press of skin on skin made them both gasp.
+She took her deep again, cheeks hollowing, and Jan's thighs trembled. JingJing moaned around her cock and the vibration made Jan's grip in her hair go tight enough to sting. She loved it. She loved the taste and the weight on her tongue and Jan above her barely holding it together.
+
+Jan pulled her off. JingJing gasped, spit on her chin, lips swollen.
+
+"Bed. Now."
+
+Jan pulled her up and put her on the bed. Kissed her deep, claiming, tongue in JingJing's mouth and her hand closing around JingJing's throat. JingJing moaned into it and kicked her own shorts off and Jan settled between her legs and the press of skin on skin made them both gasp.
 
 "Rough," JingJing said. Fingers in Jan's hair, pulling. "I want it rough, Daddy. I want to feel you tomorrow."
 
