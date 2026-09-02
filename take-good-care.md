@@ -28,7 +28,7 @@ Kapook looked up from her napkin cat. "I think you look pretty."
 
 Ciize didn't look up from her phone. "Jan's jawline in that poster could cut a mango."
 
-"Thank you," Jan said.
+"Thank you for noticing!" Jan said, looking pleased.
 
 "I wasn't complimenting you. I was observing that the poster has favorites."
 
