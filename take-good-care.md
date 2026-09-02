@@ -208,7 +208,7 @@ JingJing reached up and held Jan's forearm with both hands. Her parents were sti
 
 P'Ohm let the moment breathe, then pulled them back. More questions. A segment where each pair had to act out a scene from the show with the roles reversed, Ciize playing Jan's character with such deadpan accuracy that Jan covered her face and JingJing laughed until her ribs hurt. Kapook played JingJing's character by turning the volume up until she was essentially yelling every line, and JingJing said "I don't sound like that" and Ciize and Jan said "You sound exactly like that" at the same time.
 
-Through all of it JingJing's hand was in Jan's between the cushions and neither of them mentioned it and the fans in the front row photographed it from every angle.
+Through all of it JingJing's hand was in Jan's between the cushions and the fans in the front row photographed it from every angle.
 
 The final signing round was shorter. JingJing signed on autopilot, her handwriting loosening, her smiles for the fans real but her attention elsewhere. She kept glancing toward the back of the venue. Her parents had moved. Her mother would text.
 
