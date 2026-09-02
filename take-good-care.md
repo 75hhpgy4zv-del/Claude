@@ -282,7 +282,7 @@ The steering wheel was in the way. JingJing's knee hit the horn and it honked on
 
 "If it was a proposal, you'd know. Because I'd ask you."
 
-JingJing pulled back. Jan's face in the blue laundromat light, close, and JingJing looked for the performance. For the camera awareness. Jan was just looking at her.
+JingJing pulled back and searched Jan's face in the blue laundromat light. Looked for the act. Jan was just looking at her.
 
 "Take me home," JingJing said. She wiped her face with the heel of her hand. "Now."
 
