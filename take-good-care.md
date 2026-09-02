@@ -236,7 +236,7 @@ Namtan ate a bite of sticky rice. Looked at Kapook's mascara, at JingJing in a f
 
 "How are they taking it?" she asked.
 
-"My mom texted me hearts," JingJing said. "Fourteen of them. No words. She relayed from my dad that Jan has good posture."
+"My mom sent me a sticker," JingJing said. "Her little avatar doing a thumbs up. It says 'Nice One!' She relayed from my dad that Jan has good posture."
 
 Jan's mouth twitched. "Good posture."
 
