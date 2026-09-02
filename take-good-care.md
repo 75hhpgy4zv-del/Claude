@@ -232,7 +232,7 @@ Namtan found them during the break. She'd been at the fair for a 23.5 panel two 
 
 "Jan proposed," Ciize said.
 
-"Jan did not propose," Jan said.
+"Jan already proposed. Tonight was a wai."
 
 "She got on her knees in front of JingJing's parents and made promises." Ciize looked at Namtan. "I'm being precise."
 
