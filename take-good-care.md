@@ -168,7 +168,7 @@ The audience noise shifted. Warmer. P'Ohm lit up.
 
 The camera found them. On the big screen beside the stage they were projected huge. Her father raised a hand. Her mother waved with the phone still recording. JingJing's throat closed.
 
-Jan turned on the couch. Looked at the screen. Looked at JingJing. Something moved behind her eyes, fast, a calculation JingJing couldn't read.
+Jan turned on the couch. Looked at the screen. Looked at JingJing. The almost fell off her face.
 
 "Jan," P'Ohm said, grinning. "How do you feel about that? JingJing's parents came out tonight."
 
@@ -202,7 +202,7 @@ JingJing stepped into her. Back to Jan's chest. Jan closed around her from behin
 
 The venue went nuclear.
 
-JingJing stood inside Jan's arms and looked out at four hundred people who were watching a show and two people who were watching their daughter be loved. She reached up and held Jan's forearm with both hands.
+JingJing stood inside Jan's arms and looked out at the crowd and at her parents at the back of the room. She reached up and held Jan's forearm with both hands.
 
 Held on.
 
