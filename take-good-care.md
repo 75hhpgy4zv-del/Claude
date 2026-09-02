@@ -188,21 +188,15 @@ Namtan ate a bite of sticky rice. "On her knees?"
 
 "It was a wai," Jan said. "I was being respectful."
 
-"She promised to take care of me." JingJing was in a folding chair with her bag in her lap, a bottle of water she hadn't opened. Her voice was quiet. "In front of my parents. On her knees. And my parents have never met her before. That was their first time seeing her."
+"She promised to take care of me." JingJing was in a folding chair with her bag in her lap, a bottle of water she hadn't opened. Her voice was quiet. "In front of my parents. On her knees."
 
 The corridor went still. Namtan lowered the sticky rice.
-
-"First time?" Namtan said.
-
-"First time."
 
 "And she *knelt*?"
 
 JingJing nodded. She was looking at the water bottle.
 
-Kapook looked up from her feet. "Your parents didn't know Jan at all?"
-
-"My mom knew about her. I told her three weeks ago. My dad got the information secondhand and processed it by not talking for two days and then sending me a text. They came tonight to see her for the first time and the first thing Jan did was get on the floor."
+"My mom knew about her. I told her three weeks ago. My dad got the information secondhand and processed it by not talking for two days and then sending me a text. They came tonight and the first thing Jan did was get on the floor."
 
 "Chinese dad energy," Ciize said softly. "That nod he gave. That was the whole verdict."
 
@@ -240,7 +234,7 @@ Jan glanced over. Back to the road.
 
 "I know what it was."
 
-"My father, who you have never met. Who has never seen your face except in photos my mother showed him. You got on the floor for him and he *nodded*, Jan. He has never nodded at anyone I've brought into my life. He didn't nod at my sister's boyfriend until year four."
+"My father. You got on the floor for him and he *nodded*, Jan. He didn't nod at my sister's boyfriend until year four."
 
 Her voice broke. She pressed her hand over her mouth and turned toward the window.
 
