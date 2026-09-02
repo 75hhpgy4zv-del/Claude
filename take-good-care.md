@@ -316,21 +316,19 @@ Inside. Shoes at the door. JingJing's bag hit the counter. Jan locked up and tur
 
 "I'm making urgent requests."
 
-Jan walked her backward down the hall. Through the bedroom door, the back of JingJing's knees catching the mattress. She pulled Jan down on top of her and Jan caught herself on one hand, the other already under JingJing's shirt, shoving it up. JingJing arched to help and Jan pulled it over her head and JingJing's hands went to Jan's belt.
+Jan walked her backward down the hall. Through the bedroom door, the back of JingJing's knees catching the mattress. She pulled Jan down on top of her and Jan caught herself on one hand, the other already under JingJing's shirt, shoving it up. JingJing arched to help and Jan pulled it over her head.
 
-"You were on your knees for my parents," JingJing said, working the buckle, "and now I want you to wreck me. Is that messed up?"
+JingJing pushed her back. Slid off the edge of the bed to her knees on the floor and reached for Jan's belt.
 
-"No."
+"Now let me get on my knees for you, Daddy."
 
-"It's a little messed up."
+Jan's hand closed around JingJing's jaw. Tilted her face up. JingJing's breath stopped.
 
-Jan's hand closed around JingJing's jaw. Firm. JingJing's breath stopped.
-
-"This is what taking care of you looks like." Low. Close. Jan's thumb pressing into the hinge of JingJing's jaw until her mouth opened. "You need to be held down and you need to be wrecked and you've never been confused about which one you're asking for."
+"This is what taking care of you looks like." Low. From above. Jan's thumb pressing into the hinge of JingJing's jaw until her mouth opened. "You need to be held down and you need to be wrecked and you've never been confused about which one you're asking for."
 
 "Daddy." The word cracked on its way out. JingJing's eyes were wet. "Please."
 
-Jan kissed her. Deep, claiming, tongue in JingJing's mouth and her hand sliding from jaw to throat. JingJing moaned into it and her hips shoved upward and she felt Jan against her thigh through Jan's jeans, hard, thick, straining against the zipper.
+Jan pulled her up by the jaw and put her on the bed. Kissed her deep, claiming, tongue in JingJing's mouth and her hand sliding from jaw to throat. JingJing moaned into it and her hips shoved upward and she felt Jan against her thigh through Jan's jeans, hard, thick, straining against the zipper.
 
 "Off," JingJing said, yanking at the waistband. "I need you. I need you inside me."
 
