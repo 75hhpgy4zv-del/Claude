@@ -286,11 +286,11 @@ They didn't talk for ten minutes. Jan drove with her eyes on the road and her ha
 
 Jan glanced over. Back to the road.
 
-"In front of four hundred people and a live stream." JingJing's voice was steadier than she expected. "You wai'd my parents. That wasn't a stage wai. That was a daughter-in-law wai. You knelt to my father."
+"My father didn't nod at my sister's boyfriend until year four." JingJing's voice was steadier than she expected. "He didn't nod at *me* until I booked the show."
 
-"I know what it was."
+Jan was quiet.
 
-"My father. You got on the floor for him and he *nodded*, Jan. He didn't nod at my sister's boyfriend until year four."
+"Twenty-three years, Jan. Twenty-three years and a lead role. That's what it costs."
 
 Her voice broke. She pressed her hand over her mouth and turned toward the window.
 
@@ -298,7 +298,7 @@ Jan's hand came to the back of JingJing's neck. Warm. Firm. She held it there wh
 
 "I meant every word," Jan said.
 
-"I know you did." JingJing's breath hitched. "I stood on that stage while my mother sent me hearts and my father looked at me like I'd finally done something he understood. And I couldn't — I just had to stand there."
+"I know you did." JingJing's breath hitched. "You've never even heard his voice. You don't know what that nod means in my family and you just — you walked out there and he gave it to you."
 
 "You're telling me now."
 
@@ -306,7 +306,7 @@ Jan's hand came to the back of JingJing's neck. Warm. Firm. She held it there wh
 
 "Okay."
 
-"It's because you knelt. You didn't know he was there. Nobody told you to. And the first thing out of your mouth was a promise." Her breath caught. "You've never even heard his voice and you promised him his daughter."
+"He understood, Jan. Without me saying anything. Without me telling him what you are. He watched you kneel and he *knew*."
 
 She was crying. She'd been holding it since Jan's knees hit the stage floor and now it came all at once, hot and ugly, her forehead pressed to the window and her chest heaving. Jan's hand stayed on her neck.
 
@@ -318,19 +318,15 @@ The steering wheel was in the way. JingJing's knee hit the horn and it honked on
 
 "I can't believe you proposed to my father."
 
-"I didn't propose."
+"I proposed to *you*. Your father got a wai."
 
-"You got on your knees. In Thai culture that's at minimum an engagement."
+"A wai with a promise is not a wai. That's a whole other thing."
 
-"It's a wai."
+"Then it was a whole other thing."
 
-"You promised to take care of me. On the floor. In front of his face on a screen the size of a car."
+"You're not even arguing."
 
-"Yes."
-
-"That's a proposal."
-
-"If it was a proposal, you'd know. Because I'd ask you."
+"I'm not arguing."
 
 JingJing pulled back and searched Jan's face in the blue laundromat light. Looked for the act. Jan was just looking at her.
 
