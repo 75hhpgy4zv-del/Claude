@@ -20,9 +20,57 @@ Two chairs down, JingJing's hand was cramping. She shook it out and Jan reached 
 
 The Y Book Fair filled QSNCC's basement level in a maze of publisher booths and panel stages. GL and BL novels stacked in bright towers on every table. The GMMTV booth anchored one wall, purple-lit, with the Enemies with Benefits banner hung overhead: Jan and JingJing's faces four times life-size, mid-argument, the poster from episode six.
 
-JingJing still hated that poster. Her chin looked wrong at that angle. Jan said her chin was fine. JingJing said Jan was contractually biased. Jan said there was no contract.
+JingJing looked up at the poster and her face soured.
 
-At six-fifteen, staff cleared the table. The four of them moved to the stage at the front of the booth where two couches flanked a coffee table and P'Ohm was already mic'd, warming up the crowd. JingJing dropped onto the couch beside Jan. Ciize and Kapook took the other. The audience packed in tight, phones raised, lightsticks blinking.
+"My chin."
+
+Jan followed her gaze. "Your chin is fine."
+
+"It's doing something. Look at the angle. I look like I'm about to sneeze."
+
+"You look angry. That's the point. It's the argument scene."
+
+"I look like I'm mid-sneeze during an argument." JingJing tilted her head, trying to find an angle where the poster improved. It didn't. "They used the wrong take."
+
+Kapook leaned back in her chair to look. "I think you look pretty."
+
+"You think everyone looks pretty."
+
+"Everyone does look pretty." Kapook said this with such sincerity that JingJing couldn't argue.
+
+Ciize didn't look up from her phone. "Jan's jawline in that poster could cut a mango."
+
+"Thank you," Jan said.
+
+"I wasn't complimenting you. I was observing that the poster has favorites."
+
+JingJing groaned and dropped her head back. Jan's hand came to the back of her neck, thumb drawing a circle below her hairline. JingJing leaned into it, eyes still on the offending chin four meters above them.
+
+"They should have used the one from episode nine," JingJing said. "The rain scene."
+
+"The rain scene where you were crying?" Ciize said.
+
+"I looked good crying."
+
+"You did," Jan said. Quiet. Her thumb still moving on JingJing's neck. JingJing turned and Jan was looking at her instead of the poster, soft at the mouth, unguarded in a way that would have ended careers if a camera had been closer.
+
+"Stop looking at me like that. We're in public."
+
+"I'm looking at your chin. I'm checking if it's as bad as you say."
+
+"And?"
+
+Jan leaned over and kissed the underside of JingJing's jaw. Quick, there and gone, her lips warm on the exact spot JingJing hated in the poster. Two fans at the end of the signing queue made sounds that weren't words.
+
+"Verdict's in," Jan said. "Chin's fine."
+
+"You're biased."
+
+"Obviously."
+
+Kapook put her hand over her heart. Ciize still hadn't looked up from her phone but she was smiling, small and private, at whatever she was pretending to read.
+
+At six-fifteen, staff cleared the table. The four of them moved to the stage at the front of the booth where two couches flanked a coffee table and P'Ohm was already mic'd, warming up the crowd. JingJing sat down and Jan sat beside her, close, their thighs touching from hip to knee. Jan's arm went along the back of the couch behind JingJing's shoulders, close enough to touch but technically not touching, the same gesture she'd been fooling nobody with since March. Ciize and Kapook took the other couch. The audience packed in tight, phones raised, lightsticks blinking.
 
 "Welcome," P'Ohm said, and the screaming hit a frequency JingJing felt in her teeth. "Enemies with Benefits finale week. How are we feeling?"
 
