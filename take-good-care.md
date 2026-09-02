@@ -314,7 +314,7 @@ Inside. Shoes at the door. JingJing's bag hit the counter. Jan locked up and tur
 
 "You're giving orders."
 
-"I'm making urgent requests."
+"Please?"
 
 Jan walked her backward down the hall. Through the bedroom door, the back of JingJing's knees catching the mattress. She pulled Jan down on top of her and Jan caught herself on one hand, the other already under JingJing's shirt, shoving it up. JingJing arched to help and Jan pulled it over her head.
 
