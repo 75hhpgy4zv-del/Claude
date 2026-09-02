@@ -334,7 +334,7 @@ Jan pulled her up by the jaw and put her on the bed. Kissed her deep, claiming, 
 
 Jan stood and stripped. JingJing watched from the bed as Jan's cock came free, heavy, the leftward curve she knew behind her eyelids. She kicked her own shorts off and when Jan came back to the bed JingJing's legs opened and Jan settled between them and the press of skin on skin made them both gasp.
 
-"Rough," JingJing said. Fingers in Jan's hair, pulling. "I want it rough, Daddy. I want to feel you tomorrow. I want to sit at whatever event is next and feel where you've been and know that the person who knelt for my father is the reason I can't sit straight."
+"Rough," JingJing said. Fingers in Jan's hair, pulling. "I want it rough, Daddy. I want to feel you tomorrow."
 
 Jan's hand closed on JingJing's hip. Hard enough to leave marks.
 
