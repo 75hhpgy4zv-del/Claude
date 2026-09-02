@@ -168,7 +168,7 @@ The audience noise shifted. Warmer. P'Ohm lit up.
 
 The camera found them. On the big screen beside the stage they were projected huge. Her father raised a hand. Her mother waved with the phone still recording. JingJing's throat closed.
 
-Jan turned on the couch. Looked at the screen. Looked at JingJing. The almost fell off her face.
+Jan turned on the couch and looked at the screen, then at JingJing. The almost fell off her face.
 
 "Jan," P'Ohm said, grinning. "How do you feel about that? JingJing's parents came out tonight."
 
