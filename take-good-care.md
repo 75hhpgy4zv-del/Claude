@@ -366,19 +366,15 @@ Jan held the angle. Stroke after stroke into the same spot, relentless, her grip
 
 JingJing came with Jan's name in her mouth and her body clenched tight around Jan's cock and tears on her face. Her back arched off the bed and her hand fought Jan's grip on her wrist and Jan held her down, kept moving, kept fucking her through it until JingJing was shaking and oversensitive and gasping on every stroke.
 
-"One more," Jan said.
+JingJing pulled Jan down. Both arms around her neck, face pressed into Jan's throat.
 
-"I can't —"
+"Stay," she said. "Stay inside me."
 
-"One more. I promised."
-
-Jan's hand slid between them. Found JingJing's clit. Pressed.
-
-The second orgasm hit harder. Full-body, a clench that pulled a sound from deep in JingJing's chest, and she felt Jan go rigid inside her. Felt Jan's hips stutter and then push deep and hold. The first pulse of warmth as Jan came inside her and JingJing moaned at the fullness, grinding down to take her as deep as possible while Jan emptied into her in long shuddering waves.
+Jan's rhythm broke. Her hips stuttered and she pushed deep and held. The first pulse of warmth as Jan came inside her and JingJing moaned at the fullness, grinding down to take her deep while Jan shuddered against her in long waves.
 
 Jan's elbows hit the mattress. Forehead pressed to JingJing's. Both of them shaking. Still inside her. Still pulsing.
 
-JingJing wrapped both arms around Jan's neck. Held tight.
+JingJing held on.
 
 "Stay."
 
