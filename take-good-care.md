@@ -40,9 +40,9 @@ JingJing groaned. Jan's arms tightened around her waist, a squeeze, and JingJing
 
 "I looked good crying."
 
-"You did," Jan said into JingJing's hair. JingJing turned her head and Jan was right there, mouth close, soft in a way that still made JingJing's chest ache after all these months.
+"You did," Jan said into JingJing's hair. JingJing turned her head and Jan was right there and Jan kissed her — slow, soft, and JingJing's chest ached after all these months.
 
-"Stop looking at me like that."
+"Stop kissing me like that."
 
 "I'm looking at your chin. Checking if it's as bad as you say."
 
