@@ -202,9 +202,7 @@ JingJing stepped into her. Back to Jan's chest. Jan closed around her from behin
 
 The venue went nuclear.
 
-JingJing stood inside Jan's arms and looked out at the crowd and at her parents at the back of the room. She reached up and held Jan's forearm with both hands.
-
-Held on.
+JingJing reached up and held Jan's forearm with both hands. Her parents were still standing at the back of the room.
 
 ---
 
