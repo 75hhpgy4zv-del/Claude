@@ -156,7 +156,7 @@ They had never come to one of these.
 
 JingJing had told her mother about Jan three weeks ago. The outline. Enough for her mother to ask the two questions that mattered. *Is she kind?* Yes. *Are you happy?* And JingJing had sat in her mother's kitchen and cried because she didn't know how to tell her that she'd never been this happy and the size of it terrified her, and her mother had held her hand across the table and waited until the crying stopped and said *okay*.
 
-Her father had been in the other room. He processed large things by going quiet. Two days later he'd sent a text that said more in twelve words than most people managed in a conversation: *We want to meet her. Tell us when.*
+Her father had been in the other room. Two days later he'd sent a text: *We want to meet her. Tell us when.*
 
 She hadn't told Jan they were coming. She hadn't told Jan her parents knew.
 
@@ -188,7 +188,7 @@ The audience screamed. JingJing's mother covered her face with her free hand and
 
 "I promise," Jan said. Eyes on the screen. Voice clear through the venue. "To take good care of your daughter."
 
-JingJing fell sideways on the couch. Hand over her mouth, eyes huge. She made a sound behind her palm that was half laugh half sob and her face went red from her collarbones to her hairline. P'Ohm doubled over laughing. Ciize pressed both hands to her cheeks and Kapook was already crying, because Kapook cried at sincerity the way other people sneezed at pollen.
+JingJing fell sideways on the couch. Hand over her mouth, eyes huge. She made a sound behind her palm that was half laugh half sob and her face went red from her collarbones to her hairline. P'Ohm doubled over laughing. Ciize pressed both hands to her cheeks. Kapook was already crying.
 
 JingJing stood up. She was burning. Every person in the room was looking at her and Jan was still on her knees and her parents were watching from the back and she turned and walked upstage, away from the couch, covering her face with both hands.
 
@@ -272,7 +272,7 @@ Jan's mouth twitched. "Good posture."
 
 "We don't talk about the ex with the sandals."
 
-Ciize appeared at JingJing's shoulder. Squeezed once, hard. Walked away. Smarter than she performed about knowing when to leave a room alone.
+Ciize appeared at JingJing's shoulder. Squeezed once, hard. Walked away.
 
 ---
 
@@ -280,7 +280,7 @@ Ciize appeared at JingJing's shoulder. Squeezed once, hard. Walked away. Smarter
 
 Jan drove. JingJing sat in the passenger seat with her shoes off and her phone face-down on her thigh. Bangkok moved past the windows in neon and brake lights.
 
-They didn't talk for ten minutes. Jan let silence be. She drove with her eyes on the road and her hands steady, and if JingJing needed to speak Jan would listen and if she needed quiet Jan would give it. JingJing loved this about her and sometimes wanted to throw something at Jan's calm profile to watch it crack.
+They didn't talk for ten minutes. Jan drove with her eyes on the road and her hands steady.
 
 "You got on your knees," JingJing said.
 
@@ -298,7 +298,7 @@ Jan's hand came to the back of JingJing's neck. Warm. Firm. She held it there wh
 
 "I meant every word," Jan said.
 
-"I know you did." JingJing's breath hitched. "I stood on that stage and had to act like it was fanservice while my mother sent me hearts and my father looked at me like I'd finally done something he understood. And I couldn't say anything. I couldn't tell anyone in that room what it meant."
+"I know you did." JingJing's breath hitched. "I stood on that stage while my mother sent me hearts and my father looked at me like I'd finally done something he understood. And I couldn't — I just had to stand there."
 
 "You're telling me now."
 
@@ -306,7 +306,7 @@ Jan's hand came to the back of JingJing's neck. Warm. Firm. She held it there wh
 
 "Okay."
 
-"It's because you knelt. Nobody has ever — my dad is hard, Jan. He's quiet and he's hard and he shows love by criticizing your grades and showing up at events without telling you and leaving before you can thank him. And you knelt for him without knowing he was there, without anyone telling you to, and the first thing out of your mouth was a promise. You promised *him*. You've never even heard his voice and you promised him his daughter."
+"It's because you knelt. You didn't know he was there. Nobody told you to. And the first thing out of your mouth was a promise." Her breath caught. "You've never even heard his voice and you promised him his daughter."
 
 She was crying. She'd been holding it since Jan's knees hit the stage floor and now it came all at once, hot and ugly, her forehead pressed to the window and her chest heaving. Jan's hand stayed on her neck.
 
@@ -392,13 +392,13 @@ Jan shifted the angle. Hooked JingJing's leg over her shoulder and drove deeper 
 
 "There — right there, don't stop —"
 
-Jan held the angle. Stroke after stroke into the same spot, relentless, her grip tightening on JingJing's wrist, her other hand on JingJing's thigh leaving fingerprints that would be there in the morning. JingJing was loud, louder tonight, the held-in silence of the afternoon burning off through her throat as Jan's name and *Daddy* and sounds that stopped being words.
+Jan held the angle. Stroke after stroke into the same spot, relentless, her grip tightening on JingJing's wrist, her other hand on JingJing's thigh leaving fingerprints that would be there in the morning. JingJing was loud, louder than she'd ever been, Jan's name and *Daddy* and sounds that stopped being words.
 
 "I'm close," JingJing gasped. "Daddy, I'm so close —"
 
 "Come. I've got you."
 
-JingJing came with Jan's name in her mouth and her body clenched tight around Jan's cock and tears on her face. The same tears from the car but wrung through the whole body now, squeezed out by the orgasm that rolled through her in waves. Her back arched off the bed and her hand fought Jan's grip on her wrist and Jan held her down, kept moving, kept fucking her through it until JingJing was shaking and oversensitive and gasping on every stroke.
+JingJing came with Jan's name in her mouth and her body clenched tight around Jan's cock and tears on her face. Her back arched off the bed and her hand fought Jan's grip on her wrist and Jan held her down, kept moving, kept fucking her through it until JingJing was shaking and oversensitive and gasping on every stroke.
 
 "One more," Jan said.
 
