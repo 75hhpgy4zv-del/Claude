@@ -58,11 +58,11 @@ Nobody moved.
 
 Kapook uncrossed her legs and hopped off the road case. She stretched, yawned, and was ready. JingJing felt Jan's arms loosen around her waist. She held on for a second — Jan's hands still under hers, Jan's breath still warm behind her ear — and then she let go. Stepped forward. The air where Jan had been was cool.
 
-Jan straightened her cap. Rolled her shoulders. JingJing watched her face shift: the softness at her mouth went somewhere behind her eyes, still there, tucked away. Jan caught her looking and the corner of her mouth pulled up, quick, a private thing. Then her expression settled. Stage-ready.
+Jan straightened her cap. Rolled her shoulders. The softness didn't leave her face — it just dialed back, the difference between a room and a stage. Jan caught JingJing looking and her mouth pulled up at the corner. She didn't stop it. She just let it be the amount it could be.
 
-JingJing touched her own face. Checked her hair in the propped mirror. Found a smile and set it. She was faster at this part, could click into the version of herself that talked to four hundred people in half a breath. Jan was better at making the click invisible.
+JingJing checked her hair in the propped mirror. Rolled her lips together. She could do this. Four hours of almost.
 
-They walked out together. The four of them through the curtain, into the noise and the purple light. The crowd surged when they saw them, phones up everywhere. JingJing's hand brushed Jan's between their bodies, knuckles against knuckles, and she pulled it away before anyone could photograph it. Jan's pinky caught hers for a half-second. Held. Released.
+They walked out together. The four of them through the curtain, into the noise and the purple light. The crowd surged when they saw them, phones up everywhere. JingJing's hand found Jan's between their bodies, knuckles against knuckles. She let it stay a beat longer than professional. Jan's pinky hooked hers and JingJing didn't pull away until the angle was good for the front row.
 
 They sat at the signing table. JingJing uncapped her pen and the first book slid across the table and she was on. The line of fans curved past the manga section and kept going.
 
@@ -78,7 +78,7 @@ Kapook drew cats. Small ones, in the margins of the novels fans brought. Every p
 
 Two chairs down, JingJing's hand was cramping. She shook it out and Jan reached over without looking up, pressed her thumb into the web of JingJing's palm, dug deep into the muscle for two seconds, and pulled back to her own line. The fan in front of JingJing glanced between them, opened her mouth, closed it, and walked away holding her signed book like evidence.
 
-At six-fifteen, staff cleared the table. The four of them moved to the stage at the front of the booth where two couches flanked a coffee table and P'Ohm was already mic'd, warming up the crowd. JingJing sat down and Jan sat beside her, their thighs touching from hip to knee. Jan's arm went along the back of the couch behind JingJing's shoulders, close enough to touch but not quite touching. Ciize and Kapook took the other couch. The audience packed in tight, phones raised, lightsticks blinking.
+At six-fifteen, staff cleared the table. The four of them moved to the stage at the front of the booth where two couches flanked a coffee table and P'Ohm was already mic'd, warming up the crowd. JingJing sat down and Jan sat beside her, their thighs touching from hip to knee. Jan's arm went along the back of the couch behind JingJing's shoulders, fingertips resting on JingJing's arm where the audience could see them. Ciize and Kapook took the other couch. The audience packed in tight, phones raised, lightsticks blinking.
 
 "Welcome," P'Ohm said, and the screaming hit a frequency JingJing felt in her teeth. "Enemies with Benefits finale week. How are we feeling?"
 
@@ -92,7 +92,7 @@ At six-fifteen, staff cleared the table. The four of them moved to the stage at 
 
 "The family in the commercial got a good rate. I was moved." Ciize's face was perfectly straight. The audience was already laughing. Ciize could land a joke without moving her face.
 
-JingJing laughed too loud. She leaned into Jan's shoulder and Jan's hand came to her knee under the coffee table, brief, steadying, and she straightened.
+JingJing laughed too loud. She leaned into Jan's shoulder and stayed there a beat, letting the fans see it, before she straightened. Jan's hand came to her knee and squeezed once.
 
 P'Ohm turned to them. "Jan, JingJing. Post-finale feelings?"
 
@@ -134,15 +134,15 @@ P'Ohm opened the floor for audience questions. Fans asked about bloopers and fav
 
 "The one you played me on my birthday."
 
-The venue detonated. JingJing heard what she'd said a half-second after she'd said it and felt the blood rush to her face.
+The venue detonated. JingJing heard what she'd said a half-second after she'd said it. She looked at Jan. Jan was looking back, mouth pressed flat against a smile, and JingJing felt the heat climb her neck but she didn't take it back.
 
-"As a friend. A birthday friend song. Between colleagues."
+"It was a good song," JingJing said. Held Jan's gaze. Let the audience scream.
 
-"Birthday friend song," P'Ohm repeated slowly.
+"It was," Jan said. Quiet under the noise.
 
-"Between colleagues," Ciize added from the other couch.
+P'Ohm was grinning so wide his mic hand was shaking. "What song? Can we know the song?"
 
-"Moving on," JingJing said.
+"No," they said at the same time, and the venue went louder.
 
 ---
 
