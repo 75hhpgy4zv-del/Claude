@@ -110,7 +110,7 @@ Jan looked at JingJing. Looked back at P'Ohm. Shrugged one shoulder.
 
 "Can you blame me?"
 
-The venue came apart. JingJing felt the scream in her sternum. On the other couch Ciize pressed her lips together and stared at the ceiling because Ciize knew, and Kapook grabbed Ciize's arm because Kapook knew, and the four hundred people between them and the doors had no idea how much they were missing.
+The venue came apart. JingJing felt the scream in her sternum. On the other couch Ciize pressed her lips together and stared at the ceiling. Kapook grabbed Ciize's arm.
 
 ---
 
