@@ -228,41 +228,15 @@ Backstage was a narrow corridor behind the booth. Folding chairs and a mirror. S
 
 Namtan found them during the break. She'd been at the fair for a 23.5 panel two booths down and she walked in carrying mango sticky rice from a vendor outside.
 
-"I heard screaming," she said. "More than the usual amount of screaming. What happened?"
+"I heard screaming," she said. "More than the usual amount of screaming."
 
-"Jan proposed," Ciize said.
+"JingJing's parents were on the stream," Ciize said. "Jan made an impression."
 
-"Jan already proposed. Tonight was a wai."
+Namtan ate a bite of sticky rice. Looked at Kapook's mascara, at JingJing in a folding chair with a water bottle she hadn't opened.
 
-"She got on her knees in front of JingJing's parents and made promises." Ciize looked at Namtan. "I'm being precise."
+"How are they taking it?" she asked.
 
-"That's framing."
-
-"The framing is accurate."
-
-Namtan ate a bite of sticky rice. "On her knees?"
-
-"It was a wai," Jan said. "I was being respectful."
-
-"She promised to take care of me." JingJing was in a folding chair with her bag in her lap, a bottle of water she hadn't opened. Her voice was quiet. "In front of my parents. On her knees."
-
-The corridor went still. Namtan lowered the sticky rice.
-
-"And she *knelt*?"
-
-JingJing nodded. She was looking at the water bottle.
-
-"My mom knew about her. I told her three weeks ago. My dad got the information secondhand and processed it by not talking for two days and then sending me a text. They came tonight and the first thing Jan did was get on the floor."
-
-"Chinese dad energy," Ciize said softly. "That nod he gave. That was the whole verdict."
-
-"I know."
-
-Jan was leaning against the wall with her arms folded and her cap low. When JingJing looked over, Jan was watching her with an expression JingJing hadn't seen before. Soft at the mouth. Open in a way that Jan almost never was outside their apartment.
-
-"How are they taking it?" Namtan asked.
-
-"My mom texted me hearts. Fourteen of them. No words. She relayed from my dad that Jan has good posture."
+"My mom texted me hearts," JingJing said. "Fourteen of them. No words. She relayed from my dad that Jan has good posture."
 
 Jan's mouth twitched. "Good posture."
 
@@ -271,6 +245,8 @@ Jan's mouth twitched. "Good posture."
 "What about unacceptable shoes?" Namtan said.
 
 "We don't talk about the ex with the sandals."
+
+Jan was watching JingJing from the wall, arms folded, cap low. Soft at the mouth. Open in a way that Jan almost never was outside their apartment. JingJing looked at her water bottle.
 
 Ciize appeared at JingJing's shoulder. Squeezed once, hard. Walked away.
 
@@ -282,15 +258,11 @@ Jan drove. JingJing sat in the passenger seat with her shoes off and her phone f
 
 They didn't talk for ten minutes. Jan drove with her eyes on the road and her hands steady.
 
-"You got on your knees," JingJing said.
+"My father nodded at you," JingJing said.
 
 Jan glanced over. Back to the road.
 
-"My father didn't nod at my sister's boyfriend until year four." JingJing's voice was steadier than she expected. "He didn't nod at *me* until I booked the show."
-
-Jan was quiet.
-
-"Twenty-three years, Jan. Twenty-three years and a lead role. That's what it costs."
+"He didn't nod at me until I booked the show." JingJing's voice was steadier than she expected. "Twenty-three years, Jan. Twenty-three years and a lead role. That's what it costs."
 
 Her voice broke. She pressed her hand over her mouth and turned toward the window.
 
@@ -298,7 +270,7 @@ Jan's hand came to the back of JingJing's neck. Warm. Firm. She held it there wh
 
 "I meant every word," Jan said.
 
-"I know you did." JingJing's breath hitched. "You've never even heard his voice. You don't know what that nod means in my family and you just — you walked out there and he gave it to you."
+"I know you did." JingJing's breath hitched. "You've never even heard his voice. You don't know what that costs and you just — walked out there and he gave it to you."
 
 "You're telling me now."
 
@@ -306,7 +278,7 @@ Jan's hand came to the back of JingJing's neck. Warm. Firm. She held it there wh
 
 "Okay."
 
-"He understood, Jan. Without me saying anything. Without me telling him what you are. He watched you kneel and he *knew*."
+"Because he knew, Jan. I never had to tell him."
 
 She was crying. She'd been holding it since Jan's knees hit the stage floor and now it came all at once, hot and ugly, her forehead pressed to the window and her chest heaving. Jan's hand stayed on her neck.
 
