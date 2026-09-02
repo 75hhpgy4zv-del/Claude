@@ -40,7 +40,7 @@ JingJing groaned. Jan's arms tightened around her waist, a squeeze, and JingJing
 
 "I looked good crying."
 
-"You did," Jan said into JingJing's hair. JingJing turned her head and Jan was right there, mouth close, soft in a way that still made JingJing's chest ache with a ring on her finger and everything.
+"You did," Jan said into JingJing's hair. JingJing turned her head and Jan was right there, mouth close, soft in a way that still made JingJing's chest ache after all these months.
 
 "Stop looking at me like that."
 
@@ -106,9 +106,11 @@ Jan tapped the mic against her knee. "Same. We've been together every day since 
 
 "Together every day." P'Ohm raised an eyebrow. The audience erupted. "That's quite a sentence, P'Jan."
 
-The flush climbed up the back of Jan's neck. JingJing could see it from the couch. "Professionally," Jan said.
+Jan looked at JingJing. Looked back at P'Ohm. Shrugged one shoulder.
 
-Nobody believed her. JingJing stared at the ceiling.
+"Can you blame me?"
+
+The venue came apart. JingJing felt the scream in her sternum. On the other couch Ciize pressed her lips together and stared at the ceiling because Ciize knew, and Kapook grabbed Ciize's arm because Kapook knew, and the four hundred people between them and the doors had no idea how much they were missing.
 
 ---
 
