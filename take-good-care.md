@@ -58,9 +58,9 @@ Nobody moved.
 
 Kapook uncrossed her legs and hopped off the road case. She stretched, yawned, and was ready. JingJing felt Jan's arms loosen around her waist. She held on for a second — Jan's hands still under hers, Jan's breath still warm behind her ear — and then she let go. Stepped forward. The air where Jan had been was cool.
 
-Jan straightened her cap. Rolled her shoulders. The softness didn't leave her face — it just dialed back, the difference between a room and a stage. Jan caught JingJing looking and her mouth pulled up at the corner. She didn't stop it. She just let it be the amount it could be.
+Jan straightened her cap. Rolled her shoulders. Tucked her hands in her pockets.
 
-JingJing checked her hair in the propped mirror. Rolled her lips together. She could do this. Four hours of almost.
+JingJing checked her hair in the propped mirror. Rolled her lips together.
 
 They walked out together. The four of them through the curtain, into the noise and the purple light. The crowd surged when they saw them, phones up everywhere. JingJing's hand found Jan's between their bodies, knuckles against knuckles. She let it stay a beat longer than professional. Jan's pinky hooked hers and JingJing didn't pull away until the angle was good for the front row.
 
@@ -168,7 +168,7 @@ The audience noise shifted. Warmer. P'Ohm lit up.
 
 The camera found them. On the big screen beside the stage they were projected huge. Her father raised a hand. Her mother waved with the phone still recording. JingJing's throat closed.
 
-Jan turned on the couch and looked at the screen, then at JingJing. The almost fell off her face.
+Jan turned on the couch and looked at the screen, then at JingJing.
 
 "Jan," P'Ohm said, grinning. "How do you feel about that? JingJing's parents came out tonight."
 
