@@ -298,7 +298,7 @@ The steering wheel was in the way. JingJing's knee hit the horn and it honked on
 
 "You're not even arguing."
 
-"I'm not arguing."
+"You aren't wrong."
 
 JingJing pulled back and searched Jan's face in the blue laundromat light. Looked for the act. Jan was just looking at her.
 
