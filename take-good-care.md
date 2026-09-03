@@ -78,7 +78,7 @@ Kapook drew cats. Small ones, in the margins of the novels fans brought. Every p
 
 Two chairs down, JingJing's hand was cramping. She shook it out and Jan reached over without looking up, pressed her thumb into the web of JingJing's palm, dug deep into the muscle for two seconds, and pulled back to her own line. The fan in front of JingJing glanced between them, opened her mouth, closed it, and walked away holding her signed book like evidence.
 
-At six-fifteen, staff cleared the table. The four of them moved to the stage at the front of the booth where two couches flanked a coffee table and P'Ohm was already mic'd, warming up the crowd. JingJing sat down and Jan sat beside her, their thighs touching from hip to knee. Jan's arm went along the back of the couch behind JingJing's shoulders, fingertips resting on JingJing's arm where the audience could see them. Ciize and Kapook took the other couch. The audience packed in tight, phones raised, lightsticks blinking.
+At six-fifteen, staff cleared the table and the four of them moved to the stage at the front of the booth — two couches flanking a coffee table, P'Ohm already mic'd and warming up the crowd. JingJing sat and Jan settled beside her, their thighs touching from hip to knee. Jan's arm stretched along the back of the couch behind JingJing's shoulders, fingertips resting on her arm where the audience could see them. Ciize and Kapook took the other couch. The audience packed in tight, phones raised, lightsticks blinking.
 
 "Welcome," P'Ohm said, and the screaming hit a frequency JingJing felt in her teeth. "Enemies with Benefits finale week. How are we feeling?"
 
@@ -90,13 +90,13 @@ At six-fifteen, staff cleared the table. The four of them moved to the stage at 
 
 "It was car insurance."
 
-"The family in the commercial got a good rate. I was moved." Ciize's face was perfectly straight. The audience was already laughing. Ciize could land a joke without moving her face.
+"The family in the commercial got a good rate. I was moved." Ciize's face didn't move. The audience was already laughing.
 
-JingJing laughed too loud. She leaned into Jan's shoulder and stayed there a beat, letting the fans see it, before she straightened. Jan's hand came to her knee and squeezed once.
+JingJing laughed too loud and leaned into Jan's shoulder, staying there a beat, letting the fans see it, before she straightened. Jan's hand came to her knee and squeezed once.
 
 P'Ohm turned to them. "Jan, JingJing. Post-finale feelings?"
 
-JingJing went first. Jan let her. Jan knew JingJing was better at the talking and the brightness.
+JingJing went first. Jan let her — Jan knew she was better at the talking and the brightness.
 
 "I keep waiting for it to hit me that it's over," JingJing said. "But we've been doing events and promo nonstop since wrap, so it still feels like we're in it."
 
@@ -106,7 +106,7 @@ Jan tapped the mic against her knee. "Same. We've been together every day since 
 
 "Together every day." P'Ohm raised an eyebrow. The audience erupted. "That's quite a sentence, P'Jan."
 
-Jan looked at JingJing. Looked back at P'Ohm. Shrugged one shoulder.
+Jan looked at JingJing, looked back at P'Ohm, and shrugged one shoulder.
 
 "Can you blame me?"
 
@@ -114,7 +114,7 @@ The venue came apart. JingJing felt the scream in her sternum. On the other couc
 
 ---
 
-They played a game. P'Ohm had cards with lines from the show. One person read, the other three guessed the episode. JingJing won because she'd memorized the script. Jan got two right because she only remembered her own scenes. Kapook scored zero because she kept answering with episodes from 23.5.
+They played a game — P'Ohm had cards with lines from the show, one person read while the other three guessed the episode. JingJing won because she'd memorized the script. Jan got two right because she only remembered her own scenes, and Kapook scored zero because she kept answering with episodes from 23.5.
 
 "That's not our show," Ciize said.
 
@@ -122,11 +122,11 @@ They played a game. P'Ohm had cards with lines from the show. One person read, t
 
 "You are thinking of a different series that you were not in."
 
-"GL shows blur together when you're this tired." Kapook yawned to prove it. The audience laughed. Kapook smiled through the yawn with flawless timing, and JingJing thought again that Kapook was sharper than she let on.
+"GL shows blur together when you're this tired." Kapook yawned to prove it. The audience laughed and Kapook smiled through the yawn with flawless timing, sharper than she let on.
 
-Jan laughed from her chest, eyes closing, chin tipping. JingJing watched it happen and felt her ribcage tighten.
+Jan laughed from her chest, eyes closing, chin tipping back. JingJing watched it happen and felt her ribcage tighten.
 
-P'Ohm opened the floor for audience questions. Fans asked about bloopers and favorite scenes. Someone asked Jan whether she could actually play piano or if it was editing and Jan said she knew three songs and all of them were bad.
+P'Ohm opened the floor for audience questions. Someone asked Jan whether she could actually play piano or if it was editing, and Jan said she knew three songs and all of them were bad.
 
 "Two are bad," JingJing said. "One is decent."
 
