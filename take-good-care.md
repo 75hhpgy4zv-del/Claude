@@ -332,7 +332,7 @@ JingJing loved this — Jan shaking above her, fighting not to fuck her mouth an
 
 Jan pulled her off. JingJing gasped, spit on her chin, lips swollen. Jan hauled her up by the arms and kissed her hard, tongue deep in JingJing's mouth tasting herself, and her hand closed around JingJing's throat. JingJing moaned into the grip, kicked her shorts off. Jan shoved her back onto the bed and settled between her legs. The press of bare skin on skin made JingJing's hips jerk up into her.
 
-Jan pushed in on one deep stroke and the sound JingJing made had nothing planned in it. The stretch was enormous, the curve dragging hard inside her. Her hands flew to the headboard.
+Jan pushed in on one deep stroke and JingJing cried out. The stretch was enormous, the curve dragging hard inside her. Her hands flew to the headboard.
 
 "Oh *fuck* — Daddy —"
 
@@ -368,7 +368,7 @@ Jan's fist closed in her hair. Pulled hard. JingJing's head came off the pillow.
 
 Jan drove forward with her full weight behind the stroke, pressing JingJing flat, and JingJing couldn't move — pinned under Jan's weight with Jan buried to the hilt and Jan's fist in her hair.
 
-Jan set a pace that had nothing controlled in it. Her breath came rough against JingJing's neck and JingJing pushed back to meet every stroke.
+Jan pulled back and drove in again, harder, then harder. Her breath came rough against JingJing's neck and JingJing pushed back to meet every stroke.
 
 "Don't stop — don't stop fucking me, Daddy —" Her voice broke apart between thrusts. "Give me more, I can take it —"
 
@@ -382,21 +382,21 @@ Jan fucked her through it. Harder.
 
 "Come inside me," JingJing gasped, turning her head enough to breathe. "Daddy. Please. Fill me up."
 
-Jan's rhythm broke. Shorter strokes, driving deep, both hands on JingJing's hips pulling her back onto her cock, and the sounds coming out of Jan were ones JingJing had never heard — low, each exhale punched out of her.
+Jan drove shorter, deeper, both hands dragging JingJing's hips back onto her cock. Every exhale punched out of Jan low and wrecked.
 
 "Don't pull out. Give it to me."
 
 Jan drove deep and her whole body locked. JingJing felt the first pulse — hot, deep inside her — and she moaned. Jan's hips shuddered and she ground deeper, emptying into JingJing in long waves, and JingJing pressed back and took everything.
 
-Jan collapsed on top of her. Full weight. Her face in JingJing's hair, breathing ragged against JingJing's neck. Still inside. Still pulsing.
+Jan collapsed on her — full weight, face pressing into JingJing's hair — and her breath came ragged against JingJing's neck. She was still inside, each pulse fading.
 
-JingJing lay underneath her. Felt Jan's heartbeat through her back.
+JingJing felt Jan's heartbeat through her back.
 
 "Stay," she said into the sheets.
 
 "I'm staying."
 
-Neither of them moved. JingJing's eyes closed. Jan's weight pressed her into the mattress and Jan was still inside her and the apartment was quiet and JingJing fell asleep full and kept.
+JingJing closed her eyes under Jan's weight. The apartment was quiet and she fell asleep full and kept.
 
 ---
 
