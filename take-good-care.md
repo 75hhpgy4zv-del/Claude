@@ -4,9 +4,9 @@
 
 ---
 
-The Y Book Fair filled QSNCC's basement level in a maze of publisher booths and panel stages. GL and BL novels stacked in bright towers on every table. The GMMTV booth anchored one wall, purple-lit, with the Enemies with Benefits banner hung overhead: Jan and JingJing's faces four times life-size, mid-argument, the poster from episode six.
+The Y Book Fair filled QSNCC's basement level — publisher booths and panel stages stretching back in a maze, GL and BL novels stacked in bright towers on every table. The GMMTV booth anchored one wall under purple light, the Enemies with Benefits banner hung overhead: Jan and JingJing's faces four times life-size, mid-argument, the poster from episode six.
 
-Backstage was a folding table with bottled water and a mirror propped against the wall. Kapook was cross-legged on a road case, drawing a cat on a napkin. Ciize was beside her, scrolling her phone. JingJing was leaning against Jan, her back to Jan's chest, Jan's arms loose around her waist, chin resting on the top of JingJing's head. They'd been standing like this since they arrived. Neither of them had moved to stop.
+Backstage was a folding table with bottled water and a mirror propped against the wall. Kapook sat cross-legged on a road case, drawing a cat on a napkin, while Ciize scrolled her phone beside her. JingJing had her back against Jan's chest, Jan's arms loose around her waist, Jan's chin resting on the top of her head. Neither of them had moved to stop.
 
 JingJing looked at the banner through the gap in the backstage curtain.
 
@@ -32,7 +32,7 @@ Ciize didn't look up from her phone. "Jan's jawline in that poster could cut a m
 
 "I wasn't complimenting you. I was observing that the poster has favorites."
 
-JingJing groaned. Jan's arms tightened around her waist, a squeeze, and JingJing covered Jan's hands with her own and held them against her stomach.
+JingJing groaned. Jan's arms tightened around her waist, a squeeze, and JingJing covered Jan's hands with her own, holding them against her stomach.
 
 "They should have used the one from episode nine," JingJing said. "The rain scene."
 
@@ -40,7 +40,7 @@ JingJing groaned. Jan's arms tightened around her waist, a squeeze, and JingJing
 
 "I looked good crying."
 
-"You did," Jan said into JingJing's hair. JingJing turned her head and Jan was right there and Jan kissed her — slow, soft, and JingJing's chest ached after all these months.
+"You did," Jan said into JingJing's hair, and when JingJing turned her head Jan was right there. Jan kissed her, slow and soft, and JingJing's chest ached after all these months.
 
 "Stop kissing me like that."
 
@@ -48,21 +48,21 @@ JingJing groaned. Jan's arms tightened around her waist, a squeeze, and JingJing
 
 "And?"
 
-Jan kissed the underside of JingJing's jaw. Slow. Her lips warm on the exact spot JingJing hated in the poster. JingJing closed her eyes and leaned into it and Kapook put her hand over her heart and Ciize was smiling at her phone, small and private, at whatever she was pretending to read.
+Jan kissed the underside of JingJing's jaw, slow, her lips warm on the exact spot JingJing hated in the poster. JingJing closed her eyes and leaned into it. Across the room, Kapook put her hand over her heart, and Ciize smiled at her phone, small and private, at whatever she was pretending to read.
 
-A staff member pulled the curtain back. Clipboard. Headset. "Five minutes, ka."
+A staff member with a clipboard and a headset pulled the curtain back. "Five minutes, ka."
 
 Nobody moved.
 
 "That means us," Ciize said, standing, pocketing her phone.
 
-Kapook uncrossed her legs and hopped off the road case. She stretched, yawned, and was ready. JingJing felt Jan's arms loosen around her waist. She held on for a second — Jan's hands still under hers, Jan's breath still warm behind her ear — and then she let go. Stepped forward. The air where Jan had been was cool.
+Kapook uncrossed her legs and hopped off the road case. She stretched, yawned, and was ready. JingJing felt Jan's arms loosen around her waist and held on for a second — Jan's hands still under hers, Jan's breath still warm behind her ear — before she let go and stepped forward. The air where Jan had been was cool.
 
-Jan straightened her cap. Rolled her shoulders. Tucked her hands in her pockets.
+Jan straightened her cap and rolled her shoulders, hands finding her pockets.
 
-JingJing checked her hair in the propped mirror. Rolled her lips together.
+JingJing checked her hair in the propped mirror and rolled her lips together.
 
-They walked out together. The four of them through the curtain, into the noise and the purple light. The crowd surged when they saw them, phones up everywhere. JingJing's hand found Jan's between their bodies, knuckles against knuckles. She let it stay a beat longer than professional. Jan's pinky hooked hers and JingJing didn't pull away until the angle was good for the front row.
+They walked out together, the four of them through the curtain into the noise and the purple light. The crowd surged when they saw them, phones up everywhere. JingJing's hand found Jan's between their bodies, knuckles against knuckles, and she let it stay a beat longer than professional. Jan's pinky hooked hers and JingJing didn't pull away until the angle was good for the front row.
 
 They sat at the signing table. JingJing uncapped her pen and the first book slid across the table and she was on. The line of fans curved past the manga section and kept going.
 
