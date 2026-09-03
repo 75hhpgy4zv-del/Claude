@@ -158,7 +158,7 @@ JingJing had told her mother about Jan three weeks ago. The outline. Enough for 
 
 Her father had been in the other room. Two days later he'd sent a text: *We want to meet her. Tell us when.*
 
-She hadn't told Jan they were coming. She hadn't told Jan her parents knew.
+She hadn't told Jan they were coming. She hadn't even told Jan her parents knew.
 
 "My parents are here," JingJing said into the microphone.
 
