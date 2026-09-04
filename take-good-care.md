@@ -324,7 +324,7 @@ She undid Jan's belt. The button. The zipper. Jan's hand went to her hair and th
 
 She looked up. Jan's eyes were black.
 
-She took the head in her mouth and went deep without stopping, tongue working the underside of the curve because she knew the angle that made Jan's breath catch — and it caught, a sound that went through JingJing's whole body. Jan's hand tightened in her hair. JingJing moaned around her, loud, because she was loud about everything and this was no different, and the vibration pulled a groan out of Jan. Her fist worked what her mouth couldn't reach, slick, twisting on the upstroke, and she sucked hard on the pull-back and Jan's hips jerked.
+She took the head in her mouth and went deep without stopping, tongue working the underside of the curve because she knew the angle that made Jan's breath catch — and it caught, a sound that went through JingJing's whole body. Jan was hard and hot on her tongue, salt and skin, and JingJing took her deeper because she couldn't get enough. Jan's hand tightened in her hair. JingJing moaned around her, loud, because she was loud about everything and this was no different, and the vibration pulled a groan out of Jan. Her fist worked what her mouth couldn't reach, slick, twisting on the upstroke, and she sucked hard on the pull-back and Jan's hips jerked.
 
 "Fuck — JingJing —"
 
@@ -352,9 +352,13 @@ JingJing's mouth fell open. Jan was thick and hot inside her, stretching her wid
 
 JingJing opened her eyes. Jan was right there — pupils blown, sweat at her hairline — and JingJing felt herself clench around Jan just from the eye contact. Jan's jaw tightened.
 
+Jan started to move, slow. JingJing felt the full length of Jan drag against her walls, the ridge of the head catching her in the spot that made her legs twitch, and when Jan pushed all the way in JingJing's breath punched out of her. Jan did it again, then again, slow and deep, and JingJing's toes curled because Jan felt so good inside her it was almost unbearable. She could feel every drag and push, the thick stretch of Jan filling her. She was matching Jan's rhythm without thinking about it, her body rocking up into each stroke because it wanted more before her mouth could ask for it.
+
 Jan pulled back and drove in again. Harder. She caught JingJing's wrist and pinned it above her head and set a pace that knocked the headboard into the wall. JingJing's free hand clawed down Jan's back. She could feel Jan bottoming out on every stroke, the thick head hitting so deep her eyes rolled back. Each thrust forced a sound out of her she couldn't have stopped. Jan's grip on her wrist was too tight, her hips too hard. JingJing wanted more of all of it.
 
 "Harder." Her legs locked around Jan's waist. "Harder, Daddy —"
+
+Jan gave her harder. JingJing felt it everywhere: the thickness filling her, the pace that wouldn't let her think. She was close. She could feel it building, tight and low, and she didn't want to come yet because Jan inside her felt too good to end.
 
 Jan drove deeper and JingJing screamed. Jan's other hand was on JingJing's thigh, fingers digging in, leaving marks that would be there in the morning. Jan's hips slammed forward, each impact jolting through JingJing's whole body, and JingJing could hear how wet she was — slick, obscene sounds with every stroke that made her face burn and her hips roll up for more. She was so full she could feel Jan in her throat. Jan groaned against her neck, rough and involuntary, and JingJing's whole body tightened at the sound. JingJing was saying Jan's name and *Daddy* until the words stopped making sense. Jan's mouth was at her ear.
 
@@ -386,6 +390,8 @@ Jan's fist closed in her hair. Pulled hard. JingJing's head came off the pillow 
 
 Jan drove forward with her full weight behind the stroke, pressing JingJing flat, and JingJing couldn't move — pinned under Jan's weight with Jan buried to the hilt and Jan's mouth hot against her ear.
 
+JingJing could feel how deep Jan was inside her. She bore down on Jan's cock and Jan's breath hitched against her ear. She did it again because she wanted to hear Jan lose it.
+
 Jan pulled back and drove in again, harder, then harder. Jan's skin was slick with sweat against JingJing's back, and the sound of Jan's hips hitting her was wet and hard. Her breath came rough against JingJing's neck. Jan was so deep from this angle JingJing could feel her in her stomach, and she pushed back to meet every stroke because she wanted to feel Jan everywhere, wanted to be so full of her that she forgot how to be anything else.
 
 "Don't stop — don't stop fucking me, Daddy —" Her voice broke apart between thrusts. "Give me more, I can take it —"
@@ -406,7 +412,7 @@ Jan drove shorter, deeper, both hands dragging JingJing's hips back onto her coc
 
 "Don't pull out. Give it to me."
 
-Jan drove deep and her whole body locked. JingJing felt the first pulse — thick and hot inside her — and gasped. She could feel Jan's cock pulsing, each throb filling her with heat. Jan groaned into her back, raw, grinding deeper, and JingJing pressed back and clenched around her because she wanted all of it. Another pulse, and Jan's hips jerked. JingJing moaned because she could feel Jan emptying into her, the heat pooling low and spreading through her belly while Jan shuddered against her back and ground into her in slow waves, giving her everything.
+Jan drove deep and her whole body locked. JingJing felt the first pulse — thick and hot inside her — and gasped. She could feel Jan's cock pulsing, each throb filling her with heat. Jan groaned into her back, raw, grinding deeper, and JingJing pressed back and clenched around her because she wanted all of it. Another pulse, and Jan's hips jerked. Nothing had ever felt this good. JingJing moaned because she could feel Jan emptying into her, the heat pooling low and spreading through her belly while Jan shuddered against her back and ground into her in slow waves, giving her everything.
 
 Jan collapsed on her — full weight, face pressing into JingJing's hair — and her breath came ragged against JingJing's neck. She was still inside, each pulse fading.
 
