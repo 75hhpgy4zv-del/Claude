@@ -54,3 +54,48 @@ is what the novel is about.
   personal life, and they want to be authentic too: two members have been secretly
   dating each other, and another is married to someone in the military. She was
   protecting nothing, because they had all outgrown the life they were living.
+
+## Layer three: performance vs. real (the supporting cast)
+Everyone is judged by their public record. That is why the tattoos matter.
+
+### Suresh "Lucky" Pillai (Derek's friend; the real person behind Rajan in *80/20*)
+- Has a master's in mechanical engineering, but he's a local celebrity as the face of the state lottery.
+- Running joke: whenever he and Derek are in public, someone recognizes him from the
+  billboard or his catchphrase, **"It's your Lucky Day!"**
+- A total Greek god, built like Rana Daggubati in *Baahubali*.
+- Married 12 years to **Deepa** (real person behind Preethi), a former lawyer who became a
+  chemical engineer. She is completely unimpressed by Lucky and always has been. He chased
+  her for three full semesters before she gave him the time of day. Her parents hate him
+  and think he's a playboy.
+
+### Anchor Nicholas Shippey (the actor playing Lucky's character)
+- British. His parents were poor farmers from a long line of farmers, with a bad sense of humor.
+- Extremely posh, the opposite of his family. Obsessed with the finest things: alcohol,
+  cigars, audio, you name it. Always dressed impeccably.
+- His high school yearbook voted him "Most Likely to Wear a Tuxedo to the Beach."
+- Everyone thinks he's gay, and he has never bothered to correct the rumor.
+
+### Set-visit scene (the film's version of *80/20* Chapter 10, "Are You Being Careful")
+- Lucky comes to set to watch the scene being shot. He complains that the actor's line is
+  unrealistic and that he would never say it. He did: it's a direct quote. He's
+  complaining because he's a wiseass.
+- Anchor turns out to be a MASSIVE Lucky fan, and when Lucky finds out, he forgets all his complaints.
+
+## Derek's 12 tattoos
+| # | Location | Language | Quote |
+|---|----------|----------|-------|
+| 1 | Left ribs | Greek | Homer, *Iliad* IX: "Hateful to me as the gates of Hades is that man who hides one thing in his heart and speaks another" |
+| 2 | Right ribs | Spanish | *Mulholland Drive*: "No hay banda" |
+| 3 | Underside of left bicep | Italian | Dante, *Inferno* VII.75: "Or vo' che tu mia sentenza ne 'mbocche" |
+| 4 | Left inner forearm | Japanese | Kurosawa, *High and Low*: "I'd rather be told the cruel truth than be fed gentle lies" |
+| 5 | Left shoulder blade | English | Fitzgerald, *This Side of Paradise*: "It was always the becoming he dreamed of, never the being" |
+| 6 | Left of spine, vertical | Japanese | Schrader, *Mishima*: "Men wear masks to make themselves beautiful…" (the tattoo is the FULL quote; full text still needed) |
+| 7 | Left shoulder | French | Sartre, *La Nausée*: "The Nausea is not inside me. I am the one who is inside it" |
+| 8 | Right shoulder | English | *Ferris Bueller*: "Life moves pretty fast… if you don't stop and look around every once and a while you could miss it." |
+| 9 | Inside right bicep | English | *Twin Peaks*: "One day the sadness will end" |
+| 10 | Left calf | Korean | NewJeans, "Ditto": "말해줘 say it back… 아침은 너무 멀어" |
+| 11 | Right calf | Telugu | *Baahubali*: "If a hand is laid on Devasena's body, it may as well be laid on Baahubali's sword" |
+| 12 | Right thigh | Japanese | "The faster you go on the touge, the closer you are to death" |
+
+## Source text
+The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
