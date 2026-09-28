@@ -134,3 +134,8 @@ The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
 - The sequel: started July 11, 14 chapters / ~120 pages by Aug 12. There are also 406 abandoned pages from before.
   Publisher contact: Priyanka at Aperture. Halina: (role TBD). Ha-eun read *80/20* in 2022 and optioned it.
 - The sequel's Maya is 31, an only child, and her mother drives over from Alhambra.
+
+## Book vs. real life (deliberate differences)
+- **The shelf.** In *80/20*, the steelbooks are alphabetical, and "out of order" is the warning sign. Derek's real shelf is
+  in the order he first saw the films. Ha-eun knows the real order and fixes the set (Ch 21). She credits "the
+  book, chapter nine" as cover, and nobody checks.

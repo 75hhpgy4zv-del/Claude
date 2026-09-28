@@ -279,7 +279,7 @@ A long time later she said, "I look at your shelf."
 
 "When I come in."
 
-Derek looked at the shelf. It is nine feet from the couch and it has about two hundred steelbooks on it and it has been in alphabetical order since 2018, and there is a chapter in his own novel in which a man explains what it means when it is not.
+Derek looked at the shelf. It is nine feet from the couch and it has about two hundred steelbooks on it in the order he first saw the films, and there is a chapter in his own novel in which a man keeps the same shelf in alphabetical order and explains what it means when it is not.
 
 "How long," he said.
 
