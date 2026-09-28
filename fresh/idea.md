@@ -204,3 +204,6 @@ Fanny's coda.
   That's how he fell in love with her.
 - **"You are him."** Callback to the first balcony (*80/20* Ch 3): Murphy's wife "doesn't get him back. She gets
   the thing that looks like him." Maya is Murphy, the person who survived the machine, not the copy.
+
+## Titles
+- Frame novel: *The Touge*. Book 3: *The Tender*.

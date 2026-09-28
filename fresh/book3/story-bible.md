@@ -1,4 +1,4 @@
-# Story Bible: Derek & Ha-eun, Production / India Novel (Book 3)
+# Story Bible: *The Tender* (Book 3)
 
 Set after *The Touge* (the frame novel) and after *50/50*. Pasted by the author in the working session;
 the full text is kept in the session transcript. Summary of the major beats:
