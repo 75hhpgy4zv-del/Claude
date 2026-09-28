@@ -109,3 +109,16 @@ the more the public version crowds out the private one:
 
 ## Source text
 The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
+
+## Drafted chapters (in `chapters/`)
+- Ch 8, "Chemistry": Derek takes the spring off; the chemistry read; Rahul Varma is cast as Derek's character.
+- Ch 13, "Bias": the Ditto tattoo; Danielle; the KBS corridor; "Tell me I'm your bias!"
+- Ch 15, "Visitor": Lucky's set visit (Sc. 52). Lucky meets Ha-eun only here.
+- Ch 16, "Three Hundred Pixels": the airport clip; the Kurosawa forearm; "he wrote a book about it."
+- Ch 19, "The Levels": Sc. 88/88A; Gracie; "Have you got a Five."
+
+## Established in the drafts
+- Derek's surname is **Kolluri**. He lives in Alhambra.
+- The actor playing Lucky's character (Rajan) in the drafts is **Tariq Osman**, not Anchor Shippey.
+- Director: Mags. Casting: Nadia. 1st AD: Denny. Ha-eun's manager: Ji-won. Company comms: Bluehour.
+- Ha-eun and Lucky spend time together only during the set visit.
