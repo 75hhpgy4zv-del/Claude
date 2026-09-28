@@ -169,3 +169,14 @@ you can be seen in it, so only you can say whether it can be seen by others."
   she has optioned it. That is her public answer to the question the manuscript asked in Ch 33: yes, she can be
   seen in it, and she'll make sure people see her. The ending is a triumph because the consent is hers and it
   is public. It also reverses 7.4(b): for once, she decides what happens when her private life becomes known.
+
+## The whole book is about consent
+Public vs. private is the surface; consent is the spine. Every layer asks who gets to decide what of a person is seen:
+- Ha-eun's contract: consent "given" at twelve, a practiced signature (Ch 18). The ending is her first adult consent that's truly hers.
+- Derek's books: real people published without being asked.
+- The film: actors playing people who don't know they're the model (Anchor playing Lucky).
+- The internet: strangers reading people out of a book (Ch 16, 26).
+- Anchor: chooses to let a false rumor stand. Consent to being misread.
+- Lucky: a persona he agreed to (the billboard), until scale takes it past what he agreed to (Deepa's phone, the door).
+- Ji-won: "I'm *telling* you I'm not asking." Protection by agreement.
+- Possible reading of the titles: *80/20* is a lopsided share; *50/50* is two people each deciding their half.
