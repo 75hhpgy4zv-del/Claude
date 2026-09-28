@@ -272,23 +272,31 @@ Nari said something from the floor in Korean, very quietly and not to him, which
 
 The hand came out again. Yeong-ju filled it faster this time, and then did not put the container down, but stood holding it in both hands, and when Nari reached up from the floor for it she moved it out of reach.
 
-It was Yeong-ju who went back first. She did it after the fourth segment, without looking at anybody, to the orange container.
+She went on like that, one for the hand and one for Derek, until the container was empty. Then she picked a slice of mango off the plate, on the principle that fruit was fruit, and put it in Derek's mouth.
 
-"She had a rice cooker," she said. "In the dorm. Under the bottom bunk, where you weren't allowed. 2012."
+Ha-eun kicked him.
 
-"2013," said Nari.
+It was the heel of one foot, on the shin, hard enough that he felt it through his jeans, and it was not an accident. Yeong-ju stepped back.
 
-"You weren't there in 2012. That's why you think it was 2013."
+"She wants one," said Derek, with his mouth full. "She's obsessed with mango."
 
-"I heard about it."
+Yeong-ju looked at him, and then at the plate, and when the hand came out of the sleeve she put a slice of mango in it. The hand went back in. After a second there was a sound against his neck, small and high and pleased with itself, and Nari, on the floor, put both hands over her mouth.
 
-"We ate it at two in the morning," Yeong-ju went on, to Derek, over the top of her, "all of us under the blankets, with the seaweed out of the packets. It was always cold. You couldn't heat anything. If it smells, they know."
+"Since when?" said Yeong-ju.
 
-The rice on the table had been sitting there since before the encore, in a foil tray with the lid peeled back, and it was about the temperature of the room. Derek looked at it and did not say anything.
+"That's my fault."
 
-From the arm of her chair, still holding the hand Ha-eun had not given back, Miru said without looking up, "Before Mondays." Yeong-ju said "before Mondays" after her, and nobody explained what that meant, and he did not ask.
+Nari looked at him for a moment, and then at the plate of mango, and did not ask.
 
-It seemed only fair to give them something back.
+"She *kicks* you," she said instead.
+
+"Mostly she argues with me."
+
+Yeong-ju brought the whole plate over and held it where the hand could find it. She did not take her eyes off the sleeve.
+
+"What else?" she said.
+
+Derek thought about where to start.
 
 "She eats on the floor," he said.
 
@@ -300,27 +308,27 @@ Nari laughed once into both hands without making a sound. So-hyun did not laugh.
 
 "Not at home," said Derek.
 
-So-hyun looked at the back of Ha-eun's head for a long time after that and did not say anything else.
+Somebody had brought So-hyun a paper cup of the soup after the show, and it had been sitting on the floor by her chair ever since with a plastic spoon standing up in it. She looked at it for a long time. Then she picked it up and stirred it herself.
 
-The hand came out again to an empty container, and Yeong-ju looked at the open palm with something close to panic until Derek said "rice." She went and got the rice, and a plastic spoon, and the soup, which she tested with one finger and then put back on the table without comment, and she fed the rice into the hand a spoonful at a time. At about the fourth spoonful Ha-eun kicked him, not hard, with the heel of one foot against his shin, twice, and he said "smaller," and Yeong-ju made it smaller.
+It was So-hyun who went on, eventually, with the spoon still going around.
 
-"She *kicks* you," said Nari, delighted.
+"Ramyeon," she said.
 
-"Mostly she argues with me."
+Derek waited.
 
-"About what?"
+"When we were trainees. She wanted it every night. We weren't allowed." She kept stirring. "She used to stand in the convenience store and read the backs of the packets."
 
-Yeong-ju had picked up a slice of mango from the plate by then, on the principle that fruit was fruit, and was holding it out by the sleeve. The hand went back in without taking it and did not come out again until the mango was back on the plate.
+"I make her noodles," said Derek. "With an egg cracked in. And the sriracha goes in a spiral, because she won't stir it."
 
-"She's done that in every city," Yeong-ju said. "They put mango out and she moves it to the other end of the table."
+So-hyun's spoon stopped.
 
-"That's my fault," said Derek.
+"And radish," Derek said. "She likes radish."
 
-"Why?"
+"She eats *radish*?" said Nari.
 
-"It's in the book."
+"Four sticks. Cut the short way."
 
-Nari thought about that for about four seconds. Then she sat bolt upright and said "*the refrigerator*," in English, and had to put her forehead down on her knees.
+Nobody said anything to that. Yeong-ju put another slice of mango into the hand, and the hand took it, and the sound came again, a little quieter.
 
 ---
 
