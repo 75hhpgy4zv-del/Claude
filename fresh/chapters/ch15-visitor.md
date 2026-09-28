@@ -37,7 +37,7 @@ They shot scene fifty-two at eleven and Derek did not say anything about it befo
 
 Fifty-two is Rajan's scene. It is four pages in a car outside a house in Silver Lake, and it is the one where the best friend says the thing, and it had been on the schedule since October and Derek had been looking at that date for six weeks.
 
-Lucky sat in a chair by the sound cart, next to Derek's chair, with a pass round his neck and a coffee he had been given by a runner and was extremely pleased about, and watched Tariq Osman do it eleven times.
+Lucky sat in a chair by the sound cart, next to Derek's chair, with a pass round his neck and a coffee he had been given by a runner and was extremely pleased about, and watched Anchor Shippey do it eleven times.
 
 > "Are you being careful, or are you doing the thing where you decide up front that it won't work so you never have to find out?"
 
@@ -77,7 +77,7 @@ Lucky held both hands up in surrender and was quiet for approximately forty seco
 
 ---
 
-Mags called cut on eleven and said "that's lovely, moving on," and Tariq shook the operator's hand, which he did every time, and went off toward the trucks.
+Mags called cut on eleven and said "that's lovely, moving on," and Anchor shook the operator's hand, which he did every time, and went off toward the trucks.
 
 Lucky watched him go.
 
@@ -111,7 +111,7 @@ He asked her about the hours, and then the food, and then, with real concern, ab
 
 ---
 
-Tariq came over at ten past one.
+Anchor came over at ten past one.
 
 He came over to Derek, because Derek was the writer and there was a line in fifty-two he had wanted to ask about since Tuesday, and he arrived saying, "Sorry — can I steal you for a second, it's the *find out* at the end, I keep landing on *out* and I think it's—"
 
@@ -119,7 +119,7 @@ And then he stopped.
 
 And he looked past Derek's shoulder.
 
-"...Sorry," said Tariq Osman. "Sorry. *Sorry.* Are you—"
+"...Sorry," said Anchor Shippey. "Sorry. *Sorry.* Are you—"
 
 ---
 
@@ -129,13 +129,13 @@ And he looked past Derek's shoulder.
 
 ---
 
-It came out of him at a volume that turned about forty people on a live soundstage, and Tariq had both hands on top of his head, and Lucky rose from a folding chair like a man being knighted.
+It came out of him at a volume that turned about forty people on a live soundstage, and Anchor had both hands on top of his head, and Lucky rose from a folding chair like a man being knighted.
 
 "You're the *lottery guy.*"
 
 "I'm the lottery guy."
 
-"You're the *lottery guy.* Mate. *Mate.*" Tariq had gone entirely to pieces. "I lived on Fletcher for two years — you were on the billboard by the 2, the one with the — you've got the finger, you do the—"
+"You're the *lottery guy.* Mate. *Mate.*" Anchor had gone entirely to pieces. "I lived on Fletcher for two years — you were on the billboard by the 2, the one with the — you've got the finger, you do the—"
 
 "I do the finger."
 
@@ -153,17 +153,17 @@ Derek Kolluri stood on Stage 4 of a film adaptation of a novel he had written, a
 
 "You're not being a lot."
 
-"I'm being a lot. I've been up since four." Tariq had his hand on his own chest. "Can I get a photo? Is that — sorry, is that all right?"
+"I'm being a lot. I've been up since four." Anchor had his hand on his own chest. "Can I get a photo? Is that — sorry, is that all right?"
 
 "It's your lucky day," said Lucky.
 
 ---
 
-They took the photograph. Then Tariq took another one for somebody called Priyesh. Then a woman from costume who had been listening came over, and then Denny, who had been standing four feet away for the entire thing with a radio in his hand doing nothing.
+They took the photograph. Then Anchor took another one for somebody called Priyesh. Then a woman from costume who had been listening came over, and then Denny, who had been standing four feet away for the entire thing with a radio in his hand doing nothing.
 
 It took eleven minutes.
 
-At some point during it Tariq turned to Derek and said, very kindly, "Sorry, mate, you were saying about the line," and Derek said, "It's fine, do it later," and Tariq said "cheers" and went straight back to Lucky.
+At some point during it Anchor turned to Derek and said, very kindly, "Sorry, mate, you were saying about the line," and Derek said, "It's fine, do it later," and Anchor said "cheers" and went straight back to Lucky.
 
 ---
 
@@ -223,7 +223,7 @@ She came in, took her shoes off, walked past him into the kitchen, got a plate d
 
 It went on for about forty minutes.
 
-She asked whether Tariq had read the book. He said yes, twice. She said *twice*, in a voice of enormous wonder, and asked whether the man had read anything else by that author, and Derek said there isn't anything else by that author, and Ha-eun said, "So he's read *everything.*"
+She asked whether Anchor had read the book. He said yes, twice. She said *twice*, in a voice of enormous wonder, and asked whether the man had read anything else by that author, and Derek said there isn't anything else by that author, and Ha-eun said, "So he's read *everything.*"
 
 She asked, over food, whether it would be possible to get a photograph.
 
@@ -279,7 +279,7 @@ He put his plate down on the floor.
 
 Ha-eun did not say anything.
 
-"And he's right," said Derek. "Tariq's doing it too well. Because I wrote it too well. I cleaned it up, and I gave it to a man who isn't him, and I gave that man a wife and a house in Silver Lake, and Lucky sat in a folding chair today and could not work out why it sounded fake."
+"And he's right," said Derek. "Anchor's doing it too well. Because I wrote it too well. I cleaned it up, and I gave it to a man who isn't him, and I gave that man a wife and a house in Silver Lake, and Lucky sat in a folding chair today and could not work out why it sounded fake."
 
 "Are you going to tell him?"
 

@@ -119,6 +119,6 @@ The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
 
 ## Established in the drafts
 - Derek's surname is **Kolluri**. He lives in Alhambra.
-- The actor playing Lucky's character (Rajan) in the drafts is **Tariq Osman**, not Anchor Shippey.
+- The actor playing Lucky's character (Rajan) is **Anchor Nicholas Shippey**. Ch 15 was drafted with the placeholder name "Tariq Osman", since replaced.
 - Director: Mags. Casting: Nadia. 1st AD: Denny. Ha-eun's manager: Ji-won. Company comms: Bluehour.
 - Ha-eun and Lucky spend time together only during the set visit.
