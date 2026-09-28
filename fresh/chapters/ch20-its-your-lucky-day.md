@@ -247,7 +247,7 @@ They were quiet for a while, in the way they had been quiet at each other since 
 
 "Say it."
 
-"You've never met her," Lucky said. "That's not — I know you can't. I know there's a whole thing and I don't need to know it, and I'm not asking, and honestly Deepa asks me weekly and I *enjoy* not knowing." A pause. "But you've been doing this since March, whatever it is. And Deepa's known you sixteen years and she's never met her, and you've never sat at our table with her, and Meena doesn't know she exists."
+"Deepa's never met her," Lucky said. "That's not — I know she can't. I know there's a whole thing and I don't need to know it, and I'm not asking, and honestly Deepa asks me weekly and I *enjoy* not knowing." A pause. "But you've been doing this since March, whatever it is. Deepa's known you sixteen years, and you've never once sat at our table with her, and Meena doesn't know she exists."
 
 "I know."
 
