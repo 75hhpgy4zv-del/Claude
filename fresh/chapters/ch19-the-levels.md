@@ -7,7 +7,7 @@ Wednesday was his side. Thursday was hers.
 
 It is on the schedule as **Sc. 88 — INT. APARTMENT / READING CHAIR — DAY** and **Sc. 88A — INT. BURBANK APARTMENT / KITCHEN — DAY**, and between them they are the longest unbroken stretch of dialogue in the film.
 
-Derek had known the date since October. It had been on the wall in the production office on a strip of coloured card since October, and he had walked past it perhaps four hundred times.
+Derek had known the date since October. It had been on the wall in the production office on a strip of colored card since October, and he had walked past it perhaps four hundred times.
 
 Wednesday went fine.
 
@@ -89,11 +89,11 @@ Mags looked at her.
 
 At two Mags cleared the floor.
 
-She did it without ceremony and without explaining it, the way she did everything: she said "let's go minimum," and Denny said it into the radio, and thirty-odd people put things down and walked out of the building into a car park in the cold, and what was left was Mags, Denny, Tomas on sound, Priya on the camera, Bo, and a woman at a counter with a phone against her ear.
+She did it without ceremony and without explaining it, the way she did everything: she said "let's go minimum," and Denny said it into the radio, and thirty-odd people put things down and walked out of the building into a parking lot in the cold, and what was left was Mags, Denny, Tomas on sound, Priya on the camera, Bo, and a woman at a counter with a phone against her ear.
 
 Derek stood up to go with them.
 
-"Not you," said Mags, without looking round.
+"Not you," said Mags, without looking around.
 
 He sat back down.
 
@@ -135,23 +135,23 @@ Neither of them said anything for a moment. A truck reversed somewhere behind th
 
 "Derek."
 
-"It's a *good scene*. I'm not being — " He stopped, and started again, and got it right the second time. "I wrote that in 2021 on a Tuesday and I didn't tell anybody I'd written it, and today a man said it out loud to forty people and one of them cried in a truck at lunchtime. That's — I don't have anything for that. It's the best day I've had in nine years and I've been standing next to a bin for an hour."
+"It's a *good scene*. I'm not being — " He stopped, and started again, and got it right the second time. "I wrote that in 2021 on a Tuesday and I didn't tell anybody I'd written it, and today a man said it out loud to forty people and one of them cried in a truck at lunchtime. That's — I don't have anything for that. It's the best day I've had in nine years and I've been standing next to a dumpster for an hour."
 
 Ha-eun looked at him.
 
 "Good," she said. "That's allowed, that one. You're allowed that one."
 
-She came to Alhambra at half nine and stood in the middle of the kitchen with her coat on until he took it off her.
+She came to Alhambra at nine-thirty and stood in the middle of the kitchen with her coat on until he took it off her.
 
 That is not a figure of speech. She stood there with her arms slightly out from her sides and waited, and he came over and undid the two buttons and took it off her shoulders and hung it on the hook, and she let him, and did not say thank you, and did not appear to think anything about it had happened.
 
-He turned the overhead off and left the two lamps on, because she had been under eleven hundred watts since half five in the morning.
+He turned the overhead off and left the two lamps on, because she had been under eleven hundred watts since five-thirty in the morning.
 
 He did not put anything on. She had had a man's voice in an earpiece for eleven hours and forty minutes, and he had watched her take it out at ten past four and put a hand over that ear for about nine seconds.
 
 He took the pin out of the back of her hair, which took a moment to find, and put it on the counter where she would see it in the morning, and did not say anything about it.
 
-Then she sat down on the floor by the cupboard.
+Then she sat down on the floor by the cabinets.
 
 "There's food."
 
@@ -171,7 +171,7 @@ So he took it away and put ice in it — two cubes, on the rice, at the edge, be
 
 She talked for a while about a woman at the airline, and then stopped in the middle of that and asked him what the thing on the shelf was, meaning the Morricone, which he had told her about twice. Then she said she was cold, and he got the blanket — the one from the yard in April, which is not the good one and is the one she wants — and she got under it and put her feet against his leg and left them there and said nothing about it.
 
-Then, at about half ten, from under the blanket, in a completely flat voice: "I want the noodles."
+Then, at about ten-thirty, from under the blanket, in a completely flat voice: "I want the noodles."
 
 "You've eaten."
 
@@ -225,11 +225,11 @@ When he got up to take the bowls away she made a noise of protest, because him g
 
 "*Sit down.*"
 
-He sat down. The bowls stayed on the floor until half one in the morning.
+He sat down. The bowls stayed on the floor until one-thirty in the morning.
 
 At about eleven she got into his lap.
 
-There was no lead-up to it and no comment about it. She got up off the floor, turned round, sat down across him with her knees over one of his legs and her face in his collarbone, and put one hand into the front of his shirt at the shoulder and shut it, and went quiet.
+There was no lead-up to it and no comment about it. She got up off the floor, turned around, sat down across him with her knees over one of his legs and her face in his collarbone, and put one hand into the front of his shirt at the shoulder and shut it, and went quiet.
 
 He put a hand on her back and left it there and did not move again.
 
@@ -243,7 +243,7 @@ He put a hand on her back and left it there and did not move again.
 
 ---
 
-At about half eleven she said, into his collarbone, without lifting her head:
+At about eleven-thirty she said, into his collarbone, without lifting her head:
 
 "Have you got a Five."
 
@@ -265,7 +265,7 @@ She did not move and she did not help him and it took him a while.
 
 "January."
 
-"...You've got it memorised."
+"...You've got it memorized."
 
 "Yes."
 

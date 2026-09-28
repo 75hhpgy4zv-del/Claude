@@ -77,7 +77,7 @@ Ha-eun sat on a bed in Hannam with a phone in her hands.
 
 "Eleven hours," she said.
 
-"They didn't have anything. They had *three hundred pixels*, Ha-eun-ah, and a person in Japan who was awake, and eleven hours." Ji-won's voice was doing something Ha-eun had heard maybe twice. "I have been in this industry for fourteen years and I have never seen it go that fast and I want you to understand that nobody made it go fast. Nobody organised it. It's not a campaign. It's four hundred thousand people each doing about nine seconds of work."
+"They didn't have anything. They had *three hundred pixels*, Ha-eun-ah, and a person in Japan who was awake, and eleven hours." Ji-won's voice was doing something Ha-eun had heard maybe twice. "I have been in this industry for fourteen years and I have never seen it go that fast and I want you to understand that nobody made it go fast. Nobody organized it. It's not a campaign. It's four hundred thousand people each doing about nine seconds of work."
 
 ---
 
@@ -231,7 +231,7 @@ At 4:40 she was in a van on the Gangbyeon expressway with her phone face-down on
 
 The post had four hundred and seven thousand likes.
 
-Underneath it, the top reply — pinned, because the account holder had pinned it — was a photograph somebody had taken of their own phone, of a used-book listing on a site she didn't recognise, for a paperback with an ugly cover.
+Underneath it, the top reply — pinned, because the account holder had pinned it — was a photograph somebody had taken of their own phone, of a used-book listing on a site she didn't recognize, for a paperback with an ugly cover.
 
 **$4.99. Good condition. Ships from Ohio.**
 

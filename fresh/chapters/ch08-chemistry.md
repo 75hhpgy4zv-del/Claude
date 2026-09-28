@@ -35,7 +35,7 @@ Ferreira looked at him for a moment.
 
 "That's fair."
 
-"It's *extremely* good business and I'd like it acknowledged," said Ferreira. "Go and be a film person. Come back in August. And take the sabbatical properly, because if I hear you've been marking essays from a soundstage I'll have Wendy come over there."
+"It's *extremely* good business and I'd like it acknowledged," said Ferreira. "Go and be a film person. Come back in August. And take the sabbatical properly, because if I hear you've been grading essays from a soundstage I'll have Wendy come over there."
 
 ---
 
@@ -107,7 +107,7 @@ His read was the most technically accomplished of the afternoon and Nadia wrote 
 
 He picked up his water and his phone and got as far as the door, and behind him Ha-eun said, "Derek, what's the thing about the thing," and Derek said, "You'll have to be more specific," and she said, "The *thing*, the — with the guy, the — " and made a shape with both hands, and Derek said, "Oh, the guy at the bar," and she said, "*The guy at the bar*, yes," and both of them laughed at something that had not been said out loud.
 
-Aaron Sedeño turned round in the doorway.
+Aaron Sedeño turned around in the doorway.
 
 "Sorry — is that the writer?"
 
@@ -173,7 +173,7 @@ She put her head back against the wall and looked at the ceiling for a second.
 
 "Okay?"
 
-"Okay, I'll stop." She got up off the floor in one motion and took the water bottle again on the way past, which was empty, which she discovered four steps later and turned round about, and he said "there's nothing in it," and she said "I know that *now,*" and put it on the table in front of Nadia with some ceremony.
+"Okay, I'll stop." She got up off the floor in one motion and took the water bottle again on the way past, which was empty, which she discovered four steps later and turned around about, and he said "there's nothing in it," and she said "I know that *now,*" and put it on the table in front of Nadia with some ceremony.
 
 Nadia wrote something down that was not about an actor.
 
@@ -191,7 +191,7 @@ Then he put the pages on his knee and said, "Can I say the thing?"
 
 "I know exactly what you're going to say and I would like it not said in a room with a camera in it."
 
-"It's not a *gossip* thing," Rahul said, wounded, entirely delighted. "It's a *craft* thing. I've been out there with four other blokes for six hours and we have all been trying to reverse-engineer something we can hear through a *door*, and I would like it noted that this is the hardest job I have ever been offered and I am going to take it."
+"It's not a *gossip* thing," Rahul said, wounded, entirely delighted. "It's a *craft* thing. I've been out there with four other guys for six hours and we have all been trying to reverse-engineer something we can hear through a *door*, and I would like it noted that this is the hardest job I have ever been offered and I am going to take it."
 
 "You're taking it."
 
@@ -201,7 +201,7 @@ He left.
 
 ---
 
-The room emptied in the usual stages. Yolanda went to make a call. The camera operator turned the tripod round and coiled cable. Somebody took the tape off the floor.
+The room emptied in the usual stages. Yolanda went to make a call. The camera operator turned the tripod around and coiled cable. Somebody took the tape off the floor.
 
 Nadia squared four pages of notes and did not move for a second.
 

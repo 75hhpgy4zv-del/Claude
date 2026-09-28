@@ -11,7 +11,7 @@ Derek got him a pass for the Thursday of week seven and did not tell him why tha
 
 "It is a *warehouse* in *Sun Valley* and there are men in there in shorts—"
 
-"I'm not going to be the guy in shorts," said Lucky, and turned up in a shirt with a collar.
+"I'm not going to be the guy in shorts," said Lucky, and showed up in a shirt with a collar.
 
 ---
 
@@ -27,7 +27,7 @@ Then he found the kitchen.
 
 "Somebody *matched your mug*," said Lucky, and then found the window, looked out of it at nine feet of painted Los Angeles, and had to be physically moved by a man with a cart.
 
-He asked about the tree at twenty past nine and was told it was in a container in Sylmar because it is a hero prop and cannot be binned until delivery, and that there is a woman whose job includes knowing where it is.
+He asked about the tree at nine-twenty and was told it was in a container in Sylmar because it is a hero prop and cannot be thrown out until wrap, and that there is a woman whose job includes knowing where it is.
 
 "This is the best place I've ever been," said Lucky.
 
@@ -37,7 +37,9 @@ They shot scene fifty-two at eleven and Derek did not say anything about it befo
 
 Fifty-two is Rajan's scene. It is four pages in a car outside a house in Silver Lake, and it is the one where the best friend says the thing, and it had been on the schedule since October and Derek had been looking at that date for six weeks.
 
-Lucky sat in a chair by the sound cart, next to Derek's chair, with a pass round his neck and a coffee he had been given by a runner and was extremely pleased about, and watched Anchor Shippey do it eleven times.
+Rajan was being played by Nicholas Shippey, who had flown in from London in September with four suits, a leather case the size of a paperback that turned out to hold cigars, and a pair of headphones he would not let the sound department touch. He was the best-dressed person on the stage every day of the shoot, including the days he was in costume, and he spoke in the kind of English that made the grips stand up a little straighter without knowing why.
+
+Lucky sat in a chair by the sound cart, next to Derek's chair, with a pass around his neck and a coffee he had been given by a production assistant and was extremely pleased about, and watched Nicholas Shippey do it eleven times.
 
 > "Are you being careful, or are you doing the thing where you decide up front that it won't work so you never have to find out?"
 
@@ -49,13 +51,13 @@ Lucky started at take three and did not stop.
 
 "Mm."
 
-"He's — Derek, he's doing it like he *prepared* it." He was whispering, badly, at a volume that carried about nine feet. "Nobody says a thing like that on purpose. That's a thing you say when it comes out of you sideways and then you feel like a prat about it."
+"He's — Derek, he's doing it like he *prepared* it." He was whispering, badly, at a volume that carried about nine feet. "Nobody says a thing like that on purpose. That's a thing you say when it comes out of you sideways and then you feel like an idiot about it."
 
 "Mm."
 
-"And he's *looking* at him," said Lucky, appalled. "You don't look at a bloke when you say that to him. You say that to a *windscreen.*"
+"And he's *looking* at him," said Lucky, appalled. "You don't look at a guy when you say that to him. You say that to a *windshield.*"
 
-Denny turned round.
+Denny turned around.
 
 Lucky held both hands up in surrender and was quiet for approximately forty seconds.
 
@@ -65,7 +67,7 @@ Lucky held both hands up in surrender and was quiet for approximately forty seco
 
 "Lucky."
 
-"It's the *pause* before it, he's putting a pause in, like he's — " Lucky did an impression of a man weighing something " — like he's *arrived* at it. You don't arrive at it. You've been chewing it for four months and then it comes out in a car park because you've run out of ways not to say it."
+"It's the *pause* before it, he's putting a pause in, like he's — " Lucky did an impression of a man weighing something " — like he's *arrived* at it. You don't arrive at it. You've been chewing on it for four months and then it comes out in a parking lot because you've run out of ways not to say it."
 
 "That's a very specific note."
 
@@ -77,7 +79,7 @@ Lucky held both hands up in surrender and was quiet for approximately forty seco
 
 ---
 
-Mags called cut on eleven and said "that's lovely, moving on," and Anchor shook the operator's hand, which he did every time, and went off toward the trucks.
+Mags called cut on eleven and said "that's lovely, moving on," and Nicholas shook the operator's hand, which he did every time, and went off toward the trucks.
 
 Lucky watched him go.
 
@@ -85,15 +87,25 @@ Lucky watched him go.
 
 "He is."
 
-"He's *very* good-looking, Derek." He turned round in the chair. "Look at what's happening at the shoulders. I've got a shirt like that at home and it does not do that."
+"He's *very* good-looking, Derek." He turned around in the chair. "Look at what's happening at the shoulders. I've got a shirt like that at home and it does not do that."
+
+"His is made for him."
+
+"*Made* for him?"
+
+"In London. By a man who measured him."
+
+Lucky looked at the trucks for a while.
+
+"I'm going to need a minute with that," he said.
 
 ---
 
-Ha-eun came off at half twelve with forty minutes and Derek stood up.
+Ha-eun came off at twelve-thirty with forty minutes and Derek stood up.
 
 "This is Lucky," he said.
 
-And Suresh Pillai — who had spent four hours being wildly, publicly, unguardedly himself in front of a hundred and forty strangers — stood up, put his hand out, said, "Suresh, hi, lovely to meet you," and then did absolutely nothing else at all.
+And Suresh Pillai — who had spent four hours being wildly, publicly, unguardedly himself in front of a hundred and forty strangers — stood up, put his hand out, said, "Suresh, hi, nice to meet you," and then did absolutely nothing else at all.
 
 No pause. No second look. No small recalibration.
 
@@ -103,7 +115,7 @@ No pause. No second look. No small recalibration.
 
 She sat on the arm of Derek's chair, because it was the nearest thing to sit on, and stayed there thirty-five minutes.
 
-He asked her about the hours, and then the food, and then, with real concern, about the cold, because he had been in there four hours and could not get over it. He found out she had been ill since Tuesday and was more scandalised about it than anybody on the production. She asked what he did and he said "I'm on the lottery," and she said "sorry?", and Derek watched his oldest friend explain to the biggest pop star in the world that he was a man in a commercial.
+He asked her about the hours, and then the food, and then, with real concern, about the cold, because he had been in there four hours and could not get over it. He found out she had been sick since Tuesday and was more scandalized about it than anybody on the production. She asked what he did and he said "I'm on the lottery," and she said "sorry?", and Derek watched his oldest friend explain to the biggest pop star in the world that he was a man in a commercial.
 
 "What's the worst place anyone's ever done it to you?"
 
@@ -111,15 +123,17 @@ He asked her about the hours, and then the food, and then, with real concern, ab
 
 ---
 
-Anchor came over at ten past one.
+Nicholas came over at one-ten.
 
-He came over to Derek, because Derek was the writer and there was a line in fifty-two he had wanted to ask about since Tuesday, and he arrived saying, "Sorry — can I steal you for a second, it's the *find out* at the end, I keep landing on *out* and I think it's—"
+He came over to Derek, because Derek was the writer and there was a line in fifty-two he had wanted to ask about since Tuesday, and he arrived already talking, in the voice.
+
+"Forgive me — might I borrow you for a moment? It's the *find out* at the end. I keep landing on *out*, and I rather think it wants—"
 
 And then he stopped.
 
 And he looked past Derek's shoulder.
 
-"...Sorry," said Anchor Shippey. "Sorry. *Sorry.* Are you—"
+"...I'm so sorry," said Nicholas Shippey. "I do beg your pardon. Are you—"
 
 ---
 
@@ -129,13 +143,19 @@ And he looked past Derek's shoulder.
 
 ---
 
-It came out of him at a volume that turned about forty people on a live soundstage, and Anchor had both hands on top of his head, and Lucky rose from a folding chair like a man being knighted.
+It came out of him at a volume that turned about forty people on a live soundstage, and Nicholas had both hands on top of his head, and Lucky rose from a folding chair like a man being knighted.
 
 "You're the *lottery guy.*"
 
 "I'm the lottery guy."
 
-"You're the *lottery guy.* Mate. *Mate.*" Anchor had gone entirely to pieces. "I lived on Fletcher for two years — you were on the billboard by the 2, the one with the — you've got the finger, you do the—"
+"*Mate.*"
+
+Derek heard it go.
+
+He had spent seven weeks listening to that voice, because it was his job to listen to voices saying his sentences, and he knew every inch of it: the clipped consonants, the vowels that sounded like they'd been to a good school and then a better one. And in the space of one word, all of it left. The vowels flattened and widened and went somewhere a long way from London, somewhere with mud and weather and not much money, and what was standing in front of Lucky was not Nicholas Shippey at all.
+
+"*Mate.* You're the lottery guy. I lived on Fletcher two years, my first two years out here, before anybody knew who I was. You were on the billboard by the 2. The one with the — you've got the finger, you do the—"
 
 "I do the finger."
 
@@ -149,13 +169,25 @@ He did the finger.
 
 Derek Kolluri stood on Stage 4 of a film adaptation of a novel he had written, and watched an actor who had been cast in it, who had flown in from London, who had that morning performed four pages of dialogue Derek wrote about a friendship Derek invented, lose his entire composure over a man from a lottery commercial.
 
-"—no, because my flatmate used to *do it*, he'd do it when the bins needed taking out, he'd stand at the door and go — sorry. Sorry, I'm being a lot."
+"—no, because me and my roommate used to *do it*, he'd do it when the trash needed taking out, he'd stand in the door and go — sorry. Sorry, I'm being a lot."
 
 "You're not being a lot."
 
-"I'm being a lot. I've been up since four." Anchor had his hand on his own chest. "Can I get a photo? Is that — sorry, is that all right?"
+"I'm being a lot. I've been up since four." He had a hand on his own chest. "Can I get a photo? Is that — sorry, is that all right?"
 
-"It's your lucky day," said Lucky.
+"What's your name?" said Lucky.
+
+"Nicholas," he said, and then stopped, and something went across his face that Derek had never seen on it in seven weeks.
+
+"Anchor," he said. "My friends call me Anchor."
+
+"*Anchor?*"
+
+"My dad thought it was funny. My dad thought a lot of things were funny." He was still pink. "Nobody over here calls me it."
+
+Derek had worked with this man for seven weeks. He had heard the director call him Nicholas, and the first AD call him Mr. Shippey on the radio, and the call sheet call him NICHOLAS SHIPPEY in capital letters every morning. He had never once heard the other name. He did not think anybody in the building had.
+
+"Anchor," said Lucky, delighted. "It's your lucky day, Anchor."
 
 ---
 
@@ -163,11 +195,11 @@ They took the photograph. Then Anchor took another one for somebody called Priye
 
 It took eleven minutes.
 
-At some point during it Anchor turned to Derek and said, very kindly, "Sorry, mate, you were saying about the line," and Derek said, "It's fine, do it later," and Anchor said "cheers" and went straight back to Lucky.
+At some point during it Anchor turned to Derek, the vowels mostly back where they had been, and said, very kindly, "Forgive me — you were saying about the line," and Derek said, "It's fine, do it later," and Anchor said "*cheers*" in the other voice without noticing, and went straight back to Lucky.
 
 ---
 
-"Right," said Lucky, in the visitor car park, at half three, with the pass still round his neck.
+"Right," said Lucky, in the visitor lot, at three-thirty, with the pass still around his neck.
 
 "Don't."
 
@@ -183,11 +215,15 @@ At some point during it Anchor turned to Derek and said, very kindly, "Sorry, ma
 
 "I'm aware."
 
-"And he knew *me*," said Lucky. He was not gloating. That was the extraordinary part and it was somehow worse: he had gone quiet and reverent about it, like a man describing a religious experience. "He'd never heard of you. He's *played* you — no, sorry, he's played the *friend* of you — and he could not pick you out of a queue, and he's had a *poster* of me on the 2."
+"And he knew *me*," said Lucky. He was not gloating. That was the extraordinary part, and it was somehow worse: he had gone quiet and reverent about it, like a man describing a religious experience. "He'd never heard of you. He's *played* you — no, sorry, he's played the *friend* of you — and he could not pick you out of a lineup, and he's had a *poster* of me on the 2."
 
 "It's not a poster, it's a—"
 
-"It's a *billboard*, Derek, that's *worse*," said Lucky, and got in his car, and put the window down. "I've had the best day of my life and it's got nothing to do with you."
+"It's a *billboard*, Derek, that's *worse*," said Lucky. "And he told me his real name. Seven weeks you've been in there with him. Did you know his real name?"
+
+"No."
+
+"*I* know his real name," said Lucky, and got in his car, and put the window down. "I've had the best day of my life and it's got nothing to do with you."
 
 ---
 
@@ -215,7 +251,7 @@ She got there at eleven and he opened the door and she looked straight past his 
 
 He opened the door.
 
-She came in, took her shoes off, walked past him into the kitchen, got a plate down out of the cupboard she now knew, and said, without turning round:
+She came in, took her shoes off, walked past him into the kitchen, got a plate down out of the cabinet she now knew, and said, without turning around:
 
 "Sorry — is he still here? Because I've got a *pen*."
 
@@ -229,7 +265,7 @@ She asked, over food, whether it would be possible to get a photograph.
 
 "Not of him," she said. "Of Lucky. With Lucky. I don't want one with him, I want one with — " and then she could not finish it, because she had started laughing at her own bit, which she did constantly and which was the least professional thing about her.
 
-At about half eleven she stood up, put one hand out, pointed it at him, and did the finger.
+At about eleven-thirty she stood up, put one hand out, pointed it at him, and did the finger.
 
 "Don't."
 
@@ -255,13 +291,13 @@ At about half eleven she stood up, put one hand out, pointed it at him, and did 
 
 She calmed down eventually and got onto the floor next to him with the plate.
 
-"He was *very* funny about the actor, though. Before." She had her feet against his leg. "He watched the whole scene and complained for an hour and then the man turned round and knew who he was and he forgot every single thing he'd said."
+"He was *very* funny about the actor, though. Before." She had her feet against his leg. "He watched the whole scene and complained for an hour and then the man turned around and knew who he was and he forgot every single thing he'd said."
 
 "He did that in nine seconds."
 
 "He did it in about *four*—"
 
-"He said the man was doing it wrong," said Derek, "because you don't look at somebody when you say a thing like that. You say it to a windscreen."
+"He said the man was doing it wrong," said Derek, "because you don't look at somebody when you say a thing like that. You say it to a windshield."
 
 Ha-eun stopped with the plate halfway up.
 
@@ -275,7 +311,7 @@ Ha-eun stopped with the plate halfway up.
 
 He put his plate down on the floor.
 
-"He said it to me in a car in 2019," he said. "Different words. Worse words — he got about halfway through it and then he called me a stupid bastard and then he had to look out of the window." He had his hands on his knees. "I've never told him I put it in. And he sat next to me for eleven takes today and gave me a note about how nobody says a thing like that on purpose."
+"He said it to me in a car in 2019," he said. "Different words. Worse words — he got about halfway through it and then he called me a stupid bastard and then he had to look out the window." He had his hands on his knees. "I've never told him I put it in. And he sat next to me for eleven takes today and gave me a note about how nobody says a thing like that on purpose."
 
 Ha-eun did not say anything.
 

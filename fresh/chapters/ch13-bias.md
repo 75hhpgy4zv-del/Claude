@@ -5,7 +5,7 @@ She asked him on a Tuesday, on the floor of her trailer, at ten past one in the 
 
 There had been a two-hour hold. He was in the chair with his shoes off and she had eaten most of his lunch and was lying along the length of the bench seat with her head against his shin, doing nothing, which was the single most common thing that happened between them in those eleven weeks and which never appeared on a call sheet.
 
-She got hold of his ankle and moved his leg about four inches, so that the outside of the left calf came round toward the light.
+She took hold of his ankle and moved his leg about four inches, so that the outside of the left calf came around toward the light.
 
 말해줘 say it back… 아침은 너무 멀어
 
@@ -87,7 +87,7 @@ Ha-eun looked at him for a long moment with her chin up, which meant she had dec
 
 Music Bank was the Thursday and she flew out Tuesday night.
 
-Four people spent nine days arranging it and it cost the production about eleven thousand dollars in schedule, and she apologised for it twice, badly, to Mags, who said "it's three days, I've lost a lead to a *hernia*," and never mentioned it again.
+Four people spent nine days arranging it and it cost the production about eleven thousand dollars in schedule, and she apologized for it twice, badly, to Mags, who said "it's three days, I've lost a lead to a *hernia*," and never mentioned it again.
 
 She had been awake twenty-two hours by the time they got her to KBS. Live band, which she had asked for, which had been a mistake, which she would do again. Two costume changes. A camera rehearsal at four and a real one at six and a hold at seven-forty because somebody's in-ears had gone.
 
@@ -109,7 +109,7 @@ Then somebody said, "Ha-eun-sunbaenim—"
 
 ---
 
-Danielle had got about two feet past and turned round and come back.
+Danielle had gotten about two feet past and turned around and come back.
 
 She had her hands slightly out in front of her, not quite reaching, the way you do when you are not sure whether you are allowed, and she was pink, and she was talking before she had finished arriving.
 
@@ -187,7 +187,7 @@ Ha-eun sat in the back of a car on the way to the hotel and watched eleven secon
 
 Her shoulders were up by her ears. The bow was a woman reading an instruction manual. And at second nine she did the thing with her jaw that she does at her sister-in-law.
 
-She rang him at half eleven.
+She called him at eleven-thirty.
 
 ---
 
@@ -221,7 +221,7 @@ Ha-eun put her head back against the seat.
 
 "She was very sweet."
 
-"She turned round in a corridor and came *back.*"
+"She turned around in a corridor and came *back.*"
 
 "She did."
 
