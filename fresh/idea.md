@@ -218,3 +218,10 @@ Fanny's coda.
 - *The Touge*: learns to ask consent before putting people into the world; learns not to lie to protect someone.
 - *Paradise*: stops needing the verdict. He drops the Levels and moves from an external to an internal locus of
   control, while staying relational and accountable.
+
+## Two separate tracks
+- **The tattoo world** (*The Touge*, *Paradise*): Derek Kolluri writes exactly three novels. *80/20* and *50/50* are
+  one complete story in two parts (the private trial of the relationship, then the public one). Then his third
+  novel, the man left on his wedding day who becomes a farmer (working title: *Fertile Soil*).
+- **The *80/20* series** (Maya and Derek Krishnamurthy): a separate five-book plan with a spin-off and a legacy
+  sequel. Not canon in the tattoo world.
