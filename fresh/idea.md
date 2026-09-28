@@ -187,3 +187,8 @@ Public vs. private is the surface; consent is the spine. Every layer asks who ge
 - **Vijay:** gives consent, sort of, in "You Made Me Older" (Ch 29).
 - **Ananya:** made to look good, and she barely appears in either book. Consent by protection and absence.
 - **Ha-eun:** asked outright (Ch 33); answers yes, publicly, at the premiere.
+
+## *50/50* (the book-within-the-book), full draft in `50-50/`
+Engagement at the Taiwanese place, the ring leak, the Archivist, Jacob's deck, the VHS tape sent to the school,
+two weddings (private in the kitchen, public with fans chosen by a transparent lottery), the Gee dance, and
+Fanny's coda.
