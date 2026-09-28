@@ -1,6 +1,44 @@
 # Chapter Thirty-Two
 ## Five Chairs
 
+The lights went down at two minutes past eight, and twenty thousand people who were already standing stood up.
+
+Derek had not known a noise could do that. It came from all sides and from underneath, up through the concrete into his shins, and it kept rising after he had assumed it would level off, and then rose again. Beside him Marisol had both arms in the air and was screaming a name, and it was not the name he would have screamed, and he found he did not mind at all.
+
+She had given him a lightstick in the queue. She had brought two in case one died, and one had not died, and at about half past four she had pressed the spare into his hand without asking whether he wanted it and shown him which button to press. It was on now. So were twenty thousand others, all of them the same color, all of them changed at the same second, which he found out later was done from a laptop at the sound desk and which at the time seemed to him the most unreasonable thing he had ever seen.
+
+The card was inside his sweatshirt, flat against his stomach. It had been there since the hotel. In the queue Marisol had asked what was on it and he had said it was for one person, and she had looked at him for a while and then offered him half a sandwich.
+
+Then the five of them were on the stage, and he could not see her.
+
+He could see five people at the far end of a very long room, small and bright and moving, and above them a screen the size of a building with one of them on it forty feet high. The one on the screen was her. It was her face, and it was doing the thing with the eye, the thing Mags had spent a week in a makeup trailer in Sun Valley taking off her because it was on every album cover she had ever made, and it was aimed perfectly at a camera. He watched it on the screen with everybody else in the building. He had not done that in a year and a half.
+
+She was good. He had known she was good. He had watched four months of this tour on his phone, forty seconds at a time, in bed, at the kitchen counter, in the chair by the window with the lights off, and he had known it the way you know a fact. It was different to stand in the noise of it. Marisol sang every word of every song in a language she did not speak, and did not get one wrong that he could hear.
+
+At about twenty past eight the music stopped and the five of them came to the front of the stage to talk, and Ha-eun said something in Tagalog that somebody had plainly taught her that afternoon. She got it slightly wrong. Twenty thousand people forgave her at the tops of their voices. After that she went on in English, and in Korean, and he did not take in much of what she said, because he was listening to her voice instead. It was the one from the press conferences. He had heard it on his laptop a hundred times and he had heard the other one down a telephone at three in the morning, and it was strange to be in a room with the first one and not the second.
+
+He stopped watching the screen after that. He watched the small real person at the end of the room instead, which was harder, because she did not hold still. In the fifth song there was a sequence where all five of them went down to the floor and came back up, and she was the last one up. It was by about a quarter of a second. Nobody in the building would have seen it. He saw it, and he stood there with a lightstick in his hand and did nothing with it.
+
+At a few minutes past nine the running order brought her to the ramp.
+
+It ran out from the side of the main stage along the edge of the floor, a long raised walkway at about head height, and it passed within a few yards of row eleven. The song was a slow one. She came down it alone, singing, with Miru two or three steps behind her, and she read the signs.
+
+She had always read the signs. It was one of the things people loved her for. There were hundreds of them along the ramp, LED boards and glitter and laminated photographs and a bedsheet with a proposal on it, and she read them in order, left side and right side, and laughed at some and made a heart with her hands at one and did not miss a line of the song.
+
+He took the card out from under his sweatshirt. It was a piece of plain white card, not quite letter size, with his own handwriting on it in black marker, and it was the least impressive sign within fifty feet. He held it at about chest height with both hands. Marisol looked over and saw the back of it and looked away again.
+
+At eleven minutes past nine she read it.
+
+He saw it happen at the same moment as everybody else in the building, because the camera was on her face and not on the card. Her mouth went on for about half a word after she had stopped singing it. Then it stopped. Her face did something that had never been on an album cover in its life, forty feet high, in front of twenty thousand people, and she put her hand over her mouth.
+
+The track kept going. Her line came around in it, and when she did not sing it the crowd did. It was that kind of song, and it was that kind of crowd; they had been singing along with her all night and now they sang her part for her, all of it, twenty thousand people carrying the line while she stood on the ramp with her head down and her hand over her mouth and cried.
+
+He counted. He could not have stopped himself.
+
+On the screen he watched her take one breath, and then another, and take the hand down, and bring her chin up. Six seconds. Then she was singing again, on the beat, exactly where the song was, and walking, and the ramp took her back toward the stage.
+
+---
+
 Marisol had hold of his arm and did not appear to know it.
 
 She had taken it at eleven minutes past nine, when the woman on the ramp stopped singing, and she had kept it through the rest of the song and the noise after the song and the long strange minute in which twenty thousand people worked out, in about nine languages, what they had just watched. It was a nurse's grip. It sat on the inside of his elbow, over the place you would go for a vein, and it was not going to move until somebody told her what was happening.
@@ -193,7 +231,7 @@ Derek thought about it. He had had fourteen hours on a plane to think about it a
 
 It was quiet for a while after that.
 
-Then Miru spoke for the first time. She was still by the door, and she did not come any closer. She had seen it on a screen forty feet high at eleven minutes past nine, and she said it now out loud for the first time, carefully, and got the vowels slightly wrong.
+Then Miru spoke for the first time. She was still by the door, and she did not come any closer. She had been two steps behind Ha-eun on the ramp at eleven minutes past nine and had read it over her shoulder, and she said it now out loud for the first time, carefully, and got the vowels slightly wrong.
 
 "Who is Gracie?"
 
