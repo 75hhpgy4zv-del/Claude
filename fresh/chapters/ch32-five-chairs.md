@@ -9,7 +9,7 @@ She had taken it at eleven minutes past nine, when the woman on the ramp stopped
 
 "That was the sign."
 
-"That was *you*." She turned him by the arm, which was not difficult, and looked at the card in his other hand. He had lowered it to about the level of his knee as soon as it was over and was holding it now the way you hold something you have been caught with. She read it upside down. Then she tilted her head and read it the right way up.
+"That was *you*." She turned him by the arm, which was not difficult, and looked at the card in his other hand. He had lowered it to about the level of his knee as soon as it was over and was holding it now with the writing turned in against his leg. She read it upside down. Then she tilted her head and read it the right way up.
 
 "It's *you're*," she said. "With the apostrophe."
 
@@ -21,7 +21,7 @@ Marisol looked at him for a while, and then at the card, and then at the ramp, w
 
 The next song had started. He knew it, which surprised him for about a second and then didn't. The stage lit up end to end and the five of them came back out and did what they did, and it was very good, and he did not take in much of it, because he was watching one of them not look at row eleven.
 
-She did not look at it again. He had not expected her to. What he had not budgeted for was how hard it would be to watch. Every time the choreography brought her to their end of the arena her eyes went to row ten, or to row twelve, or up into the second tier, with the exactness of somebody who knew where the one place in the building was that she could not afford to look, and was very good at not looking at it. She had had nine years of practice at that. She had had four months of practice at him.
+She did not look at it again. He had not expected her to. What he had not budgeted for was how hard it would be to watch. Every time the choreography brought her to their end of the arena her eyes went to row ten, or to row twelve, or up into the second tier, and never once, not even by accident, to eleven. She had had nine years of practice at that. She had had four months of practice at him.
 
 Then the five of them came down the long walkway onto the small stage in the middle of the floor, about forty feet from where he stood, and he saw her face without a screen in front of it for the first time since the sixteenth of April.
 
@@ -33,7 +33,7 @@ It was not a lot. It was in the jaw and at the wrists, and in the way the costum
 
 The man took hold of his other arm during the encore.
 
-He was local, young, in a black polo shirt with SECURITY across the back, and he said "Sir, with me, please," in the voice of somebody who had been told to be polite about it, and Derek went. He had assumed since about eleven minutes past nine that this would happen. Somebody on a camera crew, or somebody in an office, would have looked at the man with the sign, and then looked at him again, and found him — three hundred pixels, an author photo, a man the internet had already decided about — and he would be walked out of a side door for being what they had decided. He had thought about it on the plane, somewhere over the Pacific, and concluded it was a price he could pay.
+He was local, young, in a black polo shirt with SECURITY across the back, and he said "Sir. With me, please, sir," which was one more *sir* than the sentence needed, and Derek went. He had assumed since about eleven minutes past nine that this would happen. Somebody on a camera crew, or somebody in an office, would have looked at the man with the sign, and then looked at him again, and found him — three hundred pixels, an author photo, a man the internet had already decided about — and he would be walked out of a side door for being what they had decided. He had thought about it on the plane, somewhere over the Pacific, and concluded it was a price he could pay.
 
 Marisol had not thought about it on the plane.
 
@@ -87,7 +87,7 @@ The first one in came in backward. She was talking to somebody over her shoulder
 
 "There's a man in here," said Yeong-ju.
 
-She said it in English, to him, as though he might want to know.
+She said it in English, to him, and then looked back over her shoulder to see if anybody else had noticed.
 
 The second one arrived behind her and looked past her shoulder, and said something in Korean, back down the corridor, not loud. It meant, as near as Derek could get it: *who put a man in our room.*
 
@@ -95,7 +95,7 @@ He did not say anything. He was not sure yet that he was supposed to understand 
 
 "I did," said the third one.
 
-She had come in under So-hyun's arm, and she was the smallest of them and still had her mic on, and she said it in Korean and then, turning to him, in English, with the careful consonants of somebody who had learned most of her English from a page.
+She had come in under So-hyun's arm, and she was the smallest of them and still had her mic on, and she said it in Korean and then, turning to him, in English, hitting every consonant.
 
 "I told Jae-sik oppa. When she — on the ramp." Nari looked at So-hyun, who was staring at her, and then back at Derek. "I read your book," she said. "With a dictionary."
 
@@ -111,17 +111,17 @@ The fourth came last. She was the tallest, and the only one of them not talking,
 
 He heard her before he saw her.
 
-Not her voice. Ba-da's, in the corridor, fast, a list of something, and a man's voice under it, and a pause in the list, and then nothing. Then the doorway, and Miru stepping aside out of it, which she did without looking around, the way you step out of a doorway you have been standing in for somebody.
+Not her voice. Ba-da's, in the corridor, fast, a list of something, and a man's voice under it, and a pause in the list, and then nothing. Then Miru stepped out of the doorway without looking around.
 
 Ha-eun came in with a towel around her neck and the wire of her earpiece hanging down her front, and Ba-da behind her with a tablet, and Jae-sik behind Ba-da.
 
-She saw Miru first. He watched her see it — Miru, standing in the wrong place, where Miru did not stand — and stop, the way you stop on a stair you've miscounted. Then she followed where Miru was not looking, and saw him.
+She saw Miru first. He watched her see it — Miru, standing in the wrong place, where Miru did not stand — and stop, with one foot not quite down. Then she followed where Miru was not looking, and saw him.
 
 He had thought, on the plane, a good deal about what she might say. He had done the thing he does, which is to build several versions of a moment in advance so that whichever one turns up has already been survived once. He had got to nine versions somewhere over Guam and stopped, because nine was a lot.
 
 She did not say any of them.
 
-She crossed the room — five steps; he counted afterward — and got into his lap as though it were the only chair in the building, sideways, with her knees over one of his legs and her face in his neck, and put her arms around him, and cried.
+She crossed the room — five steps; he counted afterward — and got into his lap, sideways, with her knees over one of his legs and her face in his neck, and put her arms around him, and cried.
 
 Nobody moved.
 
@@ -137,7 +137,7 @@ He did not explain any of it. Nobody asked him to.
 
 He became aware, a while after that, of being watched by people who were good at it. Nari had sat down on the floor to undo her boots and had stopped with one lace pulled halfway out. So-hyun had been taking out her earrings in the mirror and had one out and one in, and was looking at him in the mirror instead of at herself, and did not seem to have noticed that her hand had stopped.
 
-So-hyun took the other earring out and put both of them in a small dish. Then she took the chair with her name on it, turned it around to face him, and sat on it the wrong way with her arms folded along the back, and began without any preamble at all, in the manner of somebody who has been conducting this interview in her head since she walked in and has only now found a chair to do it from.
+So-hyun took the other earring out and put both of them in a small dish. Then she took the chair with her name on it, turned it around to face him, and sat on it the wrong way with her arms folded along the back, and had her first question out before the chair had stopped moving.
 
 "Who paid?"
 
@@ -173,11 +173,11 @@ He turned his left arm over. He did it carefully, because Ha-eun's weight was on
 
 So-hyun looked at it for a long time. She did not read Japanese. Nari, on the floor, leaned over to see, and did, and said nothing, and sat back.
 
-So-hyun said something to her then, in Korean, low and fast, the way you say something across a person you assume cannot follow it. It meant: *don't say anything about the company.*
+So-hyun said something to her then, in Korean, low and fast, over the top of his head. It meant: *don't say anything about the company.*
 
 "I won't either," said Derek, in Korean.
 
-It was not good Korean. It was the Korean of someone who had learned it from a textbook and one other person, which meant it was grammatically careful, a little too polite, and about fifteen years out of date. So-hyun's head came up. Nari put her hand over her mouth.
+It was not good Korean. He had learned it from a textbook and from one other person, and it came out grammatically careful, a little too polite, and about fifteen years out of date. So-hyun's head came up. Nari put her hand over her mouth.
 
 Against his neck, Ha-eun laughed.
 
@@ -185,7 +185,7 @@ It was one breath, and nobody could have heard it, but he felt it and so did eve
 
 So-hyun looked at the ceiling for a moment.
 
-"What do you want," she said finally, in English, as if the Korean had not happened.
+"What do you want," she said finally. In English.
 
 Derek thought about it. He had had fourteen hours on a plane to think about it and had not managed to, and he found he knew now.
 
@@ -193,7 +193,7 @@ Derek thought about it. He had had fourteen hours on a plane to think about it a
 
 It was quiet for a while after that.
 
-Then Miru spoke for the first time. She was still by the door, and she did not come any closer, and she said it to him as if it were a word she had read on a card from a long way away and had been carrying around the arena for an hour, which was the case.
+Then Miru spoke for the first time. She was still by the door, and she did not come any closer. She had seen it on a screen forty feet high at eleven minutes past nine, and she said it now out loud for the first time, carefully, and got the vowels slightly wrong.
 
 "Who is Gracie?"
 
@@ -207,7 +207,7 @@ Ha-eun did not lift her face. One hand came out of the too-long sleeve and went 
 
 ---
 
-Nobody had eaten. Yeong-ju discovered this from the table by the wall and announced it to the room in the tone of somebody reporting a fire.
+Nobody had eaten. Yeong-ju discovered this at the table by the wall and turned around with the container of oranges already in her hand and said so, loudly enough that Miru looked back from the door.
 
 "Nobody ever eats the fruit," said Nari, from the floor.
 
@@ -243,9 +243,9 @@ Nari said something from the floor in Korean, very quietly and not to him, which
 
 "Not to us," said Nari.
 
-The hand came out again. Yeong-ju filled it faster this time, and then did not put the container down, but stood holding it in both hands like somebody who has been given a job and does not intend to be relieved of it.
+The hand came out again. Yeong-ju filled it faster this time, and then did not put the container down, but stood holding it in both hands, and when Nari reached up from the floor for it she moved it out of reach.
 
-It was Yeong-ju who went back first. She did it after the fourth segment, sideways, in the tone of somebody mentioning a piece of trivia, which Derek had learned over the years was how people tend to tell you the things they have never told anybody outside the family.
+It was Yeong-ju who went back first. She did it after the fourth segment, without looking at anybody, to the orange container.
 
 "She had a rice cooker," she said. "In the dorm. Under the bottom bunk, where you weren't allowed. 2012."
 
@@ -255,7 +255,7 @@ It was Yeong-ju who went back first. She did it after the fourth segment, sidewa
 
 "I heard about it."
 
-"We ate it at two in the morning," Yeong-ju went on, to Derek, as though Nari had not spoken, "all of us under the blankets, with the seaweed out of the packets. It was always cold. You couldn't heat anything. If it smells, they know."
+"We ate it at two in the morning," Yeong-ju went on, to Derek, over the top of her, "all of us under the blankets, with the seaweed out of the packets. It was always cold. You couldn't heat anything. If it smells, they know."
 
 The rice on the table had been sitting there since before the encore, in a foil tray with the lid peeled back, and it was about the temperature of the room. Derek looked at it and did not say anything.
 
@@ -267,7 +267,7 @@ It seemed only fair to give them something back.
 
 The four of them turned and looked at him. He moved his hand under her knees about half an inch, so the weight sat better, and went on. "At home, I mean. If there's a floor available, she'll eat on it. And she doesn't stir anything. If it needs stirring you have to do it before it gets to her."
 
-Nari laughed once into both hands without making a sound. So-hyun did not laugh. She was quiet for long enough that he thought she was not going to say anything at all, and when she did she said it slowly, as though she were checking it against something she already had.
+Nari laughed once into both hands without making a sound. So-hyun did not laugh. She was quiet for long enough that he thought she was not going to say anything at all, and when she did, she did not look at him. She looked at the sleeve the hand had gone back into.
 
 "She stirs mine. In the van, every time. She takes it out of my hand and stirs it and gives it back to me."
 
@@ -293,15 +293,15 @@ Yeong-ju had picked up a slice of mango from the plate by then, on the principle
 
 "It's in the book."
 
-Nari thought about that for about four seconds. Then she said "*the refrigerator*," in English, in a voice of enormous discovery, and had to put her forehead down on her knees.
+Nari thought about that for about four seconds. Then she sat bolt upright and said "*the refrigerator*," in English, and had to put her forehead down on her knees.
 
 ---
 
 She went to sleep about twenty minutes after that.
 
-He knew before anybody else could see it, because her hand let go of his shirt. The next time the hand came out of the sleeve it did not finish the trip. It stopped on his knee, palm up, empty, and stayed there, and her whole weight arrived in his lap at once, all of it, the way weight arrives when somebody stops holding any part of themselves up.
+He knew before anybody else could see it, because her hand let go of his shirt. The next time the hand came out of the sleeve it did not finish the trip. It stopped on his knee, palm up, empty, and stayed there, and her whole weight came down into his lap at once, so that he had to move his feet to take it.
 
-Yeong-ju took a coat off the rail. It was long and black with SONDER down the back in white letters, and she put it over the two of them and tucked it in at Ha-eun's side with two fingers, and then stood there with her hands at her sides, as if she had been doing something with them for an hour and had run out.
+Yeong-ju took a coat off the rail. It was long and black with SONDER down the back in white letters, and she put it over the two of them and tucked it in at Ha-eun's side with two fingers, and then stood there with her hands at her sides, and put them in her pockets, and took them out again.
 
 Nobody said anything.
 
@@ -311,7 +311,7 @@ Nothing happened.
 
 So-hyun looked at her for a moment longer. Then she sat back in her chair.
 
-The room got very quiet after that, in the particular way a room goes quiet when everybody in it is being careful of the same thing. Derek had spent a good part of his life in rooms where he did not know what to say, and he had generally got through them by asking somebody a question. It was the teaching, or it was just him. Either way it went off now before he could stop it.
+The room got very quiet after that. Nobody moved a chair. When Nari's boot slid on the floor she caught it with her hand. Derek had spent a good part of his life in rooms where he did not know what to say, and he had generally got through them by asking somebody a question. It was the teaching, or it was just him. Either way it went off now before he could stop it.
 
 "How long have you all been — " he said to Nari, and found about halfway through that he did not know how the sentence ended.
 
@@ -337,7 +337,7 @@ Yeong-ju found one last orange segment at the bottom of the container and ate it
 
 "Yes," said Yeong-ju, and did not say whose. So-hyun glanced at her, briefly, and then away, and that was the end of the cat.
 
-It was Nari, in the end, who asked the real question. She did it in English, carefully, the way she had said *dictionary*.
+It was Nari, in the end, who asked the real question. She did it in English, one careful word at a time.
 
 "Why is she so thin?"
 
@@ -367,7 +367,7 @@ Miru let go of Ha-eun's hand and put it back under the coat. Then she went and s
 
 Ji-won knocked at eight minutes to eleven.
 
-She came in and shut the door behind her and took the room in, all of it, from the coat to the empty orange container to the strip of mic tape on the table, and she did not say anything about any of it. She was holding a phone in one hand and a folder in the other and she looked, Derek thought, like a woman who had been waiting a long time to be allowed to know something and had finally been allowed.
+She came in and shut the door behind her and took the room in, all of it, from the coat to the empty orange container to the strip of mic tape on the table, and she did not say anything about any of it. She was holding a phone in one hand and a folder in the other and she did not ask who he was.
 
 "Mr. Kolluri," she said.
 
@@ -389,7 +389,7 @@ Ji-won turned.
 
 "Then we sit in them." So-hyun stood up. "She doesn't have to say anything. We'll say it. We'll sit either side of her and she can be tired and we'll talk."
 
-Ji-won looked at her for a long time. It was the look, Derek thought, of somebody who has been waiting for somebody else to say exactly that, and had not been in a position to say it herself.
+Ji-won looked at her for a long time. Then she put the folder down on the table next to the fruit and did not pick it up again.
 
 "Twenty minutes," said Ji-won.
 
