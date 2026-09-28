@@ -197,5 +197,10 @@ Fanny's coda.
   partner validates the other. At the private wedding, Maya validates Derek (Kitty Fantastico: "He gives
   everything a real name," which he overhears from the sink). At the public wedding, Derek validates Maya
   (the balcony: "You are him," answering *80/20* Ch 3's Murphy line).
+  These are the two biggest moments of the book, not small ones. The balcony answers Maya's greatest fear (that the
+  constructed version replaced her), from the only person who can say it definitively, right after he hit rock
+  bottom because of her world. The Fanny conversation is Maya realizing, mid-sentence, who Derek truly is: he saw
+  a background character on a screen and thought she was too good to live only there, so he gave her a real life.
+  That's how he fell in love with her.
 - **"You are him."** Callback to the first balcony (*80/20* Ch 3): Murphy's wife "doesn't get him back. She gets
   the thing that looks like him." Maya is Murphy, the person who survived the machine, not the copy.
