@@ -157,3 +157,11 @@ The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
 
 ## Book vs. real life (continued)
 - Vijay is 45 in real life and 52 in *80/20*.
+
+## Derek's blind spot: consent
+Derek's flaw is not that he writes instead of talking. It's that he doesn't realize that when he puts real people
+into his fiction at the depth he does ("I can't write what I haven't had"), he still needs their consent to put
+them into the world. That is exactly what he argued Maya owed book-Derek in *80/20* ("I want to be there for
+the deciding"). The people around him are all, in their own ways, asking for consent over their personas.
+Giving Ha-eun the *50/50* manuscript (Ch 33) is the first time he gets it right: "You're not in the book, but
+you can be seen in it, so only you can say whether it can be seen by others."
