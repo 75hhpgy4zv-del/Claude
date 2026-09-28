@@ -192,3 +192,10 @@ Public vs. private is the surface; consent is the spine. Every layer asks who ge
 Engagement at the Taiwanese place, the ring leak, the Archivist, Jacob's deck, the VHS tape sent to the school,
 two weddings (private in the kitchen, public with fans chosen by a transparent lottery), the Gee dance, and
 Fanny's coda.
+- **Two weddings, two validations.** Each wedding mirrors one partner. The private one (kitchen) is Derek's: inward,
+  like his depression. The public one (lottery guests) is Maya's: outward, like her streaming. In each, one
+  partner validates the other. At the private wedding, Maya validates Derek (Kitty Fantastico: "He gives
+  everything a real name," which he overhears from the sink). At the public wedding, Derek validates Maya
+  (the balcony: "You are him," answering *80/20* Ch 3's Murphy line).
+- **"You are him."** Callback to the first balcony (*80/20* Ch 3): Murphy's wife "doesn't get him back. She gets
+  the thing that looks like him." Maya is Murphy, the person who survived the machine, not the copy.
