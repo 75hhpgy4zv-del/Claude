@@ -55,18 +55,16 @@ She had taken it at eleven minutes past nine, when the woman on the ramp stopped
 
 It had not been true since the sixteenth of June. He let it stand.
 
-Marisol looked at him for a while, and then at the card, and then at the ramp, where there was nobody at all now, and he watched her decide not to ask him anything else. He thought it was probably the kindest thing a stranger had done for him all year.
+Marisol looked at him for a while, and then at the card, and then at the ramp, where there was nobody at all now, and he watched her decide not to ask him anything else.
+The next song started. The stage lit up end to end and the five of them came back out, and he watched one of them not look at row eleven.
 
-The next song had started. He knew it, which surprised him for about a second and then didn't. The stage lit up end to end and the five of them came back out and did what they did, and it was very good, and he did not take in much of it, because he was watching one of them not look at row eleven.
-
-She did not look at it again. He had not expected her to. What he had not budgeted for was how hard it would be to watch. Every time the choreography brought her to their end of the arena her eyes went to row ten, or to row twelve, or up into the second tier, and never once, not even by accident, to eleven. She had had nine years of practice at that. She had had four months of practice at him.
+She did not look at it again. Every time the choreography brought her to their end of the arena her eyes went to row ten, or to row twelve, or up into the second tier, and never once, not even by accident, to eleven. She had had nine years of practice at that.
 
 Then the five of them came down the long walkway onto the small stage in the middle of the floor, about forty feet from where he stood, and he saw her face without a screen in front of it for the first time since the sixteenth of April.
 
 She had lost weight.
 
-It was not a lot. It was in the jaw and at the wrists, and in the way the costume sat on her shoulders, and it was not a thing anybody in that building would have noticed who had not spent a year and a half looking at that jaw from much closer than forty feet. Twenty thousand people were watching her face. He suspected he was the only one of them doing arithmetic.
-
+It was not a lot. It was in the jaw and at the wrists, and in the way the costume sat on her shoulders, and it was not a thing anybody in that building would have noticed who had not spent a year and a half looking at that jaw from much closer than forty feet.
 ---
 
 The man took hold of his other arm during the encore.
@@ -91,7 +89,7 @@ They went along row eleven, and up the aisle, and through a door with a sign on 
 
 At the end of the third corridor there was a door with a laminated sheet taped to it, and outside the door there was a man.
 
-He was very large and wore a plain black T-shirt, and Derek had seen him three times in Los Angeles: once at the far edge of a parking structure in Burbank, once across a restaurant, once through the tinted window of a car idling at a curb. He had never spoken to him. He understood now that this had been the point of him.
+He was very large and wore a plain black T-shirt, and Derek had seen him three times in Los Angeles: once at the far edge of a parking structure in Burbank, once across a restaurant, once through the tinted window of a car idling at a curb. He had never spoken to him.
 
 The man looked at Derek. He looked at the young man in the polo shirt, who let go of Derek's arm and went away with obvious relief. Then he opened the door.
 
@@ -109,7 +107,7 @@ In front of the mirrors there were five chairs.
 
 They were ordinary folding chairs, the padded kind, and each one had a strip of masking tape across the back with a name on it in black marker. MIRU. NARI. SO-HYUN. YEONG-JU. HA-EUN. They were in English, in the same hand, which meant somebody had written them for a local crew who could not read Hangul, and had been careful about the spacing.
 
-On a whiteboard by the door somebody had written the running order in two alphabets, and somebody else, in the bottom corner, in blue, had drawn a cat. It was a good cat, done with a lot of care. It had a speech bubble. He could read the Korean in the speech bubble and he did not understand it, because it was a joke, and he was not in it.
+On a whiteboard by the door somebody had written the running order in two alphabets, and somebody else, in the bottom corner, in blue, had drawn a cat. It was a good cat, done with a lot of care. It had a speech bubble. He could read the Korean in the speech bubble and did not understand it.
 
 He did not sit in any of the five chairs, because they had names on them. There was a sixth by the door, a hard plastic stacking chair with nothing written on it, and he sat in that.
 
@@ -117,7 +115,7 @@ He did not touch the fruit. It wasn't his.
 
 The encore came through the wall as bass and very little else. He could feel the kick drum through the legs of the chair. He could not hear her.
 
-He sat there for three songs, which was about eleven minutes, with his hands on his knees and the card face down on the floor between his feet, and he thought about nothing much. He thought about a hundred and twenty pages at the bottom of a bag in a hotel room four kilometers away, under two shirts. He thought about the fact that he had not eaten since Tokyo and did not feel hungry. He thought about Marisol's face when he said *Bing*, and decided he would not know what that had been, and was all right with it.
+He sat there for three songs, which was about eleven minutes, with his hands on his knees and the card face down on the floor between his feet, and he thought about nothing much. He thought about a hundred and twenty pages at the bottom of a bag in a hotel room four kilometers away, under two shirts. He thought about the fact that he had not eaten since Tokyo and did not feel hungry. He thought about Marisol's face when he said *Bing*.
 
 Then the bass stopped, and there was the roar, very far off and long, and then a quiet that went on for a while, and then the corridor filled up with feet.
 
@@ -155,10 +153,6 @@ Ha-eun came in with a towel around her neck and the wire of her earpiece hanging
 
 She saw Miru first. He watched her see it — Miru, standing in the wrong place, where Miru did not stand — and stop, with one foot not quite down. Then she followed where Miru was not looking, and saw him.
 
-He had thought, on the plane, a good deal about what she might say. He had done the thing he does, which is to build several versions of a moment in advance so that whichever one turns up has already been survived once. He had got to nine versions somewhere over Guam and stopped, because nine was a lot.
-
-She did not say any of them.
-
 She crossed the room — five steps; he counted afterward — and got into his lap, sideways, with her knees over one of his legs and her face in his neck, and put her arms around him, and cried.
 
 Nobody moved.
@@ -171,9 +165,7 @@ There was a strip of skin-colored tape at her right temple holding the wire of t
 
 Then her hand closed on the back of his T-shirt, all of it at once, a fistful, hard. He put two fingers between her shoulder blades and tapped, twice. The hand eased.
 
-He did not explain any of it. Nobody asked him to.
-
-He became aware, a while after that, of being watched by people who were good at it. Nari had sat down on the floor to undo her boots and had stopped with one lace pulled halfway out. So-hyun had been taking out her earrings in the mirror and had one out and one in, and was looking at him in the mirror instead of at herself, and did not seem to have noticed that her hand had stopped.
+Nari had sat down on the floor to undo her boots and had stopped with one lace pulled halfway out. So-hyun had been taking out her earrings in the mirror and had one out and one in, and was looking at him in the mirror instead of at herself, and did not seem to have noticed that her hand had stopped.
 
 So-hyun took the other earring out and put both of them in a small dish. Then she took the chair with her name on it, turned it around to face him, and sat on it the wrong way with her arms folded along the back, and had her first question out before the chair had stopped moving.
 
@@ -203,8 +195,7 @@ She looked at him to see if that was true, and seemed to decide that it was, and
 
 "Was."
 
-He watched her put that next to the photograph, and next to June, and he watched her decide not to ask. It was very fast. He thought she would have been good at his job.
-
+He watched her put that next to the photograph, and next to June, and he watched her decide not to ask.
 "The photograph," she said instead.
 
 He turned his left arm over. He did it carefully, because Ha-eun's weight was on that side, and held it out with the inside of the forearm up, under the bad light, so she could see the writing.
@@ -219,13 +210,11 @@ It was not good Korean. He had learned it from a textbook and from one other per
 
 Against his neck, Ha-eun laughed.
 
-It was one breath, and nobody could have heard it, but he felt it and so did everybody else in the room, because they had all been watching her back for a sign of anything and that was the first one.
+It was one breath, and nobody could have heard it, but he felt it, and so did everybody else in the room.
 
 So-hyun looked at the ceiling for a moment.
 
 "What do you want," she said finally. In English.
-
-Derek thought about it. He had had fourteen hours on a plane to think about it and had not managed to, and he found he knew now.
 
 "For her to eat something," he said.
 
@@ -261,7 +250,7 @@ Yeong-ju held up a segment.
 
 "Nobody eats on the plane," said Yeong-ju, and put it in his mouth, and he let her, because the alternative was a discussion and discussions made noise.
 
-She fed him two more. He had not known he was hungry. Somewhere around the third it occurred to him that he was eating fruit he had decided an hour ago was not his, and that nobody in the room thought anything of it, and he filed that and went on chewing.
+She fed him two more. He had not known he was hungry. Somewhere around the third it occurred to him that he was eating fruit he had decided an hour ago was not his, and that nobody in the room thought anything of it.
 
 So-hyun had watched all of this from her chair with her arms along the back of it, and when Yeong-ju turned to get another segment she asked him, quite quietly, the question she seemed to have been holding onto since he had answered her last one.
 
@@ -373,7 +362,7 @@ Yeong-ju found one last orange segment at the bottom of the container and ate it
 
 "Is it anybody's cat in particular?"
 
-"Yes," said Yeong-ju, and did not say whose. So-hyun glanced at her, briefly, and then away, and that was the end of the cat.
+"Yes," said Yeong-ju, and did not say whose. So-hyun glanced at her, briefly, and then away.
 
 It was Nari, in the end, who asked the real question. She did it in English, one careful word at a time.
 
@@ -386,9 +375,6 @@ He could have answered her. He knew the dates. He knew the night she had stopped
 Nari looked at him. He looked back.
 
 "I'm sorry," he said. "You'll have to ask her."
-
-He waited to see what that would cost him.
-
 Yeong-ju was looking at Ha-eun asleep under the coat. She said something in Korean, very low, and it took him a second to get it, because it wasn't said to anybody in the room.
 
 *Of course she didn't tell us.*
@@ -397,7 +383,7 @@ So-hyun got up and turned her chair around the right way and sat in it properly,
 
 "Sorry. Before," she said. "The questions." And then, still to her hands: "We just needed to be sure that she was okay."
 
-Derek nodded. It seemed the only thing to do with it.
+Derek nodded.
 
 Miru let go of Ha-eun's hand and put it back under the coat. Then she went and shut the door, which had been open an inch the whole time, and came back across the room, and sat down in the chair with her name on it for the first time since she had come in.
 
@@ -413,7 +399,7 @@ She came in and shut the door behind her and took the room in, all of it, from t
 
 She looked at Ha-eun, asleep. Her face did something for about a second and a half, and then it did nothing.
 
-"The press conference is live," she said, to the room, in Korean. "It was announced in June. Forty minutes. The broadcasters are already in." She looked back at Ha-eun. "It has to be her."
+"They're in," she said to So-hyun, in Korean. "Both networks." She did not look at Ha-eun for the next part. "They were promised her in June."
 
 Nobody said anything.
 
@@ -451,7 +437,7 @@ Miru was the one who woke her. She crouched in front of the chair, and put one h
 
 Ha-eun lifted her head for the first time since she had come in.
 
-Her face was a mess. She looked at Miru, and then she looked at him, from about four inches away, for what he thought afterward was probably three seconds, and she did not say anything, and she did not need to. Then she let Miru take her by both hands and stand her up.
+Her face was a mess. She looked at Miru, and then she looked at him, from about four inches away, for what he thought afterward was probably three seconds, and she did not say anything. Then she let Miru take her by both hands and stand her up.
 
 Ba-da had a jacket ready, a good one, black, cut for cameras. Ha-eun put it on over his sweatshirt. The gray cuffs came down past the black ones over her hands, and nobody made her push them back.
 
@@ -481,7 +467,7 @@ The room waited.
 
 And then she stopped, and sat back, and did not say anything else.
 
-Nobody filled it. He watched the room fail to understand, for about five seconds, that nobody was going to, and then begin to. The silence went on. Two hundred and thirty thousand people watched it go on. He had seen her in a great many rooms and had never once seen her let a silence stand in a room she was responsible for. She let this one stand. She sat in it, with her hands in her lap and her own cuffs over his, and let it be exactly as long as it was.
+Nobody filled it. The moderator looked down the table at the other four, and none of them looked back at him. Ha-eun sat with her hands in her lap and the gray cuffs over them and did not lean in again, and in the corner of the feed the viewer count went on climbing.
 
 Then the moderator said something, and there was another question, and So-hyun answered it.
 
@@ -491,8 +477,8 @@ At the end they all stood and bowed, the five of them together, and the room app
 
 It was the first thing he had heard her say all night.
 
-The channel cut, a minute later, to a different feed: somebody outside the arena gates, livestreaming on a phone in the rain, the picture jumping, the sound mostly traffic and people saying her name. The gates opened. A black van came through them, slowly, with the crowd pressed back on both sides.
+A minute later the channel switched to a girl outside the gates, filming on her phone in the rain. Mostly it was umbrellas. Then a black van came out through the gates, slowly, and the umbrellas moved back for it, and as it swung past her the phone caught the driver's window.
 
-For about a second, as it turned under the streetlight, he saw the driver.
+It was Jae-sik.
 
-Jae-sik had both hands on the wheel and was looking straight ahead. Then the van pulled out onto the road and was gone.
+The van went out onto the highway. The girl kept filming the wet road where it had been, and after a while Derek put the phone face down on the bed.
