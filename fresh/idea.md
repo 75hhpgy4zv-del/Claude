@@ -180,3 +180,10 @@ Public vs. private is the surface; consent is the spine. Every layer asks who ge
 - Lucky: a persona he agreed to (the billboard), until scale takes it past what he agreed to (Deepa's phone, the door).
 - Ji-won: "I'm *telling* you I'm not asking." Protection by agreement.
 - Possible reading of the titles: *80/20* is a lopsided share; *50/50* is two people each deciding their half.
+
+## How Derek gets consent from the others
+- **Lucky:** says "put me in the book properly." In *50/50*, Rajan is reoriented much closer to Lucky, and Preethi
+  (modeled on Deepa) gets more texture.
+- **Vijay:** gives consent, sort of, in "You Made Me Older" (Ch 29).
+- **Ananya:** made to look good, and she barely appears in either book. Consent by protection and absence.
+- **Ha-eun:** asked outright (Ch 33); answers yes, publicly, at the premiere.
