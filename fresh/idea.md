@@ -165,3 +165,7 @@ them into the world. That is exactly what he argued Maya owed book-Derek in *80/
 the deciding"). The people around him are all, in their own ways, asking for consent over their personas.
 Giving Ha-eun the *50/50* manuscript (Ch 33) is the first time he gets it right: "You're not in the book, but
 you can be seen in it, so only you can say whether it can be seen by others."
+- **The ending is her consent.** At the premiere, Ha-eun interrupts Derek's interview, gushes about *50/50* and announces
+  she has optioned it. That is her public answer to the question the manuscript asked in Ch 33: yes, she can be
+  seen in it, and she'll make sure people see her. The ending is a triumph because the consent is hers and it
+  is public. It also reverses 7.4(b): for once, she decides what happens when her private life becomes known.
