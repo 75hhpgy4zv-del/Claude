@@ -212,3 +212,9 @@ Fanny's coda.
   *Paradise* answers him: the grandfather lived that line his whole life and never received the verdict. The
   school and the church were named for him after he died.
 - *Paradise* also names where the relationship was at the end of *The Touge*: the happy ending the book opens inside and then loses.
+
+## Derek's arc across the series (his relationship to other people's interpretation of him)
+- *80/20*: hides from it (opt-in frames, the podcast, the classroom), then lets one person in.
+- *The Touge*: learns to ask consent before putting people into the world; learns not to lie to protect someone.
+- *Paradise*: stops needing the verdict. He drops the Levels and moves from an external to an internal locus of
+  control, while staying relational and accountable.
