@@ -139,3 +139,7 @@ The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
 - **The shelf.** In *80/20*, the steelbooks are alphabetical, and "out of order" is the warning sign. Derek's real shelf is
   in the order he first saw the films. Ha-eun knows the real order and fixes the set (Ch 21). She credits "the
   book, chapter nine" as cover, and nobody checks.
+- **"It's in the book."** Almost nobody in Derek's life read *80/20* (friends, family), even though it was a decent,
+  well-reviewed book. Ha-eun is the only one who cared. When she reveals something she can only know from dating him,
+  she says "it's in the book." It's a perfect cover, because nobody knows the book well enough to prove her wrong.
+  (Ch 21: the shelf, "chapter nine." It's not in chapter nine.) After the scandal, *everyone* reads the book.
