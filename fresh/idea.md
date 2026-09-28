@@ -81,6 +81,16 @@ Everyone is judged by their public record. That is why the tattoos matter.
   complaining because he's a wiseass.
 - Anchor turns out to be a MASSIVE Lucky fan, and when Lucky finds out, he forgets all his complaints.
 
+### What Lucky and Anchor are for: scale
+Both represent the role that **scale** plays in the gap between the public self and the real one.
+Every character sits at a different point on the ladder of fame, and the higher they sit,
+the more the public version crowds out the private one:
+- Derek: 87 listeners
+- Lucky: local, a state lottery billboard
+- Anchor: working actor
+- Maya (in *80/20*): 11 million subscribers
+- Ha-eun: global idol
+
 ## Derek's 12 tattoos
 | # | Location | Language | Quote |
 |---|----------|----------|-------|
