@@ -206,4 +206,8 @@ Fanny's coda.
   the thing that looks like him." Maya is Murphy, the person who survived the machine, not the copy.
 
 ## Titles
-- Frame novel: *The Touge*. Book 3: *The Tender*.
+- Frame novel: *The Touge*. Book 3: *Paradise*.
+- *Paradise* comes from tattoo #5 (Fitzgerald, *This Side of Paradise*): "It was always the becoming he dreamed of,
+  never the being." In *The Touge* Ch 29, Vijay asks why Derek still has it on him, and Derek says "I don't know."
+  *Paradise* answers him: the grandfather lived that line his whole life and never received the verdict. The
+  school and the church were named for him after he died.
