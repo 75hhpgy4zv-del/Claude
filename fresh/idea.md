@@ -132,7 +132,7 @@ The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
 - Derek is not renewed on June 16; returns keys June 19. Hid a Five from Ha-eun (June 23 to July 2).
 - Ha-eun is 27, on a world tour; no day off since April 16.
 - The sequel: started July 11, 14 chapters / ~120 pages by Aug 12. There are also 406 abandoned pages from before.
-  Publisher contact: Priyanka at Aperture. Halina: (role TBD). Ha-eun read *80/20* in 2022 and optioned it.
+  Publisher contact: Priyanka at Aperture. Halina: the film's editor (edit room off Olive; assistant Pen). Ha-eun read *80/20* in 2022 and optioned it.
 - The sequel's Maya is 31, an only child, and her mother drives over from Alhambra.
 
 ## Book vs. real life (deliberate differences)
@@ -143,3 +143,17 @@ The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
   well-reviewed book. Ha-eun is the only one who cared. When she reveals something she can only know from dating him,
   she says "it's in the book." It's a perfect cover, because nobody knows the book well enough to prove her wrong.
   (Ch 21: the shelf, "chapter nine." It's not in chapter nine.) After the scandal, *everyone* reads the book.
+
+## From Ch 18, 26, 27, 29
+- Ch 18, "7.4(b)": the company routes around Ha-eun; Ji-won moved; Jang Se-ri hands her the contract; the clause is
+  joint and several across the members; the 2012 signature at twelve. Bandmates: Miru, Nari (23, mother's shop in Daegu), So-hyun.
+- Ch 26, "They Learned To Read": strangers reading the Levels aloud; the 900-word essay on his marriage; "Is she in it";
+  the Three promise from Fukuoka.
+- Ch 27, "Certificated Personnel": non-renewal June 16; Room 14; Adaeze's letter; Ferreira (first name Marcia) in the lot;
+  Hector and the plywood; the June 23 call where he lies.
+- Ch 29, "You Made Me Older": Vijay (45; the book made him 52) reads the book and his only note is his age.
+- Derek's real ex-wife: Ananya (Priya in *80/20*). Derek's mother: Amma.
+- *80/20* has sold 420,000 copies since the scandal.
+
+## Book vs. real life (continued)
+- Vijay is 45 in real life and 52 in *80/20*.
