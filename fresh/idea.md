@@ -211,3 +211,4 @@ Fanny's coda.
   never the being." In *The Touge* Ch 29, Vijay asks why Derek still has it on him, and Derek says "I don't know."
   *Paradise* answers him: the grandfather lived that line his whole life and never received the verdict. The
   school and the church were named for him after he died.
+- *Paradise* also names where the relationship was at the end of *The Touge*: the happy ending the book opens inside and then loses.
