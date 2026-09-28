@@ -122,3 +122,15 @@ The full *80/20* manuscript (Chapters 1–29) is in `80-20/`.
 - The actor playing Lucky's character (Rajan) is **Anchor Nicholas Shippey**. He is billed as Nicholas Shippey; "Anchor" is the farm name his parents gave him, and he reveals it only when he meets Lucky ("My friends call me Anchor").
 - Director: Mags. Casting: Nadia. 1st AD: Denny. Ha-eun's manager: Ji-won. Company comms: Bluehour.
 - Ha-eun and Lucky spend time together only during the set visit.
+- Ch 20, "It's Your Lucky Day": Ferreira's lateral offer; Lucky found and made famous; the Ralphs clip; "You wrote a whole guy."
+- Ch 21, "Stage 4": first day of principal photography; the shelf; the hip; take fourteen.
+- Ch 33, "Room 214": Bocaue; the Five he hid; the list used against itself; fourteen chapters of the new book; "Gracie."
+
+## More established facts (from Ch 20, 21, 33)
+- Director: Marguerite "Mags" Osei, 44. Set dresser: Chelsea.
+- Lucky and Derek met at 19 (working at a TV store in West Covina); friends 16 years. Lucky and Deepa's daughter: Meena, 9.
+- Derek is not renewed on June 16; returns keys June 19. Hid a Five from Ha-eun (June 23 to July 2).
+- Ha-eun is 27, on a world tour; no day off since April 16.
+- The sequel: started July 11, 14 chapters / ~120 pages by Aug 12. There are also 406 abandoned pages from before.
+  Publisher contact: Priyanka at Aperture. Halina: (role TBD). Ha-eun read *80/20* in 2022 and optioned it.
+- The sequel's Maya is 31, an only child, and her mother drives over from Alhambra.
