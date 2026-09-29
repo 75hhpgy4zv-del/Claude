@@ -260,39 +260,35 @@ So-hyun had watched all of this from her chair with her arms along the back of i
 
 Nari looked at So-hyun. So-hyun did not look back.
 
-Before anybody could decide what to do with that, the hand came out of his sleeve. It came out blind, past his shoulder, the way it had gone to Miru, and it stopped in the air beside Yeong-ju and turned itself over, palm up, and waited there. Yeong-ju looked at it, and then at him.
+Before anybody could decide what to do with that, Yeong-ju went back to the oranges. She fed him the rest of the container one segment at a time, and the sleeve against his chest stayed where it was, and nothing came out of it.
 
-"She wants one," he said.
-
-Yeong-ju put a segment of orange in it. The hand closed and went back inside the sleeve, and after a moment there was a small wet sound against his collarbone of somebody eating an orange with her eyes shut.
-
-Nari said something from the floor in Korean, very quietly and not to him, which was *she asked*, and Derek, who had stopped pretending some time ago, told her that she did that.
-
-"Not to us," said Nari.
-
-The hand came out again. Yeong-ju filled it faster this time, and then did not put the container down, but stood holding it in both hands, and when Nari reached up from the floor for it she moved it out of reach.
-
-She went on like that, one for the hand and one for Derek, until the container was empty. Then she picked a slice of mango off the plate, on the principle that fruit was fruit, and put it in Derek's mouth.
+When the container was empty she picked a slice of mango off the plate, on the principle that fruit was fruit, and put it in Derek's mouth.
 
 Ha-eun kicked him.
 
 It was the heel of one foot, on the shin, hard enough that he felt it through his jeans, and it was not an accident. Yeong-ju stepped back.
 
+Then the hand came out of the sleeve. It came out blind, past his shoulder, and stopped in the air beside Yeong-ju and turned itself over, palm up, and waited there.
+
 "She wants one," said Derek, with his mouth full. "She's obsessed with mango."
 
-Yeong-ju looked at him, and then at the plate, and when the hand came out of the sleeve she put a slice of mango in it. The hand went back in. After a second there was a sound against his neck, small and high and pleased with itself, and Nari, on the floor, put both hands over her mouth.
+Yeong-ju looked at the hand, and then at him, and put a slice of mango in it. The hand went back in. After a second there was a sound against his neck, small and high and pleased with itself.
 
 "Since when?" said Yeong-ju.
 
 "That's my fault."
 
-Nari looked at him for a moment, and then at the plate of mango, and did not ask.
+Nari looked at him for a moment, and then at the plate of mango, and did not ask. She said something else instead, in Korean, very quietly and not to him, which was *she asked*, and Derek, who had stopped pretending some time ago, told her that she did that.
 
-"She *kicks* you," she said instead.
+"Not to us," said Nari.
+
+The hand came out again. Yeong-ju filled it faster this time, and then brought the whole plate over and did not put it down, and when Nari reached up from the floor for a slice she moved it out of reach.
+
+"She *kicks* you," said Nari.
 
 "Mostly she argues with me."
 
-Yeong-ju brought the whole plate over and held it where the hand could find it. She did not take her eyes off the sleeve.
+Yeong-ju held the plate where the hand could find it and did not take her eyes off the sleeve.
 
 "What else?" she said.
 
