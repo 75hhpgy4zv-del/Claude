@@ -230,7 +230,9 @@ Miru looked at the back of Ha-eun's head for a long moment, at the gray sweatshi
 
 "Hi, Gracie," she said.
 
-Ha-eun did not lift her face. One hand came out of the too-long sleeve and went back, blind, over her own shoulder, into the air, and stayed there, open, until Miru came across the room and took it.
+Ha-eun did not lift her face. She turned it further into his neck, and her hand found the back of his T-shirt again and took a fistful of it. Derek put two fingers between her shoulder blades and tapped, twice.
+
+Miru did not say it again. She stayed where she was, by the door.
 
 ---
 
@@ -389,7 +391,7 @@ So-hyun got up and turned her chair around the right way and sat in it properly,
 
 Derek nodded.
 
-Miru let go of Ha-eun's hand and put it back under the coat. Then she went and shut the door, which had been open an inch the whole time, and came back across the room, and sat down in the chair with her name on it for the first time since she had come in.
+At the door, Miru looked down the corridor one more time. Then she shut it, which she had not done all night, and came back across the room, and sat down in the chair with her name on it for the first time since she had come in.
 
 ---
 
