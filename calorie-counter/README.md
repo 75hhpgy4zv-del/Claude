@@ -47,6 +47,8 @@ Tap **+**:
 - **Favorites**: your starred meals plus anything you've logged at least twice in the last 30 days.
 - **Log weight**: record a weigh-in for any date.
 
+The photo buttons always work. If the screen you're using can't send photos to Claude, the app keeps your photo and asks you to describe the food, and Claude estimates from the description. If Claude isn't connected at all, you enter the calories yourself. **Settings › Claude connection** shows what your current screen supports.
+
 If you close the sheet while a photo is being analyzed, the result waits on the home screen. Tap any logged meal to see its details, star it as a favorite, delete it, or log it again today. Logging from the favorites row on Home shows an Undo button for a few seconds.
 
 ## Water

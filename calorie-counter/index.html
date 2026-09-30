@@ -143,6 +143,7 @@ h2 { font-size: 19px; font-weight: 700; letter-spacing: -.01em; }
 .btn:disabled { opacity: .45; cursor: default; }
 .field { display: flex; flex-direction: column; gap: 6px; min-width: 0; flex: 1 1 120px; }
 .field label { font-size: 13px; font-weight: 600; color: var(--ink2); }
+.stack > .field, .sheet > .field { flex: none; }
 .input { width: 100%; border: 0; border-radius: var(--r-sm); background: var(--sunk); padding: 13px 14px; font-size: 16px; outline: none; }
 .input:focus { box-shadow: inset 0 0 0 1.5px var(--ink); }
 textarea.input { resize: vertical; min-height: 80px; }
@@ -645,6 +646,7 @@ ${SHAPE}`;
     } catch (e) {
       if (S.draft !== d) return;
       d.phase = d.items.length ? "review" : "input";
+      if (e && e.code === "images_unavailable" && withImage) { canImages = false; S.imagesRefused = true; d.noImages = true; d.error = ""; renderAll(); return; }
       if (!(e && e.code === "cancelled")) d.error = errText(e);
       if (e && (e.code === "not_granted" || e.code === "sampling_disabled")) sample = null;
     }
@@ -695,15 +697,15 @@ ${SHAPE}`;
     return [
       sheetHead("Log", dayName(S.day)),
       el("div", { class: "addgrid" },
-        tile("camera", "Scan food", ai && canImages ? "Photo of your plate" : "Needs Claude photos", () => { S.photoKind = "photo"; S.sheet = null; renderSheet(); $("photoInput").click(); }, !(ai && canImages)),
-        tile("tag", "Scan label", ai && canImages ? "Nutrition facts panel" : "Needs Claude photos", () => { S.photoKind = "label"; S.sheet = null; renderSheet(); $("photoInput").click(); }, !(ai && canImages)),
-        tile("text", "Describe food", ai ? "Type what you ate" : "Needs Claude", () => startDraft("describe"), !ai),
+        tile("camera", "Scan food", "Photo of your plate", () => { S.photoKind = "photo"; S.sheet = null; renderSheet(); $("photoInput").click(); }),
+        tile("tag", "Scan label", "Nutrition facts panel", () => { S.photoKind = "label"; S.sheet = null; renderSheet(); $("photoInput").click(); }),
+        tile("text", "Describe food", "Type what you ate", () => startDraft(ai ? "describe" : "quick")),
         tile("bolt", "Quick add", "Enter known calories", () => startDraft("quick")),
         tile("book", "Saved recipe", S.recipes.length ? `${S.recipes.length} saved` : "None saved yet", () => { S.pq = ""; openSheet({ type: "pick", mode: "log" }); }),
         tile("import", "Import recipe", ai ? "From a caption or screenshot" : "Type one in", () => startImport()),
         tile("star", "Favorites", S.favorites.length ? `${S.favorites.length} saved` : "And your usuals", () => openSheet({ type: "favs" })),
         tile("scale", "Log weight", "Track your trend", () => openSheet("weight"))),
-      !ai ? el("p", { class: "note" }, "Photo, text and recipe estimates run on your Claude plan and need this page open in Claude. Quick add, saved recipes and weight work anywhere.") : null,
+      !ai ? el("p", { class: "note" }, "Claude isn't connected in this view, so photos are saved but you'll enter calories yourself. Open this page in the Claude app or at claude.ai while signed in to get estimates. Settings shows what's connected.") : null,
     ];
   }
 
@@ -730,6 +732,20 @@ ${SHAPE}`;
         el("div", { class: "sheetfoot" }, el("button", { class: "btn line", onclick: () => ctl && ctl.abort() }, "Stop"))];
     }
 
+    if (d.phase === "input" && (d.kind === "photo" || d.kind === "label") && d.manual) return quickForm(d, "Enter calories", photoEl);
+    if (d.phase === "input" && (d.kind === "photo" || d.kind === "label") && (!sample || d.noImages)) {
+      const lab = d.kind === "label";
+      const manual = el("button", { class: "small muted", style: "align-self:flex-start;text-decoration:underline", onclick: () => { d.manual = true; renderSheet(); } }, "Enter the calories myself");
+      if (!sample) return [sheetHead(lab ? "Scan label" : "Scan food", dayName(d.day)), photoEl,
+        el("p", { class: "note" }, "Claude isn't connected in this view, so it can't look at your photo. Your photo is kept with the meal; enter the numbers yourself for now. To get estimates, open this page in the Claude app or at claude.ai while signed in."),
+        el("div", { class: "sheetfoot" }, el("button", { class: "btn ghost", onclick: () => $("photoInput").click() }, "Retake"), el("button", { class: "btn", onclick: () => { d.manual = true; renderSheet(); } }, "Enter calories"))];
+      return [sheetHead(lab ? "Scan label" : "Scan food", dayName(d.day)), photoEl,
+        el("p", { class: "note" }, `This view can't send photos to Claude, so Claude will estimate from what you type instead. Your photo is still saved with the meal.`),
+        el("div", { class: "field" }, el("label", { for: "noteIn" }, lab ? "Type the product name and the numbers from the label" : "What's on your plate? Include rough amounts."),
+          el("textarea", { class: "input", id: "noteIn", placeholder: lab ? "e.g. Kind bar, 200 cal, 6 g protein, 16 g carbs, 15 g fat per bar, had 1" : "e.g. grilled chicken breast, a cup of rice, roasted broccoli with olive oil", oninput: (e) => { d.note = e.target.value; } }, d.note)),
+        d.error ? el("p", { class: "err" }, d.error) : null, manual,
+        el("div", { class: "sheetfoot" }, el("button", { class: "btn", onclick: () => { if (d.note.trim()) { d.desc = d.note.trim(); runEstimate(textPrompt(d.desc), false, "quick"); } else $("noteIn").focus(); } }, d.error ? "Try again" : "Estimate"))];
+    }
     if (d.phase === "input" && (d.kind === "photo" || d.kind === "label")) {
       const lab = d.kind === "label";
       return [sheetHead(lab ? "Scan label" : "Scan food", dayName(d.day)), photoEl,
@@ -749,7 +765,12 @@ ${SHAPE}`;
         el("div", { class: "sheetfoot" }, el("button", { class: "btn", onclick: () => { if (d.desc.trim()) runEstimate(textPrompt(d.desc.trim()), false, "quick"); else $("descIn").focus(); } }, d.error ? "Try again" : "Estimate"))];
     }
 
-    if (d.phase === "input" && d.kind === "quick") {
+    if (d.phase === "input" && d.kind === "quick") return quickForm(d, "Quick add", null);
+    return reviewDraft(d, photoEl);
+  }
+
+  function quickForm(d, title, photoEl) {
+    {
       const num = (id, label, ph) => el("div", { class: "field" }, el("label", { for: id }, label), el("input", { class: "input tnum", id, type: "number", inputmode: "numeric", min: "0", placeholder: ph }));
       const form = el("form", { class: "stack", onsubmit: (e) => {
         e.preventDefault();
@@ -765,10 +786,11 @@ ${SHAPE}`;
         el("div", { class: "row", style: "align-items:stretch" }, num("qP", "Protein (g)", "0"), num("qC", "Carbs (g)", "0"), num("qF", "Fats (g)", "0")),
         slotSeg(() => d.slot, (s) => { d.slot = s; }),
         el("div", { class: "sheetfoot" }, el("button", { class: "btn", type: "submit" }, "Add to log")));
-      return [sheetHead("Quick add", dayName(d.day)), form];
+      return [sheetHead(title, dayName(d.day)), photoEl, form];
     }
+  }
 
-    // review
+  function reviewDraft(d, photoEl) {
     if (!d.items.length) {
       return [sheetHead("No food found"), photoEl, el("p", { class: "note" }, d.notes || "Claude couldn't find food in that photo."),
         el("div", { class: "sheetfoot" }, el("button", { class: "btn ghost", onclick: () => startDraft("describe") }, "Describe instead"), el("button", { class: "btn", onclick: () => { d.phase = "input"; renderSheet(); } }, "Try again"))];
@@ -938,7 +960,8 @@ ${RECIPE_SHAPE}`;
     } catch (e) {
       if (S.rdraft !== d) return;
       d.phase = "input";
-      if (!(e && e.code === "cancelled")) d.error = errText(e);
+      if (e && e.code === "images_unavailable") { canImages = false; S.imagesRefused = true; d.mode = "text"; d.error = "This view can't send screenshots to Claude. Paste the caption text here instead."; }
+      else if (!(e && e.code === "cancelled")) d.error = errText(e);
     }
     if (S.sheet && S.sheet.type === "rimport") renderSheet();
   }
@@ -1004,7 +1027,7 @@ ${RECIPE_SHAPE}`;
       const manual = el("button", { class: "small muted", style: "align-self:flex-start;text-decoration:underline", onclick: () => { d.recipe = blankRecipe(); d.phase = "review"; renderSheet(); } }, "Enter a recipe by hand instead");
       if (!sample) return [sheetHead("Add recipe"), el("p", { class: "note" }, "Importing from captions and screenshots runs on your Claude plan and needs this page open in Claude. You can still type a recipe in by hand."), el("div", { class: "sheetfoot" }, el("button", { class: "btn", onclick: () => { d.recipe = blankRecipe(); d.phase = "review"; renderSheet(); } }, "Enter by hand"))];
       const modeSeg = el("div", { class: "seg", role: "group", "aria-label": "Import from" },
-        [["text", "Paste text"], ["image", "Screenshots"]].map(([v, l]) => el("button", { "aria-pressed": String(d.mode === v), disabled: v === "image" && !canImages, onclick: () => { d.mode = v; d.error = ""; renderSheet(); } }, l)));
+        [["text", "Paste text"], ["image", "Screenshots"]].map(([v, l]) => el("button", { "aria-pressed": String(d.mode === v), onclick: () => { d.mode = v; d.error = ""; renderSheet(); } }, l)));
       const body = d.mode === "text"
         ? el("div", { class: "field" }, el("label", { for: "rText" }, "Recipe caption or text"),
             el("textarea", { class: "input", id: "rText", style: "min-height:160px", placeholder: "Paste the caption from Instagram or TikTok, or a recipe from a website or your notes.", oninput: (e) => { d.text = e.target.value; } }, d.text))
@@ -1875,12 +1898,21 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
         [["lb", "Pounds (lb)"], ["kg", "Kilograms (kg)"]].map(([v, l]) => el("button", { type: "button", "aria-pressed": String(u === v), onclick: async () => { g.unit = v; await store.saveSettings(g).catch(() => {}); renderTabs(true); } }, l)))),
       num("sW", `Goal weight (${u})`, g.goalWeight ? toU(g.goalWeight).toFixed(1) : "", { step: "0.1", min: 0 }),
       el("div", { class: "row" }, el("button", { class: "btn", type: "submit" }, "Save"), saved2));
+    const stat = (label, ok, text) => el("div", { class: "row between", style: "align-items:flex-start;gap:12px" }, el("span", { style: "font-weight:600" }, label),
+      el("span", { class: "small", style: `text-align:right;color:${ok ? "var(--good)" : "var(--ink2)"};font-weight:600` }, text));
+    const status = el("div", { class: "card stack" }, el("h2", {}, "Claude connection"),
+      stat("Estimates", !!sample, sample ? "Connected" : "Not connected in this view"),
+      stat("Photos", !!sample && canImages, !sample ? "Needs Claude connected" : canImages ? "Supported" : S.imagesRefused ? "This view can't send photos" : "Not reported by this view"),
+      stat("Your log", S.storeMode === "db", S.storeMode === "db" ? "Saved to your account" : "Saved in this browser only"),
+      !sample || !canImages ? el("p", { class: "small muted" }, !sample
+        ? "Open this page in the Claude app or at claude.ai while signed in. Until then you can still take photos and log calories yourself."
+        : "You can still take photos: the app keeps the photo and asks you to describe the food, and Claude estimates from that. Opening the page at claude.ai in a web browser may allow photo estimates.") : null);
     const about = el("div", { class: "card stack" }, el("h2", {}, "About your data"),
       el("p", { class: "small muted" }, S.storeMode === "db"
         ? "Meals, photos, weights, water, recipes, plans and check-ins are saved to your Claude account under a private path. Only you can read them, on any device where you open this page."
         : "Your log is saved in this browser only. Open this page in Claude while signed in to keep it on your account."),
       el("p", { class: "small muted" }, "Photo and text estimates run on your own Claude plan, so there's no subscription. Estimates are usually within 15–25% of the true value; hidden oil, butter and dressings cause the biggest misses, so mention them when you can."));
-    return [el("div", { class: "row" }, el("button", { class: "iconbtn", "aria-label": "Back to home", onclick: () => { S.tab = "home"; paint(); } }, ico("left")), el("h1", {}, "Settings")), goals, body, about];
+    return [el("div", { class: "row" }, el("button", { class: "iconbtn", "aria-label": "Back to home", onclick: () => { S.tab = "home"; paint(); } }, ico("left")), el("h1", {}, "Settings")), status, goals, body, about];
   }
 
   // ================= render =================
