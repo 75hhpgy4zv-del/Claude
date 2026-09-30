@@ -20,6 +20,7 @@
   --flame: #f06a1d;
   --good: #1f9d55;
   --over: #d63a2f;
+  --water: #0f8fa3;
   --shadow: 0 1px 2px rgba(17, 17, 20, .04), 0 6px 20px rgba(17, 17, 20, .06);
   --font: -apple-system, BlinkMacSystemFont, "SF Pro Text", "Inter", "Segoe UI", Roboto, sans-serif;
   --r-card: 22px;
@@ -29,7 +30,7 @@
   :root:not([data-theme="light"]) {
     --bg: #000000; --card: #1c1c1e; --sunk: #2a2a2e; --ink: #f5f5f7; --ink2: #aeaeb6; --muted: #7c7c85;
     --line: #2c2c30; --btn: #f5f5f7; --btn-ink: #000000;
-    --protein: #e0588a; --carbs: #bf8710; --fat: #5b8cec; --flame: #ff8a3d; --good: #46c37b; --over: #ff6b5e;
+    --protein: #e0588a; --carbs: #bf8710; --fat: #5b8cec; --flame: #ff8a3d; --good: #46c37b; --over: #ff6b5e; --water: #3cc9da;
     --shadow: none;
     color-scheme: dark;
   }
@@ -37,7 +38,7 @@
 :root[data-theme="dark"] {
   --bg: #000000; --card: #1c1c1e; --sunk: #2a2a2e; --ink: #f5f5f7; --ink2: #aeaeb6; --muted: #7c7c85;
   --line: #2c2c30; --btn: #f5f5f7; --btn-ink: #000000;
-  --protein: #e0588a; --carbs: #bf8710; --fat: #5b8cec; --flame: #ff8a3d; --good: #46c37b; --over: #ff6b5e;
+  --protein: #e0588a; --carbs: #bf8710; --fat: #5b8cec; --flame: #ff8a3d; --good: #46c37b; --over: #ff6b5e; --water: #3cc9da;
   --shadow: none;
   color-scheme: dark;
 }
@@ -312,6 +313,41 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
 .gitem.checked .gn { text-decoration: line-through; color: var(--muted); }
 .gitem .gq { color: var(--ink2); font-size: 13.5px; white-space: nowrap; }
 
+/* Quick picks, water, toast, check-in */
+.picks { display: flex; gap: 8px; overflow-x: auto; margin-inline: -16px; padding: 2px 16px 6px; scrollbar-width: none; }
+.picks::-webkit-scrollbar { display: none; }
+.pick { flex: none; display: flex; align-items: center; gap: 8px; background: var(--card); box-shadow: var(--shadow); border-radius: 999px; padding: 5px 14px 5px 5px; max-width: 230px; text-align: left; }
+.pick .thumb { width: 34px; height: 34px; border-radius: 50%; }
+.pick .thumb svg { width: 16px; height: 16px; }
+.pick .pn { font-weight: 600; font-size: 13.5px; overflow: hidden; text-overflow: ellipsis; white-space: nowrap; min-width: 0; }
+.pick .pk { font-size: 12px; color: var(--ink2); white-space: nowrap; }
+.pick .st { width: 14px; height: 14px; color: var(--flame); flex: none; }
+.water { display: flex; align-items: center; gap: 14px; padding: 14px 16px; }
+.water .wicon { width: 44px; height: 44px; border-radius: 12px; background: var(--sunk); color: var(--water); display: grid; place-items: center; flex: none; }
+.water .wicon svg { width: 22px; height: 22px; }
+.water .wtext { flex: 1; min-width: 0; display: flex; flex-direction: column; gap: 2px; }
+.wdots { display: flex; gap: 4px; flex-wrap: wrap; margin-top: 4px; }
+.wdots i { width: 10px; height: 14px; border-radius: 2px 2px 4px 4px; background: var(--sunk); }
+.wdots i.on { background: var(--water); }
+.wbtns { display: flex; gap: 6px; }
+.wbtns button { width: 38px; height: 38px; border-radius: 50%; background: var(--sunk); font-size: 20px; font-weight: 700; display: grid; place-items: center; }
+.wbtns button.plus { background: var(--btn); color: var(--btn-ink); }
+.wbtns button:disabled { opacity: .35; cursor: default; }
+.toast { position: fixed; left: 50%; transform: translateX(-50%); bottom: calc(96px + env(safe-area-inset-bottom, 0px)); z-index: 60; background: var(--btn); color: var(--btn-ink); border-radius: 14px; padding: 12px 16px; display: flex; gap: 16px; align-items: center; font-weight: 600; font-size: 14px; box-shadow: 0 8px 24px rgba(0,0,0,.25); max-width: calc(100% - 32px); }
+.toast span { overflow: hidden; text-overflow: ellipsis; white-space: nowrap; min-width: 0; }
+.toast button { color: inherit; font-weight: 800; text-decoration: underline; flex: none; }
+.spark { width: 30px; height: 30px; border-radius: 9px; background: var(--btn); color: var(--btn-ink); display: grid; place-items: center; }
+.spark svg { width: 17px; height: 17px; }
+.cilist { list-style: none; margin: 0; padding: 0; display: flex; flex-direction: column; gap: 8px; font-size: 14px; color: var(--ink2); }
+.cilist li { display: flex; gap: 8px; align-items: flex-start; }
+.cilist li > span:first-child { flex: none; width: 20px; height: 20px; border-radius: 50%; display: grid; place-items: center; margin-top: 1px; }
+.cilist svg { width: 12px; height: 12px; }
+.ci-check { background: color-mix(in srgb, var(--good) 18%, transparent); color: var(--good); }
+.ci-right { background: var(--sunk); color: var(--ink); }
+.starbtn { color: var(--ink2); }
+.starbtn[aria-pressed="true"] { color: var(--flame); }
+.lighter { display: flex; gap: 6px; flex-wrap: wrap; }
+
 @media (max-width: 380px) {
   .hero .num { font-size: 40px; }
   .mcard { padding: 12px 10px; }
@@ -331,6 +367,7 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
   </div>
 </nav>
 <div id="sheetRoot"></div>
+<div id="toast" class="toast" role="status" hidden></div>
 <input type="file" id="photoInput" accept="image/*" capture="environment" class="vh" tabindex="-1" aria-hidden="true">
 <input type="file" id="recipeFiles" accept="image/*" multiple class="vh" tabindex="-1" aria-hidden="true">
 <input type="file" id="recipePhoto" accept="image/*" class="vh" tabindex="-1" aria-hidden="true">
@@ -362,6 +399,11 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     cart: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M3.5 4.5h2.2l2.2 11h10.3l2-8H7"/><circle cx="9.5" cy="19.5" r="1.3"/><circle cx="17" cy="19.5" r="1.3"/></svg>',
     import: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M12 4v11M7.5 10.5 12 15l4.5-4.5M5 19.5h14"/></svg>',
   };
+  ICONS.star = '<svg viewBox="0 0 24 24" fill="currentColor"><path d="M12 3.2l2.6 5.5 6 .8-4.4 4.1 1.1 5.9L12 16.6l-5.3 2.9 1.1-5.9-4.4-4.1 6-.8z"/></svg>';
+  ICONS.starLine = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linejoin="round"><path d="M12 3.2l2.6 5.5 6 .8-4.4 4.1 1.1 5.9L12 16.6l-5.3 2.9 1.1-5.9-4.4-4.1 6-.8z"/></svg>';
+  ICONS.glass = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linejoin="round"><path d="M6 3.5h12l-1.6 16.2a1.5 1.5 0 0 1-1.5 1.3H9.1a1.5 1.5 0 0 1-1.5-1.3z"/><path d="M6.8 10.5h10.4"/></svg>';
+  ICONS.sparkle = '<svg viewBox="0 0 24 24" fill="currentColor"><path d="M11 2.5l1.9 5.6 5.6 1.9-5.6 1.9L11 17.5l-1.9-5.6L3.5 10l5.6-1.9zM18.5 14l.9 2.6 2.6.9-2.6.9-.9 2.6-.9-2.6-2.6-.9 2.6-.9z"/></svg>';
+  ICONS.tag = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><rect x="5" y="3.5" width="14" height="17" rx="2"/><path d="M8.5 8h7M8.5 11.5h7M8.5 15h4"/></svg>';
   ICONS.recipes = ICONS.book; ICONS.plan = ICONS.history;
   const ico = (name, cls = "") => { const t = document.createElement("template"); t.innerHTML = ICONS[name].trim(); const s = t.content.firstChild; s.setAttribute("aria-hidden", "true"); if (cls) s.setAttribute("class", cls); return s; };
 
@@ -403,10 +445,10 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
   // ================= state =================
   const S = {
     tab: "home", day: today(), meals: [], weights: [], byDay: new Map(),
-    settings: { goal: 2000, protein: 150, carbs: 200, fat: 65, unit: "lb", goalWeight: null },
+    settings: { goal: 2000, protein: 150, carbs: 200, fat: 65, unit: "lb", goalWeight: null, waterGoal: 8 },
     calRange: 7, wRange: 90, month: today().slice(0, 7), histDay: today(),
     draft: null, sheet: null, storeMode: "local",
-    recipes: [], plan: [], groceries: new Map(), rdraft: null, rq: "", pq: "", planWeek: null, progView: "trends",
+    recipes: [], plan: [], groceries: new Map(), favorites: [], water: new Map(), checkins: [], checkinBusy: false, checkinErr: "", photoKind: "photo", rdraft: null, rq: "", pq: "", planWeek: null, progView: "trends",
   };
 
   function derive() {
@@ -482,9 +524,9 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
   }
   async function removeMeal(m) {
     await store.del("meals", m.id);
-    if (m.source === "photo" && !S.meals.some((x) => x.photoKey === m.id)) await store.del("thumbs", m.id).catch(() => {});
+    if (photoKeyOf(m) === m.id && !S.meals.some((x) => x.photoKey === m.id) && !S.favorites.some((f) => f.photoKey === m.id)) await store.del("thumbs", m.id).catch(() => {});
   }
-  const LIVE_SHEETS = new Set(["meal", "recipe", "entry", "grocery"]);
+  const LIVE_SHEETS = new Set(["meal", "recipe", "entry", "grocery", "favs"]);
   function subscribeAll() {
     unsubs.forEach((u) => u()); unsubs = [];
     const t = today();
@@ -497,11 +539,14 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     on("recipes", { order: "createdAt", dir: "desc" }, (l) => { S.recipes = l; });
     on("plan", { since: addDays(t, -70) }, (l) => { S.plan = l; });
     on("groceries", {}, (l) => { S.groceries = new Map(l.map((g) => [g.id, g])); });
+    on("favorites", { order: "createdAt", dir: "desc" }, (l) => { S.favorites = l.sort((a, b) => String(b.createdAt).localeCompare(String(a.createdAt))); });
+    on("water", { since: addDays(t, -70) }, (l) => { const m = new Map(l.map((w) => [w.date, w])); for (const k of waterTimers.keys()) if (S.water.has(k)) m.set(k, S.water.get(k)); S.water = m; });
+    on("checkins", { order: "date", dir: "desc" }, (l) => { S.checkins = l.sort((a, b) => String(b.date).localeCompare(String(a.date))); });
   }
 
   // Photos live in their own documents and load on demand. Meal photos use the meal id; recipe photos use "r_" + recipe id.
   const photoCache = new Map();
-  const photoKeyOf = (m) => m.photoKey || (m.source === "photo" ? m.id : null);
+  const photoKeyOf = (m) => m.photoKey || (m.source === "photo" || m.source === "label" ? m.id : null);
   function photoByKey(key) {
     if (!key) return "";
     if (photoCache.has(key)) return photoCache.get(key);
@@ -515,7 +560,7 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     return "";
   }
   const photoFor = (m) => m.thumb || photoByKey(photoKeyOf(m));
-  const srcIcon = (s) => (s === "quick" ? "bolt" : s === "describe" ? "text" : s === "recipe" ? "book" : "plate");
+  const srcIcon = (s) => (s === "quick" ? "bolt" : s === "describe" ? "text" : s === "recipe" ? "book" : s === "label" ? "tag" : "plate");
   const thumbNode = (m, cls = "thumb") => {
     const src = photoFor(m);
     if (src) return el("img", { class: cls, src, alt: "" });
@@ -637,7 +682,7 @@ ${SHAPE}`;
     document.body.style.overflow = "hidden";
     const sheet = el("div", { class: "sheet", role: "dialog", "aria-modal": "true" }, el("div", { class: "grabber" }));
     const scrim = el("div", { class: "scrim", onclick: (e) => { if (e.target === scrim) closeSheet(); } }, sheet);
-    const body = { add: sheetAdd, draft: sheetDraft, meal: sheetMeal, weight: sheetWeight, rimport: sheetRImport, recipe: sheetRecipe, pick: sheetPick, entry: sheetEntry, grocery: sheetGrocery }[S.sheet.type || S.sheet]();
+    const body = { add: sheetAdd, draft: sheetDraft, meal: sheetMeal, weight: sheetWeight, rimport: sheetRImport, recipe: sheetRecipe, pick: sheetPick, entry: sheetEntry, grocery: sheetGrocery, autoplan: sheetAutoplan, favs: sheetFavs }[S.sheet.type || S.sheet]();
     sheet.append(...[].concat(body).filter(Boolean));
     root.append(scrim);
     if (prevScroll) sheet.scrollTop = prevScroll;
@@ -650,11 +695,13 @@ ${SHAPE}`;
     return [
       sheetHead("Log", dayName(S.day)),
       el("div", { class: "addgrid" },
-        tile("camera", "Scan food", ai && canImages ? "Photo of your plate" : "Needs Claude photos", () => { S.sheet = null; renderSheet(); $("photoInput").click(); }, !(ai && canImages)),
+        tile("camera", "Scan food", ai && canImages ? "Photo of your plate" : "Needs Claude photos", () => { S.photoKind = "photo"; S.sheet = null; renderSheet(); $("photoInput").click(); }, !(ai && canImages)),
+        tile("tag", "Scan label", ai && canImages ? "Nutrition facts panel" : "Needs Claude photos", () => { S.photoKind = "label"; S.sheet = null; renderSheet(); $("photoInput").click(); }, !(ai && canImages)),
         tile("text", "Describe food", ai ? "Type what you ate" : "Needs Claude", () => startDraft("describe"), !ai),
         tile("bolt", "Quick add", "Enter known calories", () => startDraft("quick")),
         tile("book", "Saved recipe", S.recipes.length ? `${S.recipes.length} saved` : "None saved yet", () => { S.pq = ""; openSheet({ type: "pick", mode: "log" }); }),
         tile("import", "Import recipe", ai ? "From a caption or screenshot" : "Type one in", () => startImport()),
+        tile("star", "Favorites", S.favorites.length ? `${S.favorites.length} saved` : "And your usuals", () => openSheet({ type: "favs" })),
         tile("scale", "Log weight", "Track your trend", () => openSheet("weight"))),
       !ai ? el("p", { class: "note" }, "Photo, text and recipe estimates run on your Claude plan and need this page open in Claude. Quick add, saved recipes and weight work anywhere.") : null,
     ];
@@ -677,20 +724,21 @@ ${SHAPE}`;
     const photoEl = d.previewUrl ? el("div", { class: "photo-wrap" }, el("img", { class: "photo", src: d.previewUrl, alt: "Your meal" }), d.phase === "thinking" ? el("div", { class: "scanline" }) : null) : null;
 
     if (d.phase === "thinking") {
-      return [sheetHead(d.kind === "photo" ? "Analyzing your food" : "Estimating", dayName(d.day)), photoEl,
+      return [sheetHead(d.kind === "photo" ? "Analyzing your food" : d.kind === "label" ? "Reading the label" : "Estimating", dayName(d.day)), photoEl,
         el("div", { class: "card stack" }, el("div", { class: "bar-ind" }, el("i")),
           el("p", { class: "muted" }, "Identifying each food and estimating portions. This usually takes 10–40 seconds. You can close this sheet; the result will wait for you on the home screen.")),
         el("div", { class: "sheetfoot" }, el("button", { class: "btn line", onclick: () => ctl && ctl.abort() }, "Stop"))];
     }
 
-    if (d.phase === "input" && d.kind === "photo") {
-      return [sheetHead("Scan food", dayName(d.day)), photoEl,
-        el("div", { class: "field" }, el("label", { for: "noteIn" }, "Anything the photo can't show? (optional)"),
-          el("textarea", { class: "input", id: "noteIn", placeholder: "e.g. cooked in olive oil, large bowl, oat milk", oninput: (e) => { d.note = e.target.value; } }, d.note)),
+    if (d.phase === "input" && (d.kind === "photo" || d.kind === "label")) {
+      const lab = d.kind === "label";
+      return [sheetHead(lab ? "Scan label" : "Scan food", dayName(d.day)), photoEl,
+        el("div", { class: "field" }, el("label", { for: "noteIn" }, lab ? "How much did you have? (optional)" : "Anything the photo can't show? (optional)"),
+          el("textarea", { class: "input", id: "noteIn", placeholder: lab ? "e.g. half the bag, 2 servings, 150 g" : "e.g. cooked in olive oil, large bowl, oat milk", oninput: (e) => { d.note = e.target.value; } }, d.note)),
         d.error ? el("p", { class: "err" }, d.error) : null,
         el("div", { class: "sheetfoot" },
           el("button", { class: "btn ghost", onclick: () => $("photoInput").click() }, "Retake"),
-          el("button", { class: "btn", onclick: () => runEstimate(photoPrompt(d.note.trim()), true, "default") }, d.error ? "Try again" : "Analyze"))];
+          el("button", { class: "btn", onclick: () => runEstimate(lab ? labelPrompt(d.note.trim()) : photoPrompt(d.note.trim()), true, "default") }, d.error ? "Try again" : "Analyze"))];
     }
 
     if (d.phase === "input" && d.kind === "describe") {
@@ -787,7 +835,11 @@ ${SHAPE}`;
     const confirm = S.sheet.confirm;
     return [
       src ? el("img", { class: "photo", src, alt: "" }) : null,
-      sheetHead(m.name, `${dayName(m.date)} · ${timeOf(m.at)} · ${SLOT_LABEL[m.slot] || "Snack"}`),
+      el("div", { class: "sheethead" },
+        el("div", { style: "min-width:0" }, el("h2", {}, m.name), el("div", { class: "small muted" }, `${dayName(m.date)} · ${timeOf(m.at)} · ${SLOT_LABEL[m.slot] || "Snack"}`)),
+        el("div", { class: "hbtns" },
+          el("button", { class: "x starbtn", "aria-pressed": String(!!favFor(m)), "aria-label": favFor(m) ? "Remove from favorites" : "Add to favorites", onclick: async () => { try { const on = await toggleFavorite(m); toast(on ? "Added to favorites" : "Removed from favorites"); } catch {} } }, ico(favFor(m) ? "star" : "starLine")),
+          el("button", { class: "x", "aria-label": "Close", onclick: closeSheet }, ico("close")))),
       calRow(m.kcal),
       el("div", { class: "mini3" }, macroMini("protein", m.protein || 0), macroMini("carbs", m.carbs || 0), macroMini("fat", m.fat || 0)),
       (m.items || []).length ? el("div", { class: "card", style: "padding:6px 16px" }, el("div", { style: "padding-top:10px" }, el("b", {}, "Ingredients")),
@@ -800,8 +852,7 @@ ${SHAPE}`;
           try { await removeMeal(m); closeSheet(); } catch {}
         } }, confirm ? "Tap again to delete" : "Delete"),
         el("button", { class: "btn", onclick: async () => {
-          const copy = { ...m, id: newId(), date: today(), at: new Date().toISOString(), slot: guessSlot(), photoKey: photoKeyOf(m) || undefined };
-          try { await addMeal(copy); S.day = today(); S.tab = "home"; closeSheet(); } catch {}
+          try { S.day = today(); S.tab = "home"; await logAgain(m, today()); closeSheet(); } catch {}
         } }, "Log again today")),
     ];
   }
@@ -944,9 +995,9 @@ ${RECIPE_SHAPE}`;
     if (!d) return [sheetHead("Import recipe")];
     const previews = d.previews.length ? el("div", { class: "thumbs-row" }, d.previews.map((u) => el("img", { src: u, alt: "Screenshot" }))) : null;
     if (d.phase === "thinking") {
-      return [sheetHead("Reading the recipe"), d.mode === "image" ? previews : null,
+      return [sheetHead(d.busy || "Reading the recipe"), d.mode === "image" && !d.busy ? previews : null,
         el("div", { class: "card stack" }, el("div", { class: "bar-ind" }, el("i")),
-          el("p", { class: "muted" }, "Pulling out ingredients and steps, then working out calories and macros for each ingredient. Long recipes can take up to a minute.")),
+          el("p", { class: "muted" }, d.busyText || "Pulling out ingredients and steps, then working out calories and macros for each ingredient. Long recipes can take up to a minute.")),
         el("div", { class: "sheetfoot" }, el("button", { class: "btn line", onclick: () => rctl && rctl.abort() }, "Stop"))];
     }
     if (d.phase === "input") {
@@ -984,6 +1035,7 @@ ${RECIPE_SHAPE}`;
       el("div", { class: "row between", style: "align-items:flex-start" },
         el("input", { class: "titlein", id: "rTitle", value: r.title, placeholder: "Recipe name", "aria-label": "Recipe name", oninput: (e) => { r.title = e.target.value; } }),
         el("button", { class: "x", "aria-label": "Close", onclick: closeSheet }, ico("close"))),
+      d.lighterFrom ? el("p", { class: "note" }, `New version of ${d.lighterFrom}. ${r.notes || ""}`.trim()) : null,
       el("button", { class: "btn ghost sm", style: "align-self:flex-start", onclick: () => $("recipePhoto").click() }, ico("camera", "ico"), d.photo ? "Change photo" : "Add a photo"),
       el("div", { class: "row between wrap" },
         el("div", { class: "row" }, el("b", {}, "Makes"),
@@ -999,7 +1051,7 @@ ${RECIPE_SHAPE}`;
         el("div", { class: "row between", style: "padding-top:10px" }, el("b", {}, `Ingredients (${r.ingredients.length})`), el("span", { class: "small muted" }, "Whole recipe · tap to edit")),
         r.ingredients.length ? ing : el("p", { class: "small muted", style: "padding-top:8px" }, "No ingredients yet."), addRow),
       r.steps.length ? el("div", { class: "card stack" }, el("b", {}, "Steps"), el("ol", { class: "steps" }, r.steps.map((s) => el("li", {}, s)))) : null,
-      r.notes ? el("p", { class: "note" }, r.notes) : null,
+      r.notes && !d.lighterFrom ? el("p", { class: "note" }, r.notes) : null,
       el("div", { class: "field" }, el("label", { for: "rSrc2" }, "Link to the original (optional)"),
         el("input", { class: "input", id: "rSrc2", type: "url", value: d.source, placeholder: "https://…", oninput: (e) => { d.source = e.target.value; } })),
       d.error ? el("p", { class: "err" }, d.error) : null,
@@ -1039,6 +1091,9 @@ ${RECIPE_SHAPE}`;
           } }, `Log to ${dayName(S.day)}`),
           el("button", { class: "btn line", style: "flex:1", onclick: () => { sh.planning = !sh.planning; sh.planDay = sh.planDay || t; renderSheet(); } }, sh.planning ? "Cancel" : "Add to plan")),
         planBox),
+      sample ? el("div", { class: "card stack" }, el("div", { class: "row", style: "gap:8px" }, el("span", { class: "spark" }, ico("sparkle")), el("b", {}, "Make it lighter")),
+        el("p", { class: "small muted" }, "Claude reworks this recipe and saves the new version alongside the original."),
+        el("div", { class: "lighter" }, [["calories", "Fewer calories"], ["protein", "More protein"], ["carbs", "Lower carb"], ["sugar", "Less sugar"]].map(([k, l]) => el("button", { class: "btn ghost sm", onclick: () => lightenRecipe(r, k) }, l)))) : null,
       el("div", { class: "card", style: "padding:6px 16px" }, el("div", { style: "padding-top:10px" }, el("b", {}, `Ingredients · makes ${r.servings}`)),
         el("div", { class: "ing" }, (r.ingredients || []).map((it) => el("div", { class: "ingrow" }, el("div", { class: "head" }, el("div", { class: "n" }, it.text), el("div", { class: "k tnum muted" }, fmt(it.kcal) + " cal")))))),
       (r.steps || []).length ? el("div", { class: "card stack" }, el("b", {}, "Steps"), el("ol", { class: "steps" }, r.steps.map((s) => el("li", {}, s)))) : null,
@@ -1194,6 +1249,261 @@ ${RECIPE_SHAPE}`;
       el("div", { class: "sheetfoot" }, el("button", { class: "btn line", onclick: () => buildGrocery(ws) }, "Rebuild list"))];
   }
 
+  // ================= toast =================
+  let toastTimer = null;
+  function toast(msg, undo) {
+    const t = $("toast");
+    t.replaceChildren(el("span", {}, msg), undo ? el("button", { onclick: async () => { t.hidden = true; try { await undo(); } catch {} } }, "Undo") : null);
+    t.hidden = false;
+    clearTimeout(toastTimer);
+    toastTimer = setTimeout(() => { t.hidden = true; }, 4500);
+  }
+
+  // ================= favorites & usuals =================
+  const nameKey = (s) => String(s || "").trim().toLowerCase();
+  const favFor = (m) => S.favorites.find((f) => nameKey(f.name) === nameKey(m.name));
+  async function toggleFavorite(m) {
+    const f = favFor(m);
+    if (f) { await store.del("favorites", f.id); return false; }
+    await store.put("favorites", newId(), strip({
+      name: m.name, items: m.items || [], kcal: m.kcal || 0, protein: m.protein || 0, carbs: m.carbs || 0, fat: m.fat || 0,
+      source: m.source || "quick", recipeId: m.recipeId, photoKey: photoKeyOf(m) || undefined, thumb: m.thumb || undefined, createdAt: new Date().toISOString(),
+    }));
+    return true;
+  }
+  // Favorites first, then meals logged at least twice in the last 30 days.
+  function quickPicks() {
+    const picks = S.favorites.map((f) => ({ fav: true, m: f }));
+    const seen = new Set(S.favorites.map((f) => nameKey(f.name)));
+    const since = addDays(today(), -30), counts = new Map();
+    for (const m of S.meals) {
+      if (m.date < since) continue;
+      const k = nameKey(m.name);
+      if (!k || seen.has(k)) continue;
+      const c = counts.get(k) || { n: 0, m };
+      c.n++; if (String(m.at) > String(c.m.at)) c.m = m;
+      counts.set(k, c);
+    }
+    [...counts.values()].filter((c) => c.n >= 2).sort((a, b) => b.n - a.n).slice(0, 8).forEach((c) => picks.push({ fav: false, m: c.m, n: c.n }));
+    return picks;
+  }
+  async function logAgain(m, date = S.day) {
+    const copy = strip({
+      id: newId(), date, slot: guessSlot(), at: new Date().toISOString(), name: m.name, items: m.items || [],
+      kcal: m.kcal || 0, protein: m.protein || 0, carbs: m.carbs || 0, fat: m.fat || 0,
+      source: m.source || "quick", recipeId: m.recipeId, photoKey: photoKeyOf(m) || undefined, thumb: m.thumb || undefined,
+    });
+    copy.id = newId();
+    await addMeal(copy);
+    toast(`Logged ${m.name}`, () => removeMeal(copy));
+  }
+  function sheetFavs() {
+    const picks = quickPicks();
+    return [sheetHead("Favorites & usuals", `Log to ${dayName(S.day)}`),
+      picks.length ? el("div", { class: "card", style: "padding:4px 14px" }, picks.map(({ fav, m, n }) => el("div", { class: "dayrow" },
+        thumbNode(m),
+        el("div", { class: "t" }, el("div", {}, m.name), el("small", { class: "tnum" }, `${fmt(m.kcal)} cal · ` + (fav ? "Favorite" : `Logged ${n}× this month`))),
+        el("button", { class: "btn sm", onclick: async () => { try { await logAgain(m); closeSheet(); } catch {} } }, "Log"))))
+        : el("div", { class: "card empty" }, el("div", { class: "art" }, ico("star")), el("b", {}, "No favorites yet"), el("p", {}, "Open any logged meal and tap the star. Meals you log twice in a month also show up here."))];
+  }
+
+  // ================= water =================
+  const waterOz = () => (S.settings.unit === "kg" ? null : 8);
+  const glassesOn = (k) => Number((S.water.get(k) || {}).glasses) || 0;
+  const waterTimers = new Map();
+  function setWater(k, n) {
+    n = Math.max(0, Math.min(40, n));
+    S.water.set(k, { date: k, glasses: n });
+    paint();
+    clearTimeout(waterTimers.get(k));
+    waterTimers.set(k, setTimeout(() => { store.put("water", k, { date: k, glasses: n }).catch(() => {}); }, 500));
+  }
+  function waterCard() {
+    const k = S.day, n = glassesOn(k), goal = S.settings.waterGoal || 8;
+    const amount = waterOz() ? `${n * 8} oz` : `${(n * 0.25).toFixed(n % 4 ? 2 : 0)} L`;
+    return el("div", { class: "card water" },
+      el("div", { class: "wicon" }, ico("glass")),
+      el("div", { class: "wtext" }, el("b", { class: "tnum" }, `${n} of ${goal} glasses`), el("div", { class: "small muted tnum" }, `${amount} · each glass is ${waterOz() ? "8 oz" : "250 ml"}`),
+        el("div", { class: "wdots", "aria-hidden": "true" }, Array.from({ length: Math.max(goal, n) }, (_, i) => el("i", { class: i < n ? "on" : "" })))),
+      el("div", { class: "wbtns" },
+        el("button", { "aria-label": "Remove a glass", disabled: n <= 0, onclick: () => setWater(k, n - 1) }, "−"),
+        el("button", { class: "plus", "aria-label": "Add a glass", onclick: () => setWater(k, n + 1) }, "+")));
+  }
+
+  // ================= nutrition label =================
+  const labelPrompt = (note) => `The attached photo shows a packaged food's nutrition facts label, and perhaps the front of the package. Read the printed values exactly; only estimate values that aren't printed.
+${note ? `The person says how much they had: "${note}". Set the item's values for that amount and describe it in portion.` : "Use one serving as printed on the label."}
+Reply with only JSON in exactly this shape:
+{"meal":"product name if visible, otherwise a short description","items":[{"name":"Product name","portion":"1 serving (28 g)","kcal":140,"protein":2,"carbs":18,"fat":7,"confidence":"high"}],"notes":"Serving size 28 g · about 10 servings per container"}
+confidence is "high" for values read from the label. If the label can't be read, return an empty items array and say why in notes.`;
+
+  // ================= make it lighter =================
+  const LIGHTER = { calories: "fewer calories per serving", protein: "more protein per serving", carbs: "fewer carbohydrates per serving", sugar: "less added sugar" };
+  async function lightenRecipe(r, goal) {
+    const photo = r.hasPhoto ? photoByKey("r_" + r.id) : "";
+    startImport({ phase: "thinking", busy: "Making it lighter", busyText: `Swapping ingredients for ${LIGHTER[goal]} while keeping the dish recognisable.`, source: r.source || "", photo, photoChanged: !!photo });
+    const d = S.rdraft;
+    rctl = new AbortController();
+    const orig = { title: r.title, servings: r.servings, ingredients: (r.ingredients || []).map(({ text, kcal, protein, carbs, fat }) => ({ text, kcal, protein, carbs, fat })), steps: r.steps || [] };
+    try {
+      const out = cleanRecipe(await sample.json(`Here is a saved recipe as JSON:
+${JSON.stringify(orig)}
+Rewrite it so it has ${LIGHTER[goal]}, keeping it recognisably the same dish and changing as few ingredients as needed. Keep the same number of servings. Update the steps where a swap changes the method. Recalculate calories and macros for every ingredient using USDA FoodData Central values. Give the new title as the original title with a short descriptor, e.g. "(lighter)" or "(high protein)". In notes, summarise the swaps in one or two sentences.
+${RECIPE_SHAPE}`, { signal: rctl.signal, modelTier: "default", cache: false }));
+      if (S.rdraft !== d) return;
+      if (!out.ingredients.length) { d.phase = "input"; d.error = out.notes || "Couldn't rework that recipe. Try a different goal."; }
+      else { out.tags = [...new Set([...(r.tags || []), goal === "protein" ? "high protein" : "lighter"])].slice(0, 4); d.recipe = out; d.phase = "review"; d.lighterFrom = r.title; }
+    } catch (e) {
+      if (S.rdraft !== d) return;
+      if (e && e.code === "cancelled") { closeSheet(); openSheet({ type: "recipe", id: r.id, servings: 1, slot: guessSlot() }); return; }
+      d.recipe = null; d.phase = "input"; d.error = errText(e);
+    }
+    if (S.sheet && S.sheet.type === "rimport") renderSheet();
+  }
+
+  // ================= plan my week =================
+  const SERV_OK = [0.5, 1, 1.5, 2, 3];
+  function openAutoplan() {
+    const t = today(), ws = S.planWeek;
+    const days = Array.from({ length: 7 }, (_, i) => addDays(ws, i)).filter((k) => k >= t);
+    openSheet({ type: "autoplan", week: ws, days: new Set(days), slots: new Set(["breakfast", "lunch", "dinner"]), phase: "setup" });
+  }
+  async function runAutoplan() {
+    const sh = S.sheet, g = S.settings;
+    const days = [...sh.days].sort();
+    const want = days.map((k) => {
+      const es = entriesOn(k), used = new Set(es.map((e) => e.slot));
+      const open = [...sh.slots].filter((s) => !used.has(s)).sort((a, b) => slotOrder(a) - slotOrder(b));
+      const tot = es.reduce((a, e) => { const x = entryTotals(e); a.kcal += x.kcal; a.protein += x.protein; return a; }, { kcal: 0, protein: 0 });
+      return { k, open, tot };
+    }).filter((d) => d.open.length);
+    if (!want.length) { sh.error = "Every chosen slot on those days is already planned."; renderSheet(); return; }
+    sh.phase = "thinking"; sh.error = ""; renderSheet();
+    const ctlA = (sh.ctl = new AbortController());
+    const list = S.recipes.map((r) => `${r.id} | ${r.title} | ${r.kcal} kcal, ${r.protein} g protein, ${r.carbs} g carbs, ${r.fat} g fat | ${(r.tags || []).join(", ")}`).join("\n");
+    const slotsTxt = want.map((d) => `${d.k} (${fromKey(d.k).toLocaleDateString("en-US", { weekday: "long" })}): ${d.open.join(", ")}` + (d.tot.kcal ? ` — already planned ${d.tot.kcal} kcal, ${d.tot.protein} g protein` : "")).join("\n");
+    try {
+      const out = await sample.json(`You are planning meals for someone's week using only their saved recipes.
+Daily goals: ${g.goal} kcal, ${g.protein} g protein, ${g.carbs} g carbs, ${g.fat} g fat.
+Saved recipes (id | title | per serving | tags):
+${list}
+Fill these meal slots:
+${slotsTxt}
+Rules: use only recipe ids from the list. servings is one of 0.5, 1, 1.5, 2 or 3. Aim for each day's total, including anything already planned, to land within about 10% of the calorie goal and as close to the protein goal as the recipes allow. Vary recipes across the week and don't repeat a recipe within a day. Put breakfast-style recipes at breakfast. Leave a slot out if no recipe suits it.
+Reply with only JSON: {"days":[{"date":"${want[0].k}","meals":[{"slot":"dinner","recipeId":"${S.recipes[0].id}","servings":1}]}],"notes":"one sentence about the plan"}`, { signal: ctlA.signal, modelTier: "default", cache: false });
+      if (S.sheet !== sh) return;
+      const byId = new Map(S.recipes.map((r) => [r.id, r])), wantMap = new Map(want.map((d) => [d.k, d]));
+      const proposal = [];
+      for (const d of Array.isArray(out && out.days) ? out.days : []) {
+        const w = wantMap.get(d && d.date);
+        if (!w) continue;
+        const taken = new Set();
+        for (const m of Array.isArray(d.meals) ? d.meals : []) {
+          const r = byId.get(m && m.recipeId);
+          if (!r || !w.open.includes(m.slot) || taken.has(m.slot)) continue;
+          taken.add(m.slot);
+          const sv = SERV_OK.reduce((a, b) => (Math.abs(b - Number(m.servings)) < Math.abs(a - Number(m.servings)) ? b : a), 1);
+          proposal.push({ date: w.k, slot: m.slot, recipe: r, servings: sv });
+        }
+      }
+      if (!proposal.length) { sh.phase = "setup"; sh.error = "Claude couldn't fit your recipes to those slots. Try adding more recipes or choosing fewer slots."; }
+      else { sh.phase = "review"; sh.proposal = proposal; sh.notes = String((out && out.notes) || "").slice(0, 300); }
+    } catch (e) {
+      if (S.sheet !== sh) return;
+      sh.phase = "setup"; if (!(e && e.code === "cancelled")) sh.error = errText(e);
+    }
+    if (S.sheet === sh) renderSheet();
+  }
+  function sheetAutoplan() {
+    const sh = S.sheet, g = S.settings, t = today();
+    const head = sheetHead("Plan my week", "From your saved recipes");
+    if (S.recipes.length < 2) return [head, el("div", { class: "card empty" }, el("div", { class: "art" }, ico("book")), el("b", {}, "Save a few recipes first"), el("p", {}, "Claude builds the plan from your saved recipes, so it needs at least two to work with. Five or more gives the best variety.")),
+      el("button", { class: "btn block", onclick: () => startImport() }, "Import a recipe")];
+    if (sh.phase === "thinking") return [head, el("div", { class: "card stack" }, el("div", { class: "bar-ind" }, el("i")),
+      el("p", { class: "muted" }, `Matching your ${S.recipes.length} recipes to your goals of ${fmt(g.goal)} calories and ${g.protein} g protein a day. This takes about 20–60 seconds.`)),
+      el("div", { class: "sheetfoot" }, el("button", { class: "btn line", onclick: () => sh.ctl && sh.ctl.abort() }, "Stop"))];
+    if (sh.phase === "review") {
+      const byDay = new Map();
+      for (const p of sh.proposal) { if (!byDay.has(p.date)) byDay.set(p.date, []); byDay.get(p.date).push(p); }
+      return [head, sh.notes ? el("p", { class: "note" }, sh.notes) : null,
+        ...[...byDay.keys()].sort().map((k) => {
+          const ps = byDay.get(k).sort((a, b) => slotOrder(a.slot) - slotOrder(b.slot));
+          const existing = entriesOn(k).reduce((a, e) => a + entryTotals(e).kcal, 0);
+          const total = existing + ps.reduce((a, p) => a + Math.round(p.recipe.kcal * p.servings), 0);
+          const protein = entriesOn(k).reduce((a, e) => a + entryTotals(e).protein, 0) + ps.reduce((a, p) => a + Math.round(p.recipe.protein * p.servings), 0);
+          return el("div", { class: "card", style: "padding:14px 16px" },
+            el("div", { class: "row between" }, el("b", {}, dayName(k)), el("span", { class: "small muted tnum" }, `${fmt(total)} cal · ${fmt(protein)}g protein`)),
+            ps.map((p) => el("div", { class: "prow" }, recipeImg(p.recipe, "thumb"),
+              el("div", { class: "t" }, el("div", {}, p.recipe.title), el("small", {}, `${SLOT_LABEL[p.slot]} · ${servLabel(p.servings)}`)),
+              el("b", { class: "tnum" }, fmt(p.recipe.kcal * p.servings)))));
+        }),
+        sh.error ? el("p", { class: "err" }, sh.error) : null,
+        el("div", { class: "sheetfoot" },
+          el("button", { class: "btn line", onclick: runAutoplan }, "Try again"),
+          el("button", { class: "btn", onclick: async () => {
+            try { for (const p of sh.proposal) await addPlanEntry(p); closeSheet(); toast(`Added ${sh.proposal.length} meals to your plan`); }
+            catch { sh.error = "Couldn't save the plan. Check your connection and try again."; renderSheet(); }
+          } }, "Add to plan"))];
+    }
+    const days = Array.from({ length: 7 }, (_, i) => addDays(sh.week, i));
+    return [head,
+      !sample ? el("p", { class: "note" }, "Plan my week runs on your Claude plan and needs this page open in Claude.") : null,
+      el("div", { class: "field" }, el("label", {}, "Days to fill"), el("div", { class: "daychips", role: "group", "aria-label": "Days" }, days.map((k) => el("button", {
+        "aria-pressed": String(sh.days.has(k)), disabled: k < t, onclick: () => { sh.days.has(k) ? sh.days.delete(k) : sh.days.add(k); renderSheet(); } },
+        el("div", {}, fromKey(k).toLocaleDateString(undefined, { weekday: "short" })), el("div", { class: "tnum", style: "font-size:12px;opacity:.8" }, String(fromKey(k).getDate())))))),
+      el("div", { class: "field" }, el("label", {}, "Meals to fill"), el("div", { class: "seg", role: "group", "aria-label": "Meals" },
+        SLOTS.map((s) => el("button", { "aria-pressed": String(sh.slots.has(s)), onclick: () => { sh.slots.has(s) ? sh.slots.delete(s) : sh.slots.add(s); renderSheet(); } }, SLOT_LABEL[s])))),
+      el("p", { class: "small muted" }, `Slots you've already planned stay as they are. Claude aims for about ${fmt(g.goal)} calories and ${g.protein} g protein a day using your ${S.recipes.length} saved recipes.`),
+      sh.error ? el("p", { class: "err" }, sh.error) : null,
+      el("div", { class: "sheetfoot" }, el("button", { class: "btn", disabled: !sample || !sh.days.size || !sh.slots.size, onclick: runAutoplan }, "Plan it"))];
+  }
+
+  // ================= weekly check-in =================
+  function checkinData() {
+    const t = today(), g = S.settings, u = g.unit, toU = (kg) => (u === "lb" ? kg * KG_LB : kg);
+    const days = Array.from({ length: 7 }, (_, i) => addDays(t, i - 6));
+    const rows = days.map((k) => { const d = dayTotals(k); return `${k}: ${d.count ? `${fmt(d.kcal)} kcal, ${fmt(d.protein)} g protein, ${fmt(d.carbs)} g carbs, ${fmt(d.fat)} g fat, ${d.count} meals` : "nothing logged"}; water ${glassesOn(k)} glasses`; });
+    const ws = S.weights.filter((w) => w.date >= days[0]);
+    const weight = ws.length >= 2 ? `from ${toU(ws[0].kg).toFixed(1)} to ${toU(ws[ws.length - 1].kg).toFixed(1)} ${u}` : ws.length ? `one weigh-in: ${toU(ws[0].kg).toFixed(1)} ${u}` : "no weigh-ins";
+    const counts = new Map();
+    S.meals.filter((m) => m.date >= days[0]).forEach((m) => counts.set(m.name, (counts.get(m.name) || 0) + 1));
+    const top = [...counts.entries()].sort((a, b) => b[1] - a[1]).slice(0, 8).map(([n, c]) => `${n} (${c}×)`).join(", ") || "none";
+    return { logged: days.filter((k) => dayTotals(k).count).length, text: `Goals per day: ${g.goal} kcal, ${g.protein} g protein, ${g.carbs} g carbs, ${g.fat} g fat, ${g.waterGoal || 8} glasses of water.${g.goalWeight ? ` Goal weight ${toU(g.goalWeight).toFixed(1)} ${u}.` : ""}
+Last 7 days:
+${rows.join("\n")}
+Weight this week: ${weight}.
+Most-logged foods: ${top}.` };
+  }
+  async function runCheckin() {
+    const data = checkinData();
+    S.checkinBusy = true; S.checkinErr = ""; paint();
+    try {
+      const out = await sample.json(`You are a supportive, practical nutrition coach reviewing someone's last 7 days of food logging.
+${data.text}
+Write a short check-in grounded in these numbers. Be warm and specific, never preachy, and don't give medical advice. Days with nothing logged mean they didn't log, not that they didn't eat.
+Reply with only JSON: {"headline":"one sentence summary of the week","wins":["specific thing that went well","another"],"suggestions":["one concrete, doable change","another"]}`, { modelTier: "default", cache: false });
+      const clean = (a) => (Array.isArray(a) ? a : []).slice(0, 3).map((x) => String(x).slice(0, 240)).filter(Boolean);
+      const t = today();
+      await store.put("checkins", t, { date: t, headline: String((out && out.headline) || "").slice(0, 240), wins: clean(out && out.wins), suggestions: clean(out && out.suggestions), createdAt: new Date().toISOString() });
+    } catch (e) { S.checkinErr = e && e.code ? errText(e) : "Couldn't save the check-in. Try again."; }
+    S.checkinBusy = false; paint();
+  }
+  function checkinCard() {
+    const c = S.checkins[0], t = today(), logged = checkinData().logged;
+    const head = el("div", { class: "row between" }, el("div", { class: "row", style: "gap:8px" }, el("span", { class: "spark" }, ico("sparkle")), el("h2", {}, "Weekly check-in")),
+      c ? el("span", { class: "small muted" }, c.date === t ? "Today" : dayName(c.date, "short")) : null);
+    if (S.checkinBusy) return el("div", { class: "card stack" }, head, el("div", { class: "bar-ind" }, el("i")), el("p", { class: "small muted" }, "Reviewing your last 7 days…"));
+    const btn = sample && logged ? el("button", { class: c ? "btn ghost sm" : "btn sm", style: "align-self:flex-start", onclick: runCheckin }, c ? (c.date === t ? "Refresh" : "Get this week's check-in") : "Get my check-in") : null;
+    if (!c) return el("div", { class: "card stack" }, head,
+      el("p", { class: "small muted" }, !sample ? "Check-ins run on your Claude plan and need this page open in Claude." : logged ? "Claude reviews your last 7 days of meals, water and weight, then points out what went well and one or two things to try next." : "Log a few days of meals first, then Claude can review your week."),
+      S.checkinErr ? el("p", { class: "err" }, S.checkinErr) : null, btn);
+    const list = (title, items, icon) => items.length ? el("div", { class: "stack", style: "gap:6px" }, el("div", { class: "small", style: "font-weight:700" }, title),
+      el("ul", { class: "cilist" }, items.map((x) => el("li", {}, el("span", { class: "ci-" + icon }, ico(icon)), el("span", {}, x))))) : null;
+    return el("div", { class: "card stack" }, head, el("p", { style: "font-weight:600" }, c.headline),
+      list("What went well", c.wins || [], "check"), list("Try this week", c.suggestions || [], "right"),
+      S.checkinErr ? el("p", { class: "err" }, S.checkinErr) : null, btn);
+  }
+
   // ================= charts =================
   const NS = "http://www.w3.org/2000/svg";
   const niceStep = (raw) => { const p = Math.pow(10, Math.floor(Math.log10(raw || 1))), n = raw / p; return (n <= 1 ? 1 : n <= 2 ? 2 : n <= 2.5 ? 2.5 : n <= 5 ? 5 : 10) * p; };
@@ -1320,6 +1630,7 @@ ${RECIPE_SHAPE}`;
         el("div", { class: "ring", style: "width:64px;height:64px" }, ringSvg(64, 7, eaten / goal, `var(--${k})`), el("div", { class: "mid" }, ico(k, "ico c-" + k))));
     };
     const planned = entriesOn(S.day).filter((e) => !isLogged(e));
+    const picks = quickPicks();
     const meals = S.meals.filter((m) => m.date === S.day).sort((a, b) => String(b.at).localeCompare(String(a.at)));
     const list = el("div", { class: "stack" });
     const d = S.draft;
@@ -1344,6 +1655,10 @@ ${RECIPE_SHAPE}`;
         el("div", { class: "hbtns" }, el("span", { class: "streak tnum", "aria-label": `${cur} day streak` }, ico("flame"), String(cur)),
           el("button", { class: "iconbtn", "aria-label": "Settings", onclick: () => { S.tab = "settings"; paint(); window.scrollTo(0, 0); } }, ico("settings")))),
       week, hero, el("div", { class: "macros3" }, mc("protein", "Protein"), mc("carbs", "Carbs"), mc("fat", "Fats")),
+      waterCard(),
+      picks.length && S.day <= t ? el("div", { class: "sechead" }, el("h2", {}, "Favorites & usuals"), el("button", { class: "small muted", style: "text-decoration:underline", onclick: () => openSheet({ type: "favs" }) }, "See all")) : null,
+      picks.length && S.day <= t ? el("div", { class: "picks" }, picks.slice(0, 8).map(({ fav, m }) => el("button", { class: "pick", "aria-label": `Log ${m.name}, ${fmt(m.kcal)} calories`, onclick: () => logAgain(m).catch(() => {}) },
+        thumbNode(m), el("div", { style: "min-width:0" }, el("div", { class: "pn" }, m.name), el("div", { class: "pk tnum" }, `${fmt(m.kcal)} cal`)), fav ? ico("star", "st") : null))) : null,
       planned.length ? el("div", { class: "sechead" }, el("h2", {}, "Planned"), el("span", { class: "small muted" }, "From your meal plan")) : null,
       planned.length ? el("div", { class: "card", style: "padding:2px 14px" }, planned.map((e) => el("div", { class: "prow", style: "border-top:0" },
         el("button", { class: "row", style: "flex:1;min-width:0;text-align:left", onclick: () => openSheet({ type: "entry", id: e.id }) }, entryThumb(e),
@@ -1411,6 +1726,7 @@ ${RECIPE_SHAPE}`;
         el("div", { style: "text-align:center" }, el("b", {}, ws === weekStartOf(t) ? "This week" : ws === addDays(weekStartOf(t), 7) ? "Next week" : `Week of ${short(ws)}`),
           el("div", { class: "small muted tnum" }, `${short(ws)} – ${short(addDays(ws, 6))}` + (plannedDays.length ? ` · ${fmt(avg)} cal/day planned` : ""))),
         el("button", { class: "nav", "aria-label": "Next week", disabled: ws >= maxWs, onclick: () => { S.planWeek = addDays(ws, 7); render(); } }, ico("right"))),
+      el("button", { class: "btn ghost block", onclick: openAutoplan }, ico("sparkle", "ico"), "Plan my week"),
       !S.recipes.length ? el("p", { class: "note" }, "Save a few recipes first, then add them to days here. You can also plan custom items like a dinner out.") : null,
       ...cards,
     ];
@@ -1483,7 +1799,7 @@ ${RECIPE_SHAPE}`;
       el("div", { class: "card tile" }, el("div", { class: "k" }, "Days logged"), el("div", { class: "v tnum" }, fmt(allDays))),
       el("div", { class: "card tile" }, el("div", { class: "k" }, "Weigh-ins"), el("div", { class: "v tnum" }, fmt(W.length))));
 
-    return [el("div", { class: "stat2" }, weightCard, streakCard), calCard, weightChartCard, macroCard, totals];
+    return [checkinCard(), el("div", { class: "stat2" }, weightCard, streakCard), calCard, weightChartCard, macroCard, totals];
   }
 
   function viewHistory() {
@@ -1532,6 +1848,7 @@ ${RECIPE_SHAPE}`;
       e.preventDefault();
       g.goal = Math.min(Math.max(int($("sG").value) || 2000, 800), 6000);
       g.protein = int($("sP").value, 500) || 1; g.carbs = int($("sC").value, 800) || 1; g.fat = int($("sF").value, 400) || 1;
+      g.waterGoal = Math.min(Math.max(int($("sWa").value, 40) || 8, 1), 40);
       try { await store.saveSettings(g); saved.hidden = false; setTimeout(() => (saved.hidden = true), 1800); } catch {}
       renderTabs();
     } },
@@ -1543,6 +1860,7 @@ ${RECIPE_SHAPE}`;
         $("sP").value = Math.round((c * 0.3) / 4); $("sC").value = Math.round((c * 0.4) / 4); $("sF").value = Math.round((c * 0.3) / 9);
       } }, "Split calories 30 / 40 / 30"),
       el("p", { class: "small muted" }, "The split sets protein 30%, carbs 40% and fats 30% of your calories (4 kcal per gram of protein or carbs, 9 per gram of fat)."),
+      num("sWa", `Water (glasses a day, ${g.unit === "kg" ? "250 ml" : "8 oz"} each)`, g.waterGoal || 8, { min: 1, max: 40 }),
       el("div", { class: "row" }, el("button", { class: "btn", type: "submit" }, "Save goals"), saved));
     const u = g.unit, toU = (kg) => (u === "lb" ? kg * KG_LB : kg);
     const saved2 = el("span", { class: "small muted", hidden: true }, "Saved");
@@ -1559,7 +1877,7 @@ ${RECIPE_SHAPE}`;
       el("div", { class: "row" }, el("button", { class: "btn", type: "submit" }, "Save"), saved2));
     const about = el("div", { class: "card stack" }, el("h2", {}, "About your data"),
       el("p", { class: "small muted" }, S.storeMode === "db"
-        ? "Meals, photos and weights are saved to your Claude account under a private path. Only you can read them, on any device where you open this page."
+        ? "Meals, photos, weights, water, recipes, plans and check-ins are saved to your Claude account under a private path. Only you can read them, on any device where you open this page."
         : "Your log is saved in this browser only. Open this page in Claude while signed in to keep it on your account."),
       el("p", { class: "small muted" }, "Photo and text estimates run on your own Claude plan, so there's no subscription. Estimates are usually within 15–25% of the true value; hidden oil, butter and dressings cause the biggest misses, so mention them when you can."));
     return [el("div", { class: "row" }, el("button", { class: "iconbtn", "aria-label": "Back to home", onclick: () => { S.tab = "home"; paint(); } }, ico("left")), el("h1", {}, "Settings")), goals, body, about];
@@ -1591,7 +1909,7 @@ ${RECIPE_SHAPE}`;
     const file = e.target.files && e.target.files[0];
     e.target.value = "";
     if (!file) return;
-    startDraft("photo", { file, previewUrl: URL.createObjectURL(file) });
+    startDraft(S.photoKind === "label" ? "label" : "photo", { file, previewUrl: URL.createObjectURL(file) });
     const d = S.draft;
     d.photo = await makeImage(file, 360, false);
   };

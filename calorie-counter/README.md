@@ -12,12 +12,12 @@ The page runs as a claude.ai artifact. Photo and text estimates count against yo
 
 The tabs are Home, Recipes, Plan and Progress. Settings opens from the gear on Home.
 
-- **Home**: week strip with a progress ring for each day, calories left, protein/carbs/fats left, and the day's meals with photos and macros.
-- **Progress**: current weight and progress toward your goal weight, day streak, a daily calorie chart (7/30/90 days) with a goal line, a weight trend chart (30 days, 90 days, 1 year or all), average macros against your goals, and lifetime totals.
+- **Home**: week strip with a progress ring for each day, calories left, protein/carbs/fats left, a water counter, a one-tap row of favorites and usuals, meals planned for the day, and the day's logged meals with photos and macros.
+- **Progress**: a weekly check-in from Claude, current weight and progress toward your goal weight, day streak, a daily calorie chart (7/30/90 days) with a goal line, a weight trend chart (30 days, 90 days, 1 year or all), average macros against your goals, and lifetime totals.
 - **Calendar** (inside Progress): month view where each day's ring fills toward your goal and turns red when you went over. Tap a day to see its meals.
 - **Recipes**: saved recipes with a photo, calories and protein per serving, searchable by name, tag or ingredient.
-- **Plan**: a week at a time. Add saved recipes or custom items (like a dinner out) to any day, see planned calories against your goal, and log a planned meal with one tap. Planned meals for the day also show on Home.
-- **Settings**: calorie and macro goals (with a 30/40/30 split helper), lb or kg, goal weight.
+- **Plan**: a week at a time. Add saved recipes or custom items (like a dinner out) to any day, see planned calories against your goal, and log a planned meal with one tap. **Plan my week** has Claude fill the days and meals you pick from your saved recipes, aiming for your calorie and protein goals; you review the plan before it's added. Planned meals for the day also show on Home.
+- **Settings**: calorie and macro goals (with a 30/40/30 split helper), daily water goal, lb or kg, goal weight.
 
 ## Recipes
 
@@ -30,6 +30,8 @@ The page can't open Instagram links itself, because artifact pages can't reach o
 
 Claude pulls out the title, servings, time, ingredients and steps, and estimates calories and macros for every ingredient. You can then edit the name, servings, time and photo, change any ingredient's calories, remove ingredients, or add ingredients (their calories are estimated automatically). From a saved recipe you can log any number of servings, add it to a day in your plan, edit it or delete it.
 
+**Make it lighter** on a saved recipe asks Claude for a version with fewer calories, more protein, lower carbs or less sugar. It keeps the dish recognizable, recalculates every ingredient, summarizes the swaps, and saves as a new recipe next to the original.
+
 ## Grocery list
 
 On the Plan tab, **Groceries** combines the week's planned recipes into one list, scaled to your planned servings and grouped by store section. Check items off as you shop. If you change the plan, the list offers to rebuild.
@@ -39,15 +41,25 @@ On the Plan tab, **Groceries** combines the week's planned recipes into one list
 Tap **+**:
 
 - **Scan food**: take or pick a photo and add an optional note. Review each ingredient, change portions (½× to 2×), adjust servings, or tap **Fix results** to tell Claude what it got wrong and get a revised estimate.
+- **Scan label**: photograph a nutrition facts panel and optionally say how much you had. Claude reads the printed values instead of estimating.
 - **Describe food**: type what you ate.
 - **Quick add**: enter calories and macros you already know. This works without Claude.
+- **Favorites**: your starred meals plus anything you've logged at least twice in the last 30 days.
 - **Log weight**: record a weigh-in for any date.
 
-If you close the sheet while a photo is being analyzed, the result waits on the home screen. Tap any logged meal to see its details, delete it, or log it again today.
+If you close the sheet while a photo is being analyzed, the result waits on the home screen. Tap any logged meal to see its details, star it as a favorite, delete it, or log it again today. Logging from the favorites row on Home shows an Undo button for a few seconds.
+
+## Water
+
+Tap + or − on the Home water card. Each glass is 8 oz (250 ml when units are set to kg). Set the daily goal in Settings.
+
+## Weekly check-in
+
+On Progress, **Get my check-in** sends Claude a summary of your last 7 days: daily calories and macros, meal counts, water, weigh-ins and most-logged foods. It returns a one-line summary, what went well, and one or two things to try. The latest check-in is saved; tap **Refresh** for a new one.
 
 ## Storage
 
-When you're signed in to Claude, everything is saved to the artifact's database under your private per-user path (`data/users/<your id>/…`). No one else can read it, including anyone you share the page with. Meals, weigh-ins, recipes, plan entries, grocery lists and photos (meal photos resized to 360 px, recipe photos to 480 px) are stored in separate collections. If the page can't reach that database, it saves to browser storage instead.
+When you're signed in to Claude, everything is saved to the artifact's database under your private per-user path (`data/users/<your id>/…`). No one else can read it, including anyone you share the page with. Meals, weigh-ins, water, favorites, check-ins, recipes, plan entries, grocery lists and photos (meal photos resized to 360 px, recipe photos to 480 px) are stored in separate collections. If the page can't reach that database, it saves to browser storage instead.
 
 ## Accuracy
 
