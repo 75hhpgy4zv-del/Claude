@@ -1,7 +1,7 @@
 <title>Plate Counter</title>
 <link rel="preconnect" href="https://fonts.googleapis.com">
 <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin>
-<link rel="stylesheet" href="https://fonts.googleapis.com/css2?family=Inter:wght@400;500;600;700;800&display=swap">
+<link rel="stylesheet" href="https://fonts.googleapis.com/css2?family=Inter:wght@400;500;600;700;800&family=Nunito:wght@700;800;900&display=swap">
 <style>
 /* Layout: a phone app shell. One scrolling screen per tab, a bottom tab bar, a floating add button, and bottom sheets for every task. */
 :root {
@@ -21,6 +21,10 @@
   --good: #1f9d55;
   --over: #d63a2f;
   --water: #0f8fa3;
+  --xp: #7c5cff;
+  --coin: #d99a00;
+  --edge: rgba(17, 17, 20, .05);
+  --numf: ui-rounded, "SF Pro Rounded", "Nunito", -apple-system, BlinkMacSystemFont, sans-serif;
   --shadow: 0 1px 2px rgba(17, 17, 20, .04), 0 6px 20px rgba(17, 17, 20, .06);
   --font: -apple-system, BlinkMacSystemFont, "SF Pro Text", "Inter", "Segoe UI", Roboto, sans-serif;
   --r-card: 22px;
@@ -30,7 +34,7 @@
   :root:not([data-theme="light"]) {
     --bg: #000000; --card: #1c1c1e; --sunk: #2a2a2e; --ink: #f5f5f7; --ink2: #aeaeb6; --muted: #7c7c85;
     --line: #2c2c30; --btn: #f5f5f7; --btn-ink: #000000;
-    --protein: #e0588a; --carbs: #bf8710; --fat: #5b8cec; --flame: #ff8a3d; --good: #46c37b; --over: #ff6b5e; --water: #3cc9da;
+    --protein: #e0588a; --carbs: #bf8710; --fat: #5b8cec; --flame: #ff8a3d; --good: #46c37b; --over: #ff6b5e; --water: #3cc9da; --xp: #9d85ff; --coin: #f2c14e; --edge: rgba(255, 255, 255, .06);
     --shadow: none;
     color-scheme: dark;
   }
@@ -38,7 +42,7 @@
 :root[data-theme="dark"] {
   --bg: #000000; --card: #1c1c1e; --sunk: #2a2a2e; --ink: #f5f5f7; --ink2: #aeaeb6; --muted: #7c7c85;
   --line: #2c2c30; --btn: #f5f5f7; --btn-ink: #000000;
-  --protein: #e0588a; --carbs: #bf8710; --fat: #5b8cec; --flame: #ff8a3d; --good: #46c37b; --over: #ff6b5e; --water: #3cc9da;
+  --protein: #e0588a; --carbs: #bf8710; --fat: #5b8cec; --flame: #ff8a3d; --good: #46c37b; --over: #ff6b5e; --water: #3cc9da; --xp: #9d85ff; --coin: #f2c14e; --edge: rgba(255, 255, 255, .06);
   --shadow: none;
   color-scheme: dark;
 }
@@ -155,7 +159,7 @@ textarea.input { resize: vertical; min-height: 80px; }
 
 /* Tab bar & FAB */
 .tabs { position: fixed; left: 0; right: 0; bottom: 0; z-index: 20; background: color-mix(in srgb, var(--card) 92%, transparent); backdrop-filter: blur(16px); -webkit-backdrop-filter: blur(16px); border-top: 1px solid var(--line); padding-bottom: env(safe-area-inset-bottom, 0px); }
-.tabs .in { max-width: 480px; margin: 0 auto; display: grid; grid-template-columns: repeat(4, 1fr) 76px; align-items: center; padding: 6px 8px 8px; }
+.tabs .in { max-width: 480px; margin: 0 auto; display: grid; grid-template-columns: repeat(5, 1fr) 68px; align-items: center; padding: 6px 8px 8px; }
 .tab { display: flex; flex-direction: column; align-items: center; gap: 3px; font-size: 11px; font-weight: 600; color: var(--muted); padding: 4px 0; }
 .tab svg { width: 24px; height: 24px; }
 .tab[aria-current="page"] { color: var(--ink); }
@@ -349,6 +353,118 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
 .starbtn[aria-pressed="true"] { color: var(--flame); }
 .lighter { display: flex; gap: 6px; flex-wrap: wrap; }
 
+/* Polish: rounded numerals, press feedback, entrance motion */
+.num, .hero .num, .mcard .num, .tile .v, .calrow b, .mini b, .lvlnum, .sval, .streak, .activity .num { font-family: var(--numf); font-variant-numeric: normal; letter-spacing: -.01em; }
+.btn, .addtile, .pick, button.card, .fab, .classcard, .herochip, .wd, .tab { transition: transform .14s ease, background-color .2s ease, box-shadow .2s ease; }
+:is(.btn, .addtile, .pick, button.card, .fab, .classcard, .herochip):active:not(:disabled) { transform: scale(.97); }
+.view.enter > * { animation: enterUp .38s cubic-bezier(.2,.8,.2,1) both; }
+.view.enter > *:nth-child(2) { animation-delay: .03s; } .view.enter > *:nth-child(3) { animation-delay: .06s; } .view.enter > *:nth-child(4) { animation-delay: .09s; }
+.view.enter > *:nth-child(5) { animation-delay: .12s; } .view.enter > *:nth-child(6) { animation-delay: .15s; } .view.enter > *:nth-child(n+7) { animation-delay: .18s; }
+@keyframes enterUp { from { opacity: .001; transform: translateY(10px); } to { opacity: 1; transform: none; } }
+.ring-arc.anim { animation: ringIn .9s cubic-bezier(.2,.8,.2,1) both; }
+@keyframes ringIn { from { stroke-dasharray: 0 999; } }
+@media (prefers-reduced-motion: reduce) { .view.enter > *, .ring-arc.anim { animation: none; } :is(.btn, .addtile, .pick, button.card, .fab, .classcard, .herochip):active { transform: none; } }
+.card { border: 1px solid var(--edge); }
+.sechead h2 { font-size: 18px; }
+
+/* Header hero chip */
+.herochip { display: flex; align-items: center; gap: 10px; text-align: left; min-width: 0; }
+.herochip .hc { min-width: 0; display: flex; flex-direction: column; gap: 1px; }
+.herochip .hc b { font-size: 16px; overflow: hidden; text-overflow: ellipsis; white-space: nowrap; }
+.xpbar { height: 8px; border-radius: 4px; background: var(--sunk); overflow: hidden; margin-block: 6px 2px; }
+.xpbar i { display: block; height: 100%; border-radius: 4px; background: linear-gradient(90deg, var(--xpc, var(--xp)), color-mix(in srgb, var(--xpc, var(--xp)) 60%, #fff)); transition: width .6s cubic-bezier(.2,.8,.2,1); }
+.xpbar.mini { width: 96px; height: 5px; margin-block: 3px 0; }
+.streak.gold svg { color: var(--coin); }
+
+/* Avatar and frames */
+.avatar { border-radius: 50%; display: grid; place-items: center; flex: none; background: radial-gradient(circle at 30% 25%, color-mix(in srgb, var(--aura, var(--xp)) 30%, var(--card)), var(--sunk)); color: var(--ink); box-shadow: 0 0 0 2.5px var(--card), 0 0 0 4.5px var(--frame, var(--line)); }
+.avatar svg { width: 56%; height: 56%; }
+.avatar.big { box-shadow: 0 0 0 3px var(--card), 0 0 0 6px var(--frame, var(--line)), 0 0 22px 2px color-mix(in srgb, var(--aura, transparent) 45%, transparent); }
+.f-bronze { --frame: #b87333; } .f-silver { --frame: #a7b0ba; } .f-gold { --frame: var(--coin); }
+.f-aurora { --frame: #7c5cff; animation: aurora 6s linear infinite; }
+@keyframes aurora { 0% { --frame: #7c5cff; filter: hue-rotate(0deg); } 100% { filter: hue-rotate(360deg); } }
+@media (prefers-reduced-motion: reduce) { .f-aurora { animation: none; } }
+
+/* Activity */
+.activity { display: flex; align-items: center; gap: 14px; padding: 14px 16px; text-align: left; width: 100%; }
+.activity .ring .mid svg { width: 22px; height: 22px; color: var(--good); }
+.abody { flex: 1; min-width: 0; display: flex; flex-direction: column; gap: 2px; }
+.activity .num { font-size: 24px; font-weight: 800; }
+.astats { display: flex; gap: 12px; flex-wrap: wrap; font-size: 12.5px; color: var(--ink2); font-weight: 600; margin-top: 2px; }
+.astats span { display: inline-flex; align-items: center; gap: 4px; }
+.astats svg { width: 14px; height: 14px; }
+
+/* Quests */
+.quests { gap: 4px; }
+.quest { display: flex; align-items: center; gap: 12px; padding-block: 10px; border-top: 1px solid var(--line); }
+.quest .qicon { width: 36px; height: 36px; border-radius: 11px; background: var(--sunk); display: grid; place-items: center; flex: none; color: var(--ink2); }
+.quest .qicon svg { width: 18px; height: 18px; }
+.quest.ready .qicon { background: color-mix(in srgb, var(--coin) 22%, var(--card)); color: var(--coin); }
+.quest.claimed .qicon { background: color-mix(in srgb, var(--good) 18%, var(--card)); color: var(--good); }
+.qbody { flex: 1; min-width: 0; display: flex; flex-direction: column; gap: 2px; }
+.qname { font-weight: 700; font-size: 14.5px; }
+.qbar { height: 5px; border-radius: 3px; background: var(--sunk); overflow: hidden; margin-top: 3px; }
+.qbar i { display: block; height: 100%; border-radius: 3px; background: var(--xp); transition: width .6s cubic-bezier(.2,.8,.2,1); }
+.quest.claimed .qbar i { background: var(--good); }
+.qreward { font-size: 12.5px; font-weight: 700; color: var(--ink2); white-space: nowrap; }
+.qreward .bonus { font-style: normal; color: var(--coin); margin-left: 3px; }
+.qdone { display: inline-flex; align-items: center; gap: 4px; font-size: 12.5px; font-weight: 700; color: var(--good); white-space: nowrap; }
+.qdone svg { width: 13px; height: 13px; }
+.btn.claim { background: var(--coin); color: #1b1400; box-shadow: 0 4px 14px color-mix(in srgb, var(--coin) 40%, transparent); animation: glow 1.6s ease-in-out infinite; }
+@keyframes glow { 50% { box-shadow: 0 4px 22px color-mix(in srgb, var(--coin) 70%, transparent); } }
+@media (prefers-reduced-motion: reduce) { .btn.claim { animation: none; } }
+.chest { display: flex; align-items: center; gap: 12px; padding: 12px; border-radius: 14px; background: var(--sunk); margin-top: 6px; }
+.chest.ready { background: color-mix(in srgb, var(--coin) 16%, var(--card)); }
+.chest.open { opacity: .7; }
+.cicon { width: 40px; height: 40px; border-radius: 12px; display: grid; place-items: center; background: var(--card); color: var(--coin); flex: none; }
+.cicon svg { width: 22px; height: 22px; }
+
+/* Hero sheet */
+.herocard { background: var(--btn); color: var(--btn-ink); border-color: transparent; display: flex; flex-direction: column; gap: 16px; }
+.herocard .avatar { --card: var(--btn); color: var(--ink); }
+.hname { font-size: 22px; font-weight: 800; letter-spacing: -.02em; overflow-wrap: anywhere; }
+.hsub { opacity: .72; }
+.herocard .xpbar { background: color-mix(in srgb, var(--btn-ink) 16%, transparent); }
+.stats4 { display: grid; grid-template-columns: repeat(4, 1fr); gap: 8px; }
+.stat { background: color-mix(in srgb, var(--btn-ink) 9%, transparent); border-radius: 12px; padding: 10px; display: flex; flex-direction: column; gap: 2px; }
+.sab { font-size: 11px; font-weight: 800; letter-spacing: .08em; opacity: .7; }
+.sval { font-size: 22px; font-weight: 800; }
+.sbar { height: 4px; border-radius: 2px; background: color-mix(in srgb, var(--btn-ink) 16%, transparent); overflow: hidden; }
+.sbar i { display: block; height: 100%; background: var(--xpc, var(--xp)); }
+.classgrid { display: grid; grid-template-columns: 1fr 1fr; gap: 10px; }
+.classcard { background: var(--sunk); border-radius: 18px; padding: 16px 14px; display: flex; flex-direction: column; gap: 6px; text-align: left; }
+.cemb { width: 48px; height: 48px; border-radius: 50%; background: var(--card); display: grid; place-items: center; }
+.cemb svg { width: 26px; height: 26px; }
+.boss .bossicon { width: 44px; height: 44px; border-radius: 12px; background: color-mix(in srgb, var(--over) 16%, var(--card)); color: var(--over); display: grid; place-items: center; flex: none; }
+.boss .bossicon svg { width: 24px; height: 24px; }
+.hpbar { height: 14px; border-radius: 7px; background: var(--sunk); overflow: hidden; }
+.hpbar i { display: block; height: 100%; border-radius: 7px; background: linear-gradient(90deg, var(--over), color-mix(in srgb, var(--over) 70%, #ffb199)); transition: width .8s cubic-bezier(.2,.8,.2,1); }
+.boss.down .bossicon { filter: grayscale(1); opacity: .6; }
+.achgrid { display: grid; grid-template-columns: repeat(2, 1fr); gap: 8px; }
+.ach { background: var(--sunk); border-radius: 14px; padding: 12px; display: flex; flex-direction: column; gap: 3px; opacity: .6; }
+.ach.ready, .ach.got { opacity: 1; }
+.ach.got { background: color-mix(in srgb, var(--coin) 12%, var(--card)); box-shadow: inset 0 0 0 1px color-mix(in srgb, var(--coin) 35%, transparent); }
+.ach .aicon { color: var(--muted); } .ach.got .aicon, .ach.ready .aicon { color: var(--coin); }
+.ach .aicon svg { width: 20px; height: 20px; }
+.ach .btn { align-self: flex-start; margin-top: 4px; }
+.shophead { font-size: 12.5px; text-transform: uppercase; letter-spacing: .06em; color: var(--muted); font-weight: 700; margin-top: 6px; }
+.shoprow { display: flex; align-items: center; gap: 12px; padding-block: 6px; }
+.rar { width: 38px; height: 38px; border-radius: 11px; display: grid; place-items: center; flex: none; background: var(--sunk); }
+.rar svg { width: 20px; height: 20px; }
+.rar i { width: 18px; height: 18px; border-radius: 50%; }
+.r-common { color: var(--ink2); } .r-rare { color: var(--fat); } .r-epic { color: var(--xp); } .r-legendary { color: var(--coin); }
+.buy svg { width: 14px; height: 14px; color: var(--coin); }
+
+/* Level up */
+.lvlwrap { position: fixed; inset: 0; z-index: 80; background: rgba(0,0,0,.55); display: grid; place-items: center; padding: 16px; animation: fade .2s ease-out; }
+.lvlcard { position: relative; background: var(--card); border-radius: 28px; padding: 32px 24px 22px; width: min(340px, 100%); display: flex; flex-direction: column; align-items: center; gap: 8px; text-align: center; animation: pop .45s cubic-bezier(.2,1.4,.4,1) both; overflow: hidden; }
+.lvlnum { font-size: 72px; font-weight: 900; line-height: 1; background: linear-gradient(180deg, var(--coin), var(--xp)); -webkit-background-clip: text; background-clip: text; color: transparent; }
+.burst { position: absolute; top: 70px; left: 50%; width: 0; height: 0; }
+.burst i { position: absolute; width: 4px; height: 26px; border-radius: 2px; background: var(--coin); transform: rotate(var(--r)) translateY(-78px); opacity: 0; animation: ray .9s ease-out .1s both; }
+@keyframes ray { 30% { opacity: 1; } to { opacity: 0; transform: rotate(var(--r)) translateY(-120px); } }
+@keyframes pop { from { transform: scale(.7); opacity: 0; } to { transform: none; opacity: 1; } }
+@media (prefers-reduced-motion: reduce) { .lvlcard, .burst i { animation: none; } }
+
 @media (max-width: 380px) {
   .hero .num { font-size: 40px; }
   .mcard { padding: 12px 10px; }
@@ -363,12 +479,15 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     <button class="tab" data-tab="home" aria-current="page"></button>
     <button class="tab" data-tab="recipes"></button>
     <button class="tab" data-tab="plan"></button>
+    <button class="tab" data-tab="hero"></button>
     <button class="tab" data-tab="progress"></button>
     <button class="fab" id="fab" aria-label="Add food or weight"></button>
   </div>
 </nav>
 <div id="sheetRoot"></div>
 <div id="toast" class="toast" role="status" hidden></div>
+<div id="levelUp" class="lvlwrap" hidden></div>
+<input type="file" id="activityFiles" accept="image/*" multiple class="vh" tabindex="-1" aria-hidden="true">
 <input type="file" id="photoInput" accept="image/*" capture="environment" class="vh" tabindex="-1" aria-hidden="true">
 <input type="file" id="recipeFiles" accept="image/*" multiple class="vh" tabindex="-1" aria-hidden="true">
 <input type="file" id="recipePhoto" accept="image/*" class="vh" tabindex="-1" aria-hidden="true">
@@ -405,6 +524,25 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
   ICONS.glass = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linejoin="round"><path d="M6 3.5h12l-1.6 16.2a1.5 1.5 0 0 1-1.5 1.3H9.1a1.5 1.5 0 0 1-1.5-1.3z"/><path d="M6.8 10.5h10.4"/></svg>';
   ICONS.sparkle = '<svg viewBox="0 0 24 24" fill="currentColor"><path d="M11 2.5l1.9 5.6 5.6 1.9-5.6 1.9L11 17.5l-1.9-5.6L3.5 10l5.6-1.9zM18.5 14l.9 2.6 2.6.9-2.6.9-.9 2.6-.9-2.6-2.6-.9 2.6-.9z"/></svg>';
   ICONS.tag = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><rect x="5" y="3.5" width="14" height="17" rx="2"/><path d="M8.5 8h7M8.5 11.5h7M8.5 15h4"/></svg>';
+  Object.assign(ICONS, {
+    steps: '<svg viewBox="0 0 24 24" fill="currentColor"><path d="M8.2 3c1.7 0 2.8 2 2.6 4.7-.2 2.3-1.1 4-2.6 4-1.7 0-2.6-1.8-2.6-4.3C5.6 4.9 6.6 3 8.2 3zM5.9 13.6l4.4-.6c.3 1.9.2 3.5-.4 4.6-.6 1-1.6 1.4-2.5 1.2-1.1-.3-1.6-1.4-1.5-2.7zM15.8 7c1.6 0 2.6 1.9 2.6 4.4 0 2.5-.9 4.3-2.6 4.3-1.5 0-2.4-1.7-2.6-4-.2-2.7.9-4.7 2.6-4.7zM13.7 17l4.4.6c.1 1.3-.4 2.4-1.5 2.7-.9.2-1.9-.2-2.5-1.2-.3-.6-.4-1.3-.4-2.1z"/></svg>',
+    clock: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2.2" stroke-linecap="round"><circle cx="12" cy="12" r="8.5"/><path d="M12 7.5V12l3 2"/></svg>',
+    sword: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M14.5 4H20v5.5L10 19.5 4.5 14z"/><path d="M7 16.5 4 19.5M5 13l6 6"/></svg>',
+    chest: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linejoin="round"><path d="M4 10a5 5 0 0 1 5-5h6a5 5 0 0 1 5 5v9H4z"/><path d="M4 11h16M10.5 11v3h3v-3"/></svg>',
+    skull: '<svg viewBox="0 0 24 24" fill="currentColor"><path d="M12 2.8c-4.7 0-8 3.2-8 7.6 0 2.6 1.2 4.6 3 5.8V19a2 2 0 0 0 2 2h6a2 2 0 0 0 2-2v-2.8c1.8-1.2 3-3.2 3-5.8 0-4.4-3.3-7.6-8-7.6zm-3.2 6.7a2 2 0 1 1 0 4 2 2 0 0 1 0-4zm6.4 0a2 2 0 1 1 0 4 2 2 0 0 1 0-4zM12 14.2l1.3 2.3h-2.6z"/></svg>',
+    trophy: '<svg viewBox="0 0 24 24" fill="currentColor"><path d="M7 3.5h10V5h3.2v1.5c0 3-1.8 5.2-4.4 5.8A5 5 0 0 1 13 15v2.5h3v3H8v-3h3V15a5 5 0 0 1-2.8-2.7C5.6 11.7 3.8 9.5 3.8 6.5V5H7zm0 3.2H5.6c.2 1.6 1 2.8 2 3.4A10 10 0 0 1 7 6.7zm10 0c0 1.2-.2 2.3-.6 3.4 1-.6 1.8-1.8 2-3.4z"/></svg>',
+    lock: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round"><rect x="5" y="10.5" width="14" height="10" rx="2.5"/><path d="M8.5 10.5V8a3.5 3.5 0 0 1 7 0v2.5"/></svg>',
+    coin: '<svg viewBox="0 0 24 24" fill="currentColor"><path d="M12 3a9 9 0 1 1 0 18 9 9 0 0 1 0-18zm0 3.2a5.8 5.8 0 1 0 0 11.6 5.8 5.8 0 0 0 0-11.6zm0 2.3 1 2.3 2.4.2-1.8 1.6.6 2.4L12 13.7l-2.2 1.3.6-2.4-1.8-1.6 2.4-.2z"/></svg>',
+    shield: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linejoin="round"><path d="M12 3l7.5 3v5.5c0 4.6-3.2 8-7.5 9.5-4.3-1.5-7.5-4.9-7.5-9.5V6z"/></svg>',
+    frame: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2"><circle cx="12" cy="12" r="8"/><circle cx="12" cy="12" r="4.5"/></svg>',
+    scroll: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M7 4h11a2 2 0 0 1 0 4h-1v10a2 2 0 0 1-2 2H6a2 2 0 0 1 0-4h1z"/><path d="M10 9h4M10 12.5h4"/></svg>',
+    c_warrior: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M12 3l7 3v5c0 4.8-3 8.3-7 10-4-1.7-7-5.2-7-10V6z"/><path d="M12 7.5v8M9 10.5h6"/></svg>',
+    c_ranger: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M5 19C5 10.5 10.5 5 19 5"/><path d="M5 19 19 5M14.5 5H19v4.5M5 19l2.5-.5M5 19l.5-2.5"/></svg>',
+    c_monk: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linejoin="round"><path d="M12 4.5c2.3 3 2.3 7.5 0 11.5-2.3-4-2.3-8.5 0-11.5z"/><path d="M4.5 9.5c3.5.8 6 3.2 7.5 6.5-4.3.2-7-2.2-7.5-6.5zM19.5 9.5c-3.5.8-6 3.2-7.5 6.5 4.3.2 7-2.2 7.5-6.5z"/><path d="M5 19.5h14"/></svg>',
+    c_mage: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M12 2.8l5.2 12.7H6.8z"/><path d="M4 18.5c2.5-1.6 13.5-1.6 16 0"/><path d="M13.2 8.2l1.8-.8"/></svg>',
+    c_novice: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round"><circle cx="12" cy="8.5" r="3.8"/><path d="M4.8 20c1.2-3.8 4-5.5 7.2-5.5s6 1.7 7.2 5.5"/></svg>',
+  });
+  ICONS.hero = ICONS.c_warrior;
   ICONS.recipes = ICONS.book; ICONS.plan = ICONS.history;
   const ico = (name, cls = "") => { const t = document.createElement("template"); t.innerHTML = ICONS[name].trim(); const s = t.content.firstChild; s.setAttribute("aria-hidden", "true"); if (cls) s.setAttribute("class", cls); return s; };
 
@@ -446,10 +584,10 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
   // ================= state =================
   const S = {
     tab: "home", day: today(), meals: [], weights: [], byDay: new Map(),
-    settings: { goal: 2000, protein: 150, carbs: 200, fat: 65, unit: "lb", goalWeight: null, waterGoal: 8 },
+    settings: { goal: 2000, protein: 150, carbs: 200, fat: 65, unit: "lb", goalWeight: null, waterGoal: 8, stepGoal: 8000, exGoal: 30, eatBack: false, hero: null },
     calRange: 7, wRange: 90, month: today().slice(0, 7), histDay: today(),
     draft: null, sheet: null, storeMode: "local",
-    recipes: [], plan: [], groceries: new Map(), favorites: [], water: new Map(), checkins: [], checkinBusy: false, checkinErr: "", photoKind: "photo", rdraft: null, rq: "", pq: "", planWeek: null, progView: "trends",
+    recipes: [], plan: [], groceries: new Map(), favorites: [], water: new Map(), checkins: [], activity: new Map(), rpg: new Map(), adraft: null, enter: false, checkinBusy: false, checkinErr: "", photoKind: "photo", rdraft: null, rq: "", pq: "", planWeek: null, progView: "trends",
   };
 
   function derive() {
@@ -466,9 +604,11 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
   const dayTotals = (k) => S.byDay.get(k) || { kcal: 0, protein: 0, carbs: 0, fat: 0, count: 0 };
   function streakInfo() {
     const t = today();
-    let cur = 0, k = dayTotals(t).count ? t : addDays(t, -1);
-    while (dayTotals(k).count) { cur++; k = addDays(k, -1); }
-    const days = [...S.byDay.keys()].sort();
+    const shields = new Set((S.settings.hero && S.settings.hero.shieldDays) || []);
+    const on = (k) => dayTotals(k).count || shields.has(k);
+    let cur = 0, k = on(t) ? t : addDays(t, -1);
+    while (on(k)) { cur++; k = addDays(k, -1); }
+    const days = [...new Set([...S.byDay.keys(), ...shields])].sort();
     let best = 0, run = 0, prev = null;
     for (const d of days) { run = prev && addDays(prev, 1) === d ? run + 1 : 1; best = Math.max(best, run); prev = d; }
     return { cur, best };
@@ -542,6 +682,8 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     on("groceries", {}, (l) => { S.groceries = new Map(l.map((g) => [g.id, g])); });
     on("favorites", { order: "createdAt", dir: "desc" }, (l) => { S.favorites = l.sort((a, b) => String(b.createdAt).localeCompare(String(a.createdAt))); });
     on("water", { since: addDays(t, -70) }, (l) => { const m = new Map(l.map((w) => [w.date, w])); for (const k of waterTimers.keys()) if (S.water.has(k)) m.set(k, S.water.get(k)); S.water = m; });
+    on("activity", { since: addDays(t, -400) }, (l) => { S.activity = new Map(l.map((a) => [a.date, a])); });
+    on("rpg", {}, (l) => { S.rpg = new Map(l.map((d) => [d.id, d])); });
     on("checkins", { order: "date", dir: "desc" }, (l) => { S.checkins = l.sort((a, b) => String(b.date).localeCompare(String(a.date))); });
   }
 
@@ -684,7 +826,7 @@ ${SHAPE}`;
     document.body.style.overflow = "hidden";
     const sheet = el("div", { class: "sheet", role: "dialog", "aria-modal": "true" }, el("div", { class: "grabber" }));
     const scrim = el("div", { class: "scrim", onclick: (e) => { if (e.target === scrim) closeSheet(); } }, sheet);
-    const body = { add: sheetAdd, draft: sheetDraft, meal: sheetMeal, weight: sheetWeight, rimport: sheetRImport, recipe: sheetRecipe, pick: sheetPick, entry: sheetEntry, grocery: sheetGrocery, autoplan: sheetAutoplan, favs: sheetFavs }[S.sheet.type || S.sheet]();
+    const body = { add: sheetAdd, draft: sheetDraft, meal: sheetMeal, weight: sheetWeight, rimport: sheetRImport, recipe: sheetRecipe, pick: sheetPick, entry: sheetEntry, grocery: sheetGrocery, autoplan: sheetAutoplan, favs: sheetFavs, activity: sheetActivity }[S.sheet.type || S.sheet]();
     sheet.append(...[].concat(body).filter(Boolean));
     root.append(scrim);
     if (prevScroll) sheet.scrollTop = prevScroll;
@@ -1276,7 +1418,7 @@ ${RECIPE_SHAPE}`;
   let toastTimer = null;
   function toast(msg, undo) {
     const t = $("toast");
-    t.replaceChildren(el("span", {}, msg), undo ? el("button", { onclick: async () => { t.hidden = true; try { await undo(); } catch {} } }, "Undo") : null);
+    t.replaceChildren(...[el("span", {}, msg), undo ? el("button", { onclick: async () => { t.hidden = true; try { await undo(); } catch {} } }, "Undo") : null].filter(Boolean));
     t.hidden = false;
     clearTimeout(toastTimer);
     toastTimer = setTimeout(() => { t.hidden = true; }, 4500);
@@ -1485,13 +1627,13 @@ Reply with only JSON: {"days":[{"date":"${want[0].k}","meals":[{"slot":"dinner",
   function checkinData() {
     const t = today(), g = S.settings, u = g.unit, toU = (kg) => (u === "lb" ? kg * KG_LB : kg);
     const days = Array.from({ length: 7 }, (_, i) => addDays(t, i - 6));
-    const rows = days.map((k) => { const d = dayTotals(k); return `${k}: ${d.count ? `${fmt(d.kcal)} kcal, ${fmt(d.protein)} g protein, ${fmt(d.carbs)} g carbs, ${fmt(d.fat)} g fat, ${d.count} meals` : "nothing logged"}; water ${glassesOn(k)} glasses`; });
+    const rows = days.map((k) => { const d = dayTotals(k); return `${k}: ${d.count ? `${fmt(d.kcal)} kcal, ${fmt(d.protein)} g protein, ${fmt(d.carbs)} g carbs, ${fmt(d.fat)} g fat, ${d.count} meals` : "nothing logged"}; water ${glassesOn(k)} glasses; ${fmt(actTotals(k).steps)} steps, ${actTotals(k).exMin} min exercise, ${fmt(actTotals(k).activeKcal)} active kcal`; });
     const ws = S.weights.filter((w) => w.date >= days[0]);
     const weight = ws.length >= 2 ? `from ${toU(ws[0].kg).toFixed(1)} to ${toU(ws[ws.length - 1].kg).toFixed(1)} ${u}` : ws.length ? `one weigh-in: ${toU(ws[0].kg).toFixed(1)} ${u}` : "no weigh-ins";
     const counts = new Map();
     S.meals.filter((m) => m.date >= days[0]).forEach((m) => counts.set(m.name, (counts.get(m.name) || 0) + 1));
     const top = [...counts.entries()].sort((a, b) => b[1] - a[1]).slice(0, 8).map(([n, c]) => `${n} (${c}×)`).join(", ") || "none";
-    return { logged: days.filter((k) => dayTotals(k).count).length, text: `Goals per day: ${g.goal} kcal, ${g.protein} g protein, ${g.carbs} g carbs, ${g.fat} g fat, ${g.waterGoal || 8} glasses of water.${g.goalWeight ? ` Goal weight ${toU(g.goalWeight).toFixed(1)} ${u}.` : ""}
+    return { logged: days.filter((k) => dayTotals(k).count).length, text: `Goals per day: ${g.goal} kcal, ${fmt(g.stepGoal || 8000)} steps, ${g.exGoal || 30} min exercise, ${g.protein} g protein, ${g.carbs} g carbs, ${g.fat} g fat, ${g.waterGoal || 8} glasses of water.${g.goalWeight ? ` Goal weight ${toU(g.goalWeight).toFixed(1)} ${u}.` : ""}
 Last 7 days:
 ${rows.join("\n")}
 Weight this week: ${weight}.
@@ -1527,6 +1669,373 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
       S.checkinErr ? el("p", { class: "err" }, S.checkinErr) : null, btn);
   }
 
+  // ================= activity =================
+  const WORKOUTS = { walk: ["Walk", 3.5], run: ["Run", 9.8], cycle: ["Cycle", 7.5], strength: ["Strength", 5], yoga: ["Yoga", 2.5], hiit: ["HIIT", 8], swim: ["Swim", 7], hike: ["Hike", 6], sports: ["Sports", 7], other: ["Other", 4] };
+  const bodyKg = () => { const w = S.weights[S.weights.length - 1]; return w ? Number(w.kg) : 75; };
+  const workoutKcal = (type, min) => Math.round((WORKOUTS[type] || WORKOUTS.other)[1] * bodyKg() * (min / 60));
+  function actTotals(k) {
+    const a = S.activity.get(k) || {}, wk = Array.isArray(a.workouts) ? a.workouts : [];
+    const wkKcal = wk.reduce((s, w) => s + (Number(w.kcal) || 0), 0), wkMin = wk.reduce((s, w) => s + (Number(w.minutes) || 0), 0);
+    const activeKcal = a.activeKcal != null && a.activeKcal !== "" ? Number(a.activeKcal) : wkKcal;
+    const exMin = a.exMin != null && a.exMin !== "" ? Math.max(Number(a.exMin), wkMin) : wkMin;
+    return { steps: Number(a.steps) || 0, activeKcal: Math.round(activeKcal) || 0, exMin: Math.round(exMin) || 0, workouts: wk, has: S.activity.has(k) };
+  }
+  const budgetFor = (k) => S.settings.goal + (S.settings.eatBack ? actTotals(k).activeKcal : 0);
+
+  function openActivity(k = S.day) {
+    const a = S.activity.get(k) || {};
+    S.adraft = { k, steps: a.steps ?? "", activeKcal: a.activeKcal ?? "", exMin: a.exMin ?? "", workouts: (a.workouts || []).map((w) => ({ ...w })), phase: "edit", error: "", note: "", addType: "walk", addMin: "" };
+    openSheet({ type: "activity" });
+  }
+  async function importActivity(files) {
+    const d = S.adraft;
+    if (!d || !files.length) return;
+    if (!sample) { d.error = "Claude isn't connected in this view, so it can't read screenshots. Enter the numbers instead."; renderSheet(); return; }
+    d.phase = "thinking"; d.error = ""; renderSheet();
+    try {
+      const out = await sample.json(`The attached screenshot${files.length > 1 ? "s come" : " comes"} from a fitness tracker or smartwatch app, such as Apple Fitness or Health, Google Fit, Samsung Health, Garmin Connect, Fitbit, Oura, Whoop or Strava. Read the activity values shown for one day. Only report numbers that are visible and use null for anything not shown. Active calories means calories burned by movement (for example Apple's Move ring or Garmin's active calories), not total or resting calories.
+Reply with only JSON: {"steps":8421,"activeKcal":512,"exMin":34,"workouts":[{"type":"run","name":"Outdoor Run","minutes":28,"kcal":310}],"notes":"one short sentence, or empty"}
+type is one of walk, run, cycle, strength, yoga, hiit, swim, hike, sports, other.`, { images: files, modelTier: "default", cache: false });
+      if (S.adraft !== d) return;
+      const n = (v, max) => (v == null || v === "" || !Number.isFinite(Number(v)) ? null : int(v, max));
+      if (n(out.steps, 200000) != null) d.steps = n(out.steps, 200000);
+      if (n(out.activeKcal, 10000) != null) d.activeKcal = n(out.activeKcal, 10000);
+      if (n(out.exMin, 1440) != null) d.exMin = n(out.exMin, 1440);
+      for (const w of Array.isArray(out.workouts) ? out.workouts : []) {
+        const type = WORKOUTS[w && w.type] ? w.type : "other", minutes = int(w && w.minutes, 1440);
+        if (!minutes) continue;
+        d.workouts.push({ id: newId(), type, name: String((w && w.name) || WORKOUTS[type][0]).slice(0, 40), minutes, kcal: n(w.kcal, 5000) ?? workoutKcal(type, minutes) });
+      }
+      d.note = String(out.notes || "Filled in from your screenshot. Check the numbers, then save.").slice(0, 200);
+    } catch (e) {
+      if (S.adraft !== d) return;
+      d.error = e && e.code === "images_unavailable" ? "This view can't send screenshots to Claude. Enter the numbers instead." : errText(e);
+    }
+    d.phase = "edit";
+    if (S.sheet && S.sheet.type === "activity") renderSheet();
+  }
+  function sheetActivity() {
+    const d = S.adraft;
+    if (!d) return [sheetHead("Activity")];
+    if (d.phase === "thinking") return [sheetHead("Reading your screenshot", dayName(d.k)), el("div", { class: "card stack" }, el("div", { class: "bar-ind" }, el("i")), el("p", { class: "muted" }, "Pulling steps, active calories and workouts from the screenshot…"))];
+    const g = S.settings;
+    const num = (id, label, key, ph) => el("div", { class: "field" }, el("label", { for: id }, label), el("input", { class: "input tnum", id, type: "number", min: "0", inputmode: "numeric", placeholder: ph, value: d[key], oninput: (e) => { d[key] = e.target.value; } }));
+    const wkSum = d.workouts.reduce((a, w) => a + (Number(w.kcal) || 0), 0), wkMin = d.workouts.reduce((a, w) => a + (Number(w.minutes) || 0), 0);
+    return [
+      sheetHead("Activity", dayName(d.k)),
+      el("div", { class: "card stack" },
+        el("div", { class: "row between" }, el("b", {}, "From your watch or phone"), el("span", { class: "small muted" }, "Apple, Garmin, Fitbit…")),
+        el("p", { class: "small muted" }, "Screenshot your activity summary (steps, Move or active calories, workouts) and Claude reads the numbers."),
+        el("button", { class: "btn", onclick: () => $("activityFiles").click() }, ico("camera", "ico"), "Import screenshot")),
+      d.note ? el("p", { class: "note" }, d.note) : null,
+      d.error ? el("p", { class: "err" }, d.error) : null,
+      num("aSteps", `Steps (goal ${fmt(g.stepGoal || 8000)})`, "steps", "0"),
+      el("div", { class: "row", style: "align-items:stretch" },
+        num("aKcal", "Active calories", "activeKcal", wkSum ? `${fmt(wkSum)} from workouts` : "0"),
+        num("aMin", "Exercise minutes", "exMin", wkMin ? String(wkMin) : "0")),
+      el("div", { class: "card", style: "padding:6px 16px 14px" },
+        el("div", { class: "row between", style: "padding-top:10px" }, el("b", {}, "Workouts"), el("span", { class: "small muted" }, d.workouts.length ? `${wkMin} min · ${fmt(wkSum)} cal` : "")),
+        d.workouts.map((w, i) => el("div", { class: "ingrow" }, el("div", { class: "head" },
+          el("div", { style: "min-width:0" }, el("div", { class: "n" }, w.name || WORKOUTS[w.type][0]), el("div", { class: "p tnum" }, `${w.minutes} min`)),
+          el("div", { class: "row", style: "gap:8px" }, el("span", { class: "k tnum" }, fmt(w.kcal) + " cal"), el("button", { class: "x", "aria-label": `Remove ${w.name}`, onclick: () => { d.workouts.splice(i, 1); renderSheet(); } }, ico("close")))))),
+        el("div", { class: "stack", style: "padding-top:10px;gap:8px" },
+          el("div", { class: "daychips", role: "group", "aria-label": "Workout type" }, Object.entries(WORKOUTS).map(([k, [l]]) => el("button", { "aria-pressed": String(d.addType === k), onclick: () => { d.addType = k; renderSheet(); } }, l))),
+          el("div", { class: "row", style: "align-items:flex-end" },
+            el("div", { class: "field" }, el("label", { for: "aWMin" }, "Minutes"), el("input", { class: "input tnum", id: "aWMin", type: "number", min: "1", inputmode: "numeric", value: d.addMin, oninput: (e) => { d.addMin = e.target.value; } })),
+            el("button", { class: "btn sm", onclick: () => {
+              const m = int(d.addMin, 1440);
+              if (!m) { $("aWMin").focus(); return; }
+              d.workouts.push({ id: newId(), type: d.addType, name: WORKOUTS[d.addType][0], minutes: m, kcal: workoutKcal(d.addType, m) });
+              d.addMin = ""; renderSheet();
+            } }, "Add workout")),
+          el("p", { class: "small muted" }, `Calories are estimated from the workout type, minutes and your weight (${S.weights.length ? "latest weigh-in" : "75 kg until you log a weight"}).`))),
+      el("div", { class: "sheetfoot" }, el("button", { class: "btn", onclick: async () => {
+        const n = (v, max) => (v === "" || v == null ? null : int(v, max));
+        const body = { date: d.k, steps: n(d.steps, 200000) || 0, activeKcal: n(d.activeKcal, 10000), exMin: n(d.exMin, 1440), workouts: d.workouts, updatedAt: new Date().toISOString() };
+        try { S.activity.set(d.k, body); await store.put("activity", d.k, body); S.adraft = null; closeSheet(); toast("Activity saved"); }
+        catch { d.error = "Couldn't save. Check your connection and try again."; renderSheet(); }
+      } }, "Save activity")),
+    ];
+  }
+  function activityCard() {
+    const k = S.day, a = actTotals(k), g = S.settings, goal = g.stepGoal || 8000, frac = Math.min(1, a.steps / goal);
+    return el("button", { class: "card activity", onclick: () => openActivity(k) },
+      el("div", { class: "ring", style: "width:64px;height:64px" }, ringSvg(64, 7, a.steps / goal, "var(--good)"), el("div", { class: "mid" }, ico("steps", "ico"))),
+      el("div", { class: "abody" },
+        el("div", { class: "row between" }, el("span", { class: "small muted", style: "font-weight:600" }, "Steps"), el("span", { class: "chip" }, a.has ? "Update" : "Add")),
+        el("div", {}, el("b", { class: "num" }, fmt(a.steps)), el("span", { class: "small muted" }, ` / ${fmt(goal)}`)),
+        el("div", { class: "astats tnum" },
+          el("span", {}, ico("flame"), `${fmt(a.activeKcal)} cal burned`),
+          el("span", {}, ico("clock"), `${a.exMin} of ${g.exGoal || 30} min`))),
+      el("span", { class: "vh" }, frac >= 1 ? "Step goal reached" : ""));
+  }
+
+  // ================= RPG =================
+  const HERO_DEFAULT = { name: "Adventurer", cls: null, owned: [], equip: {}, spent: 0, shields: 0, shieldDays: [], ach: {} };
+  const hero = () => { const h = S.settings.hero || (S.settings.hero = {}); for (const [k, v] of Object.entries(HERO_DEFAULT)) if (h[k] === undefined) h[k] = Array.isArray(v) ? [] : v && typeof v === "object" ? {} : v; return h; };
+  const saveHero = () => store.saveSettings(S.settings).catch(() => {});
+  const CLASSES = {
+    warrior: { name: "Warrior", icon: "c_warrior", blurb: "Strength through protein and training.", bonus: ["protein", "train"] },
+    ranger: { name: "Ranger", icon: "c_ranger", blurb: "Covers ground. Lives for step counts.", bonus: ["steps", "train"] },
+    monk: { name: "Monk", icon: "c_monk", blurb: "Balance, water and a steady hand.", bonus: ["water", "budget"] },
+    mage: { name: "Mage", icon: "c_mage", blurb: "Knowledge is power. Logs everything.", bonus: ["log3", "budget"] },
+  };
+  const QUESTS = [
+    { id: "log3", name: "Scribe's Duty", icon: "text", xp: 30, gold: 5, desc: () => "Log 3 meals", prog: (m) => [m.meals, 3] },
+    { id: "protein", name: "Iron Ration", icon: "protein", xp: 40, gold: 8, desc: (g) => `Eat ${fmt(g.protein)} g protein`, prog: (m, g) => [m.protein, g.protein] },
+    { id: "budget", name: "Balanced Scales", icon: "scale", xp: 40, gold: 8, desc: () => "Land within 10% of your calorie budget", prog: (m) => [m.kcal, m.budget], done: (m) => m.kcal >= m.budget * 0.9 && m.kcal <= m.budget * 1.1 },
+    { id: "steps", name: "Wanderer's Path", icon: "steps", xp: 40, gold: 8, desc: (g) => `Walk ${fmt(g.stepGoal || 8000)} steps`, prog: (m, g) => [m.steps, g.stepGoal || 8000] },
+    { id: "water", name: "Potion of Clarity", icon: "glass", xp: 20, gold: 4, desc: (g) => `Drink ${g.waterGoal || 8} glasses of water`, prog: (m, g) => [m.water, g.waterGoal || 8] },
+    { id: "train", name: "Training Grounds", icon: "bolt", xp: 40, gold: 8, desc: (g) => `Exercise ${g.exGoal || 30} minutes`, prog: (m, g) => [m.exMin, g.exGoal || 30] },
+  ];
+  const CHEST = { xp: 60, gold: 25 };
+  const BOSSES = [
+    ["The Sugar Wraith", "Feeds on midnight cravings."], ["Lord of Late-Night Snacks", "Rules the pantry after 10 pm."], ["The Couch Golem", "Grows stronger every hour you sit."],
+    ["Sodium Serpent", "Hides in every takeout bag."], ["The Takeout Hydra", "Order one, two more appear."], ["The Sloth King", "Would rather you skipped leg day."],
+  ];
+  const BOSS_HP = 1200, BOSS_REWARD = { xp: 200, gold: 80 };
+  const TITLES = [[1, "Novice"], [3, "Apprentice"], [5, "Squire"], [8, "Adventurer"], [12, "Knight"], [16, "Champion"], [20, "Hero"], [25, "Legend"], [30, "Mythic"]];
+  const xpForLevel = (L) => 50 * L * (L - 1);
+  const levelOf = (xp) => Math.max(1, Math.floor((1 + Math.sqrt(1 + (4 * xp) / 50)) / 2));
+  const rankTitle = (L) => TITLES.filter(([l]) => L >= l).pop()[1];
+  const SHOP = [
+    { id: "shield", kind: "item", name: "Streak Shield", price: 150, rarity: "rare", desc: "Covers one missed day so your streak survives." },
+    { id: "frame_bronze", kind: "frame", name: "Bronze frame", price: 100, rarity: "common" },
+    { id: "frame_silver", kind: "frame", name: "Silver frame", price: 250, rarity: "rare" },
+    { id: "frame_gold", kind: "frame", name: "Gold frame", price: 500, rarity: "epic" },
+    { id: "frame_aurora", kind: "frame", name: "Aurora frame", price: 1000, rarity: "legendary" },
+    { id: "title_fed", kind: "title", name: "the Well-Fed", price: 150, rarity: "common" },
+    { id: "title_walker", kind: "title", name: "Walker of Worlds", price: 300, rarity: "rare" },
+    { id: "title_paladin", kind: "title", name: "Protein Paladin", price: 400, rarity: "epic" },
+    { id: "title_archmage", kind: "title", name: "Archmage of Macros", price: 700, rarity: "legendary" },
+    { id: "aura_emerald", kind: "aura", name: "Emerald aura", price: 200, rarity: "rare", color: "#1f9d55" },
+    { id: "aura_crimson", kind: "aura", name: "Crimson aura", price: 200, rarity: "rare", color: "#d63a2f" },
+    { id: "aura_royal", kind: "aura", name: "Royal aura", price: 350, rarity: "epic", color: "#5b5bd6" },
+    { id: "aura_sun", kind: "aura", name: "Sunfire aura", price: 600, rarity: "legendary", color: "#e08a00" },
+  ];
+
+  function dayMetrics(k) {
+    const d = dayTotals(k), a = actTotals(k);
+    return { meals: d.count, kcal: d.kcal, protein: Math.round(d.protein), budget: budgetFor(k), steps: a.steps, exMin: a.exMin, water: glassesOn(k) };
+  }
+  const questDone = (q, m) => (q.done ? q.done(m) : (() => { const [v, t] = q.prog(m, S.settings); return v >= t; })());
+  const bonusFor = (q) => { const c = CLASSES[hero().cls]; return c && c.bonus.includes(q.id) ? 1.25 : 1; };
+  const rpgDoc = (k) => S.rpg.get(k) || { date: k, claims: {}, chest: null };
+  const claimable = (k) => k === today() || k === addDays(today(), -1);
+
+  function rpgTotals() {
+    let xp = 0, gold = 0;
+    for (const d of S.rpg.values()) {
+      if (d.boss) { xp += d.xp || 0; gold += d.gold || 0; continue; }
+      for (const c of Object.values(d.claims || {})) { xp += c.xp || 0; gold += c.gold || 0; }
+      if (d.chest) { xp += d.chest.xp || 0; gold += d.chest.gold || 0; }
+    }
+    for (const a of Object.values(hero().ach || {})) { xp += a.xp || 0; gold += a.gold || 0; }
+    gold -= hero().spent || 0;
+    const L = levelOf(xp);
+    return { xp, gold, level: L, into: xp - xpForLevel(L), need: xpForLevel(L + 1) - xpForLevel(L) };
+  }
+  let rpgWrite = Promise.resolve();
+  function writeRpg(id, doc) { S.rpg.set(id, doc); rpgWrite = rpgWrite.then(() => store.put("rpg", id, strip(doc))).catch(() => {}); }
+  function afterReward(before, xp, gold, label) {
+    const after = rpgTotals();
+    paint(); if (S.sheet) renderSheet();
+    if (after.level > before.level) showLevelUp(after.level, rankTitle(after.level) !== rankTitle(before.level) ? rankTitle(after.level) : null);
+    else toast(`${label}  +${xp} XP · +${gold} gold`);
+  }
+  function claimQuest(k, q) {
+    const m = dayMetrics(k);
+    if (!claimable(k) || !questDone(q, m)) return;
+    const doc = rpgDoc(k);
+    if (doc.claims && doc.claims[q.id]) return;
+    const before = rpgTotals(), mult = bonusFor(q), xp = Math.round(q.xp * mult), gold = Math.round(q.gold * mult);
+    writeRpg(k, { ...doc, claims: { ...(doc.claims || {}), [q.id]: { xp, gold } } });
+    afterReward(before, xp, gold, q.name);
+  }
+  function claimChest(k) {
+    const doc = rpgDoc(k);
+    if (doc.chest || !QUESTS.every((q) => doc.claims && doc.claims[q.id])) return;
+    const before = rpgTotals();
+    writeRpg(k, { ...doc, chest: { ...CHEST } });
+    afterReward(before, CHEST.xp, CHEST.gold, "Daily chest");
+  }
+  function bossState(ws = weekStartOf(today())) {
+    let dmg = 0;
+    for (let i = 0; i < 7; i++) { const d = S.rpg.get(addDays(ws, i)); if (!d) continue; for (const c of Object.values(d.claims || {})) dmg += c.xp || 0; if (d.chest) dmg += d.chest.xp || 0; }
+    const idx = Math.abs(Math.round(fromKey(ws).getTime() / (7 * 864e5))) % BOSSES.length;
+    return { ws, name: BOSSES[idx][0], flavor: BOSSES[idx][1], dmg: Math.min(dmg, BOSS_HP), hp: BOSS_HP, defeated: dmg >= BOSS_HP, claimed: S.rpg.has("boss_" + ws), daysLeft: 6 - daysBetween(ws, today()) };
+  }
+  function claimBoss(b) {
+    if (!b.defeated || b.claimed) return;
+    const before = rpgTotals();
+    writeRpg("boss_" + b.ws, { date: b.ws, boss: true, name: b.name, ...BOSS_REWARD });
+    afterReward(before, BOSS_REWARD.xp, BOSS_REWARD.gold, `${b.name} defeated`);
+  }
+  function achievements() {
+    const g = S.settings, { best } = streakInfo(), lvl = rpgTotals().level;
+    const days = [...S.byDay.keys()];
+    const proteinDays = days.filter((k) => dayTotals(k).protein >= g.protein).length;
+    const waterDays = [...S.water.values()].filter((w) => (Number(w.glasses) || 0) >= (g.waterGoal || 8)).length;
+    const planDays = new Set(S.plan.map((e) => e.date)).size;
+    let bestWeekSteps = 0;
+    const actDays = [...S.activity.keys()].sort();
+    for (const k of actDays) { let s = 0; for (let i = 0; i < 7; i++) s += actTotals(addDays(k, i)).steps; bestWeekSteps = Math.max(bestWeekSteps, s); }
+    const workouts = [...S.activity.values()].reduce((a, x) => a + ((x.workouts || []).length), 0);
+    const bosses = [...S.rpg.values()].filter((d) => d.boss).length;
+    const A = (id, name, desc, ok, big) => ({ id, name, desc, ok, xp: big ? 100 : 50, gold: big ? 80 : 40 });
+    return [
+      A("first", "First Bite", "Log your first meal", S.meals.length >= 1),
+      A("streak7", "Week Warrior", "Log 7 days in a row", best >= 7),
+      A("streak30", "Iron Discipline", "Log 30 days in a row", best >= 30, true),
+      A("protein10", "Protein Paladin", "Hit your protein goal on 10 days", proteinDays >= 10),
+      A("water7", "Hydromancer", "Hit your water goal on 7 days", waterDays >= 7),
+      A("steps100k", "Marathon March", "Walk 100,000 steps in 7 days", bestWeekSteps >= 100000, true),
+      A("workouts10", "Gym Regular", "Log 10 workouts", workouts >= 10),
+      A("chef5", "Home Chef", "Save 5 recipes", S.recipes.length >= 5),
+      A("planner", "Quartermaster", "Plan meals on 7 different days", planDays >= 7),
+      A("weigh10", "Scale Keeper", "Log 10 weigh-ins", S.weights.length >= 10),
+      A("boss1", "Monster Hunter", "Defeat a weekly boss", bosses >= 1),
+      A("boss4", "Slayer", "Defeat 4 weekly bosses", bosses >= 4, true),
+      A("lvl5", "Squire", "Reach level 5", lvl >= 5),
+      A("lvl10", "Veteran", "Reach level 10", lvl >= 10),
+      A("lvl20", "Hero of the Realm", "Reach level 20", lvl >= 20, true),
+    ];
+  }
+  function claimAch(a) {
+    const h = hero();
+    if (!a.ok || h.ach[a.id]) return;
+    const before = rpgTotals();
+    h.ach = { ...h.ach, [a.id]: { xp: a.xp, gold: a.gold } };
+    saveHero();
+    afterReward(before, a.xp, a.gold, a.name);
+  }
+  function buy(item) {
+    const h = hero(), { gold } = rpgTotals();
+    if (gold < item.price) return;
+    if (item.kind === "item") h.shields = (h.shields || 0) + 1;
+    else { if (h.owned.includes(item.id)) return; h.owned = [...h.owned, item.id]; h.equip = { ...h.equip, [item.kind]: item.id }; }
+    h.spent = (h.spent || 0) + item.price;
+    saveHero(); paint(); toast(`Bought ${item.name}`);
+  }
+  const equipped = (kind) => SHOP.find((i) => i.id === hero().equip[kind]);
+  function avatar(size, extra = "") {
+    const h = hero(), c = CLASSES[h.cls], fr = equipped("frame"), au = equipped("aura");
+    return el("div", { class: `avatar ${fr ? "f-" + fr.id.split("_")[1] : ""} ${extra}`, style: `width:${size}px;height:${size}px;${au ? `--aura:${au.color};` : ""}` }, ico(c ? c.icon : "c_novice"));
+  }
+  const heroName = () => { const h = hero(), t = equipped("title"); return h.name + (t ? (t.name.startsWith("the ") ? " " : ", ") + t.name : ""); };
+  function showLevelUp(level, newTitle) {
+    const root = $("levelUp");
+    root.replaceChildren(el("div", { class: "lvlcard", role: "dialog", "aria-label": `Level ${level} reached` },
+      el("div", { class: "burst" }, Array.from({ length: 10 }, (_, i) => el("i", { style: `--r:${i * 36}deg` }))),
+      el("div", { class: "lvlnum num" }, String(level)),
+      el("b", { style: "font-size:22px" }, "Level up!"),
+      el("p", { class: "muted" }, newTitle ? `You are now a ${newTitle}.` : `You reached level ${level}. ${fmt(xpForLevel(level + 1) - xpForLevel(level))} XP to the next one.`),
+      el("button", { class: "btn block", onclick: () => { root.hidden = true; } }, "Continue")));
+    root.hidden = false;
+  }
+
+  function questRow(k, q, compact) {
+    const m = dayMetrics(k), g = S.settings, [v, target] = q.prog(m, g), done = questDone(q, m), doc = rpgDoc(k), claimed = !!(doc.claims && doc.claims[q.id]);
+    const frac = target ? Math.min(1, v / target) : 0, mult = bonusFor(q);
+    const right = claimed ? el("span", { class: "qdone" }, ico("check"), "Claimed")
+      : done && claimable(k) ? el("button", { class: "btn sm claim", onclick: () => claimQuest(k, q) }, "Claim")
+      : el("span", { class: "qreward tnum" }, `+${Math.round(q.xp * mult)} XP`, mult > 1 ? el("i", { class: "bonus", title: "Class bonus" }, "★") : null);
+    return el("div", { class: "quest" + (claimed ? " claimed" : done ? " ready" : "") },
+      el("div", { class: "qicon" }, ico(q.icon)),
+      el("div", { class: "qbody" },
+        el("div", { class: "qname" }, q.name, compact ? null : el("span", { class: "small muted" }, ` · ${q.desc(g)}`)),
+        compact ? el("div", { class: "small muted" }, q.desc(g)) : null,
+        el("div", { class: "qbar" }, el("i", { style: `width:${Math.round(frac * 100)}%` })),
+        el("div", { class: "small muted tnum" }, q.id === "budget" ? `${fmt(v)} of ${fmt(target)} cal` : `${fmt(Math.min(v, 99999))} / ${fmt(target)}${q.id === "protein" ? " g" : q.id === "train" ? " min" : ""}`)),
+      right);
+  }
+  function questsCard(k, compact) {
+    const doc = rpgDoc(k), allClaimed = QUESTS.every((q) => doc.claims && doc.claims[q.id]), n = QUESTS.filter((q) => doc.claims && doc.claims[q.id]).length;
+    return el("div", { class: "card stack quests" },
+      el("div", { class: "row between" }, el("div", { class: "row", style: "gap:8px" }, el("span", { class: "spark" }, ico("sword")), el("h2", {}, k === today() ? "Daily quests" : `Quests · ${dayName(k)}`)),
+        el("span", { class: "small muted tnum" }, `${n} of ${QUESTS.length}`)),
+      QUESTS.map((q) => questRow(k, q, compact)),
+      el("div", { class: "chest" + (doc.chest ? " open" : allClaimed ? " ready" : "") },
+        el("span", { class: "cicon" }, ico("chest")),
+        el("div", { style: "flex:1;min-width:0" }, el("b", {}, "Daily chest"), el("div", { class: "small muted" }, doc.chest ? "Opened" : `Claim all ${QUESTS.length} quests to open · +${CHEST.xp} XP, +${CHEST.gold} gold`)),
+        allClaimed && !doc.chest && claimable(k) ? el("button", { class: "btn sm claim", onclick: () => claimChest(k) }, "Open") : null));
+  }
+  function bossCard() {
+    const b = bossState(), frac = 1 - b.dmg / b.hp;
+    return el("div", { class: "card stack boss" + (b.defeated ? " down" : "") },
+      el("div", { class: "row between" }, el("div", { class: "row", style: "gap:10px" }, el("span", { class: "bossicon" }, ico("skull")),
+        el("div", {}, el("div", { class: "small muted", style: "font-weight:700;letter-spacing:.04em;text-transform:uppercase" }, "Weekly boss"), el("h2", {}, b.name))),
+        el("span", { class: "chip tnum" }, b.defeated ? "Defeated" : b.daysLeft <= 0 ? "Last day" : `${b.daysLeft} ${b.daysLeft === 1 ? "day" : "days"} left`)),
+      el("p", { class: "small muted" }, b.flavor + " Every XP you earn from quests this week deals one point of damage."),
+      el("div", { class: "hpbar", role: "meter", "aria-valuemin": "0", "aria-valuemax": String(b.hp), "aria-valuenow": String(b.hp - b.dmg), "aria-label": "Boss health" }, el("i", { style: `width:${Math.round(frac * 100)}%` })),
+      el("div", { class: "row between small tnum" }, el("span", { class: "muted" }, `${fmt(b.hp - b.dmg)} / ${fmt(b.hp)} HP`), el("span", { class: "muted" }, `Reward: +${BOSS_REWARD.xp} XP, +${BOSS_REWARD.gold} gold`)),
+      b.defeated && !b.claimed ? el("button", { class: "btn claim", onclick: () => claimBoss(b) }, "Claim the loot") : null,
+      b.claimed ? el("div", { class: "qdone" }, ico("check"), "Loot claimed. A new boss arrives Sunday.") : null);
+  }
+  function heroChip() {
+    const r = rpgTotals();
+    return el("button", { class: "herochip", "aria-label": `Hero: level ${r.level}`, onclick: () => { S.tab = "hero"; S.enter = true; paint(); window.scrollTo(0, 0); } },
+      avatar(42),
+      el("div", { class: "hc" }, el("b", {}, hero().name), el("div", { class: "small muted tnum" }, `Lv ${r.level} · ${rankTitle(r.level)}`),
+        el("div", { class: "xpbar mini" }, el("i", { style: `width:${Math.round((r.into / r.need) * 100)}%` }))));
+  }
+  const goldPill = () => el("span", { class: "streak tnum gold", "aria-label": `${rpgTotals().gold} gold` }, ico("coin"), fmt(rpgTotals().gold));
+
+  function viewHero() {
+    const h = hero(), r = rpgTotals(), t = today(), y = addDays(t, -1);
+    const head = el("div", { class: "titlerow" }, el("h1", {}, "Hero"), goldPill());
+    if (!h.cls) {
+      return [head, el("div", { class: "card stack" }, el("h2", {}, "Choose your class"),
+        el("p", { class: "small muted" }, "Every class earns 25% more XP and gold on two quests. You can change class later for 100 gold."),
+        el("div", { class: "field" }, el("label", { for: "hName" }, "Hero name"), el("input", { class: "input", id: "hName", value: h.name === "Adventurer" ? "" : h.name, placeholder: "Adventurer", maxlength: "24" })),
+        el("div", { class: "classgrid" }, Object.entries(CLASSES).map(([id, c]) => el("button", { class: "classcard", onclick: () => {
+          h.cls = id; h.name = ($("hName").value || "").trim().slice(0, 24) || "Adventurer"; saveHero(); S.enter = true; paint();
+        } }, el("span", { class: "cemb" }, ico(c.icon)), el("b", {}, c.name), el("span", { class: "small muted" }, c.blurb),
+          el("span", { class: "small", style: "font-weight:600" }, "Bonus: " + c.bonus.map((b) => QUESTS.find((q) => q.id === b).name).join(", "))))))];
+    }
+    const c = CLASSES[h.cls], au = equipped("aura");
+    // Stats: days in the last 30 that trained each attribute.
+    const last30 = Array.from({ length: 30 }, (_, i) => addDays(t, -i)), g = S.settings;
+    const cnt = (f) => last30.filter((k) => f(dayMetrics(k))).length;
+    const stats = [["STR", "Strength", cnt((m) => m.protein >= g.protein * 0.9 || m.exMin >= (g.exGoal || 30))], ["END", "Endurance", cnt((m) => m.steps >= (g.stepGoal || 8000))], ["VIT", "Vitality", cnt((m) => m.water >= (g.waterGoal || 8))], ["WIS", "Wisdom", cnt((m) => m.meals >= 3)]];
+    const sheetCard = el("div", { class: "card herocard", style: au ? `--xpc:${au.color}` : "" },
+      el("div", { class: "row", style: "gap:16px;align-items:center" }, avatar(84, "big"),
+        el("div", { style: "min-width:0;flex:1" },
+          el("div", { class: "hname" }, heroName()),
+          el("div", { class: "small hsub" }, `Level ${r.level} ${c.name} · ${rankTitle(r.level)}`),
+          el("div", { class: "xpbar" }, el("i", { style: `width:${Math.round((r.into / r.need) * 100)}%` })),
+          el("div", { class: "small hsub tnum" }, `${fmt(r.into)} / ${fmt(r.need)} XP to level ${r.level + 1}`))),
+      el("div", { class: "stats4" }, stats.map(([ab, full, v]) => el("div", { class: "stat", title: `${full}: days in the last 30` }, el("div", { class: "sab" }, ab), el("div", { class: "sval num" }, String(10 + v)), el("div", { class: "sbar" }, el("i", { style: `width:${Math.round((v / 30) * 100)}%` }))))),
+      el("p", { class: "small hsub" }, "Stats grow with every day you train them over the last 30 days: protein or exercise (STR), steps (END), water (VIT) and logging 3 meals (WIS)."));
+    const yDoc = rpgDoc(y), yLeft = QUESTS.filter((q) => questDone(q, dayMetrics(y)) && !(yDoc.claims && yDoc.claims[q.id]));
+    const yCard = yLeft.length || (QUESTS.every((q) => yDoc.claims && yDoc.claims[q.id]) && !yDoc.chest) ? questsCard(y, false) : null;
+    const shieldable = !dayTotals(y).count && !(h.shieldDays || []).includes(y) && dayTotals(addDays(y, -1)).count;
+    const shieldCard = (h.shields || 0) > 0 || shieldable ? el("div", { class: "card row", style: "gap:12px" }, el("span", { class: "cicon" }, ico("shield")),
+      el("div", { style: "flex:1;min-width:0" }, el("b", {}, `Streak Shields: ${h.shields || 0}`), el("div", { class: "small muted" }, shieldable ? "You missed yesterday. A shield keeps your streak alive." : "Protects your streak when you miss a day.")),
+      shieldable && h.shields > 0 ? el("button", { class: "btn sm claim", onclick: () => { h.shields -= 1; h.shieldDays = [...(h.shieldDays || []), y]; saveHero(); paint(); toast("Shield used. Your streak is safe."); } }, "Use") : null) : null;
+    const ach = achievements();
+    const achCard = el("div", { class: "card stack" }, el("div", { class: "row between" }, el("h2", {}, "Achievements"), el("span", { class: "small muted tnum" }, `${Object.keys(h.ach).length} of ${ach.length}`)),
+      el("div", { class: "achgrid" }, ach.map((a) => { const got = !!h.ach[a.id];
+        return el("div", { class: "ach" + (got ? " got" : a.ok ? " ready" : "") }, el("span", { class: "aicon" }, ico(got || a.ok ? "trophy" : "lock")), el("b", {}, a.name), el("span", { class: "small muted" }, a.desc),
+          a.ok && !got ? el("button", { class: "btn sm claim", onclick: () => claimAch(a) }, `Claim +${a.gold}`) : null); })));
+    const shopCard = el("div", { class: "card stack" }, el("div", { class: "row between" }, el("h2", {}, "Shop"), goldPill()),
+      el("p", { class: "small muted" }, "Spend the gold you earn from quests, chests, bosses and achievements."),
+      ["item", "frame", "title", "aura"].map((kind) => el("div", { class: "stack", style: "gap:6px" }, el("div", { class: "shophead" }, { item: "Items", frame: "Avatar frames", title: "Titles", aura: "Auras" }[kind]),
+        SHOP.filter((i) => i.kind === kind).map((it) => {
+          const own = h.owned.includes(it.id), on = h.equip[it.kind] === it.id, can = r.gold >= it.price;
+          return el("div", { class: "shoprow" },
+            el("span", { class: "rar r-" + it.rarity }, it.kind === "aura" ? el("i", { style: `background:${it.color}` }) : ico(it.kind === "frame" ? "frame" : it.kind === "title" ? "scroll" : "shield")),
+            el("div", { style: "flex:1;min-width:0" }, el("b", {}, it.name), el("div", { class: "small muted" }, it.desc || (it.rarity[0].toUpperCase() + it.rarity.slice(1)) + (it.kind === "item" && h.shields ? ` · you have ${h.shields}` : ""))),
+            own ? el("button", { class: "btn sm " + (on ? "" : "ghost"), onclick: () => { h.equip = { ...h.equip, [it.kind]: on ? null : it.id }; saveHero(); paint(); } }, on ? "Equipped" : "Equip")
+              : el("button", { class: "btn sm ghost buy", disabled: !can, onclick: () => buy(it) }, ico("coin"), fmt(it.price)));
+        }))));
+    const respec = el("div", { class: "card stack" }, el("h2", {}, "Hero settings"),
+      el("div", { class: "row", style: "align-items:flex-end" }, el("div", { class: "field" }, el("label", { for: "hRename" }, "Name"), el("input", { class: "input", id: "hRename", value: h.name, maxlength: "24" })),
+        el("button", { class: "btn sm", onclick: () => { h.name = ($("hRename").value || "").trim().slice(0, 24) || "Adventurer"; saveHero(); paint(); toast("Name saved"); } }, "Save")),
+      el("button", { class: "btn ghost sm", style: "align-self:flex-start", disabled: r.gold < 100, onclick: () => { h.cls = null; h.spent = (h.spent || 0) + 100; saveHero(); paint(); } }, ico("coin", "ico"), "Change class · 100 gold"));
+    return [head, sheetCard, bossCard(), questsCard(t, false), yCard, shieldCard, achCard, shopCard, respec];
+  }
+
   // ================= charts =================
   const NS = "http://www.w3.org/2000/svg";
   const niceStep = (raw) => { const p = Math.pow(10, Math.floor(Math.log10(raw || 1))), n = raw / p; return (n <= 1 ? 1 : n <= 2 ? 2 : n <= 2.5 ? 2.5 : n <= 5 ? 5 : 10) * p; };
@@ -1542,9 +2051,9 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
   }
 
   // Daily calories: one series, columns from a zero baseline, goal as a labeled reference line.
-  function calorieChart(days, goal) {
+  function calorieChart(days, goal, valsIn, unit = "kcal", color = "var(--ink)") {
     const W = 340, H = 180, pl = 34, pr = 10, pt = 14, pb = 22, pw = W - pl - pr, ph = H - pt - pb;
-    const vals = days.map((k) => dayTotals(k).kcal);
+    const vals = valsIn || days.map((k) => dayTotals(k).kcal);
     const max = Math.max(goal * 1.15, ...vals, 1), step = niceStep(max / 3), top = Math.ceil(max / step) * step;
     const y = (v) => pt + ph - (v / top) * ph;
     const band = pw / days.length, bw = Math.max(1, Math.min(24, days.length <= 7 ? band * 0.55 : band - 2));
@@ -1554,7 +2063,7 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
     vals.forEach((v, i) => {
       if (!v) return;
       const x = pl + i * band + (band - bw) / 2, yt = y(v), yb = pt + ph, r = Math.min(4, bw / 2, yb - yt);
-      s += `<path fill="var(--ink)" d="M${x},${yb} V${yt + r} Q${x},${yt} ${x + r},${yt} H${x + bw - r} Q${x + bw},${yt} ${x + bw},${yt + r} V${yb} Z"/>`;
+      s += `<path fill="${color}" d="M${x},${yb} V${yt + r} Q${x},${yt} ${x + r},${yt} H${x + bw - r} Q${x + bw},${yt} ${x + bw},${yt + r} V${yb} Z"/>`;
     });
     s += `<line class="goal" x1="${pl}" x2="${W - pr}" y1="${y(goal)}" y2="${y(goal)}"/><text class="goal-l" x="${W - pr}" y="${y(goal) - 4}" text-anchor="end">Goal ${fmt(goal)}</text>`;
     const every = days.length <= 7 ? 1 : days.length <= 31 ? 7 : 30;
@@ -1565,7 +2074,7 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
       const lbl = days.length <= 7 ? d.toLocaleDateString(undefined, { weekday: "narrow" }) : d.toLocaleDateString(undefined, { month: "numeric", day: "numeric" });
       s += `<text class="tick" x="${pl + i * band + band / 2}" y="${H - 6}" text-anchor="middle">${lbl}</text>`;
     });
-    const svg = svgNode(s, W, H, `Daily calories for the last ${days.length} days`);
+    const svg = svgNode(s, W, H, `Daily ${unit === "kcal" ? "calories" : unit} for the last ${days.length} days`);
     const tip = el("div", { class: "tip", hidden: true });
     const wrap = el("div", { class: "chart" }, svg, tip);
     const hl = svg.querySelector("#calHl");
@@ -1575,7 +2084,7 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
       if (i < 0 || i >= days.length) { tip.hidden = true; hl.setAttribute("x", -999); return; }
       hl.setAttribute("x", pl + i * band);
       const v = vals[i], diff = v - goal;
-      tip.replaceChildren(el("span", {}, v ? `${fmt(v)} kcal` : "Nothing logged"), el("small", {}, dayName(days[i]) + (v ? ` · ${diff > 0 ? fmt(diff) + " over" : fmt(-diff) + " under"} goal` : "")));
+      tip.replaceChildren(el("span", {}, v ? `${fmt(v)} ${unit}` : "Nothing logged"), el("small", {}, dayName(days[i]) + (v ? ` · ${diff > 0 ? fmt(diff) + " over" : fmt(-diff) + " under"} goal` : "")));
       tip.hidden = false;
       const px = ((pl + i * band + band / 2) / W) * r.width;
       tip.style.left = Math.min(Math.max(px, 70), r.width - 70) + "px";
@@ -1583,7 +2092,7 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
     };
     svg.addEventListener("pointermove", move); svg.addEventListener("pointerdown", move);
     svg.addEventListener("pointerleave", () => { tip.hidden = true; hl.setAttribute("x", -999); });
-    return el("div", {}, wrap, tableFor(days.slice().reverse().map((k) => [dayName(k, "short"), vals[days.indexOf(k)] ? fmt(vals[days.indexOf(k)]) : "—"]), ["Day", "kcal"]));
+    return el("div", {}, wrap, tableFor(days.slice().reverse().map((k) => [dayName(k, "short"), vals[days.indexOf(k)] ? fmt(vals[days.indexOf(k)]) : "—"]), ["Day", unit]));
   }
 
   // Weight: one series over time, 2px line with a light wash, end dot + end label, optional goal reference line.
@@ -1627,9 +2136,10 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
   function ringSvg(size, stroke, frac, color, track = "var(--sunk)") {
     const r = (size - stroke) / 2, c = 2 * Math.PI * r, f = Math.max(0, Math.min(1, frac));
     return svgNode(`<circle cx="${size / 2}" cy="${size / 2}" r="${r}" fill="none" stroke="${track}" stroke-width="${stroke}"/>` +
-      (f > 0 ? `<circle cx="${size / 2}" cy="${size / 2}" r="${r}" fill="none" stroke="${color}" stroke-width="${stroke}" stroke-linecap="round" stroke-dasharray="${f * c} ${c}"/>` : ""), size, size, "");
+      (f > 0 ? `<circle class="ring-arc${animNow ? " anim" : ""}" cx="${size / 2}" cy="${size / 2}" r="${r}" fill="none" stroke="${color}" stroke-width="${stroke}" stroke-linecap="round" stroke-dasharray="${f * c} ${c}"/>` : ""), size, size, "");
   }
-  const dayColor = (k) => dayTotals(k).kcal > S.settings.goal ? "var(--over)" : "var(--ink)";
+  let animNow = false;
+  const dayColor = (k) => dayTotals(k).kcal > budgetFor(k) ? "var(--over)" : "var(--ink)";
 
   // ================= views =================
   function viewHome() {
@@ -1642,11 +2152,11 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
       return el("button", { class: "wd", "aria-current": k === S.day ? "date" : false, disabled: k > t, "aria-label": `${dayName(k)}: ${fmt(dt.kcal)} kcal`, onclick: () => { S.day = k; render(); } },
         el("span", { class: "dow" }, fromKey(k).toLocaleDateString(undefined, { weekday: "short" }).slice(0, 3)), dial);
     }));
-    const left = g.goal - tot.kcal;
+    const budget = budgetFor(S.day), burned = actTotals(S.day).activeKcal, left = budget - tot.kcal;
     const hero = el("div", { class: "card hero" },
-      el("div", {}, el("div", { class: "num tnum" }, fmt(Math.abs(left))), el("div", { class: "lbl" }, left >= 0 ? "Calories left" : "Calories over"),
-        el("div", { class: "sub" }, `${fmt(tot.kcal)} eaten · ${fmt(g.goal)} goal`)),
-      el("div", { class: "ring", style: "width:104px;height:104px" }, ringSvg(104, 10, tot.kcal / g.goal, left < 0 ? "var(--over)" : "var(--ink)"), el("div", { class: "mid" }, ico("flame", "ico"))));
+      el("div", {}, el("div", { class: "num" }, fmt(Math.abs(left))), el("div", { class: "lbl" }, left >= 0 ? "Calories left" : "Calories over"),
+        el("div", { class: "sub tnum" }, `${fmt(tot.kcal)} eaten · ${fmt(g.goal)} goal` + (burned ? (g.eatBack ? ` + ${fmt(burned)} burned` : ` · ${fmt(burned)} burned`) : ""))),
+      el("div", { class: "ring", style: "width:104px;height:104px" }, ringSvg(104, 10, tot.kcal / budget, left < 0 ? "var(--over)" : "var(--ink)"), el("div", { class: "mid" }, ico("flame", "ico"))));
     const mc = (k, label) => {
       const goal = g[k], eaten = Math.round(tot[k]), rem = goal - eaten;
       return el("div", { class: "card mcard" }, el("div", {}, el("div", { class: "num tnum" }, fmt(Math.abs(rem)) + "g"), el("div", { class: "lbl" }, `${label} ${rem >= 0 ? "left" : "over"}`)),
@@ -1674,11 +2184,13 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
       el("b", {}, S.day === t ? "Nothing logged yet today" : "Nothing logged this day"),
       el("p", {}, "Tap + to scan your plate, describe a meal, or add calories you already know.")));
     return [
-      el("header", { class: "apphead" }, el("div", { class: "logo" }, el("span", { class: "logo-mark" }, ico("plate")), "Plate Counter"),
-        el("div", { class: "hbtns" }, el("span", { class: "streak tnum", "aria-label": `${cur} day streak` }, ico("flame"), String(cur)),
+      el("header", { class: "apphead" }, heroChip(),
+        el("div", { class: "hbtns" }, goldPill(), el("span", { class: "streak tnum", "aria-label": `${cur} day streak` }, ico("flame"), String(cur)),
           el("button", { class: "iconbtn", "aria-label": "Settings", onclick: () => { S.tab = "settings"; paint(); window.scrollTo(0, 0); } }, ico("settings")))),
       week, hero, el("div", { class: "macros3" }, mc("protein", "Protein"), mc("carbs", "Carbs"), mc("fat", "Fats")),
+      activityCard(),
       waterCard(),
+      S.day === t ? questsCard(t, true) : null,
       picks.length && S.day <= t ? el("div", { class: "sechead" }, el("h2", {}, "Favorites & usuals"), el("button", { class: "small muted", style: "text-decoration:underline", onclick: () => openSheet({ type: "favs" }) }, "See all")) : null,
       picks.length && S.day <= t ? el("div", { class: "picks" }, picks.slice(0, 8).map(({ fav, m }) => el("button", { class: "pick", "aria-label": `Log ${m.name}, ${fmt(m.kcal)} calories`, onclick: () => logAgain(m).catch(() => {}) },
         thumbNode(m), el("div", { style: "min-width:0" }, el("div", { class: "pn" }, m.name), el("div", { class: "pk tnum" }, `${fmt(m.kcal)} cal`)), fav ? ico("star", "st") : null))) : null,
@@ -1806,6 +2318,16 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
       seg([[7, "7D"], [30, "30D"], [90, "90D"]], S.calRange, (v) => { S.calRange = v; }),
       calorieChart(days, g.goal));
 
+    // Steps
+    const stepVals = days.map((k) => actTotals(k).steps), stepDays = stepVals.filter((v) => v > 0);
+    const stepAvg = stepDays.length ? stepDays.reduce((a, v) => a + v, 0) / stepDays.length : 0, stepHit = stepVals.filter((v) => v >= (g.stepGoal || 8000)).length;
+    const burnTot = days.reduce((a, k) => a + actTotals(k).activeKcal, 0), exTot = days.reduce((a, k) => a + actTotals(k).exMin, 0);
+    const stepCard = el("div", { class: "card stack" },
+      el("div", { class: "row between" }, el("div", {}, el("h2", {}, "Activity"), el("div", { class: "small muted tnum" }, stepDays.length ? `Averaging ${fmt(stepAvg)} steps · goal hit on ${stepHit} of ${n} days` : "No activity logged in this period")),
+        el("button", { class: "btn sm ghost", onclick: () => openActivity(today()) }, ico("plus", "ico"), "Add")),
+      calorieChart(days, g.stepGoal || 8000, stepVals, "steps", "var(--good)"),
+      el("div", { class: "stat2" }, el("div", { class: "tile" }, el("div", { class: "k" }, "Active calories"), el("div", { class: "v" }, fmt(burnTot))), el("div", { class: "tile" }, el("div", { class: "k" }, "Exercise"), el("div", { class: "v" }, fmt(exTot), el("small", {}, " min")))));
+
     // Macro averages
     const mAvg = (k) => (logged.length ? logged.reduce((a, d) => a + dayTotals(d)[k], 0) / logged.length : 0);
     const mline = (k, label) => {
@@ -1822,7 +2344,7 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
       el("div", { class: "card tile" }, el("div", { class: "k" }, "Days logged"), el("div", { class: "v tnum" }, fmt(allDays))),
       el("div", { class: "card tile" }, el("div", { class: "k" }, "Weigh-ins"), el("div", { class: "v tnum" }, fmt(W.length))));
 
-    return [checkinCard(), el("div", { class: "stat2" }, weightCard, streakCard), calCard, weightChartCard, macroCard, totals];
+    return [checkinCard(), el("div", { class: "stat2" }, weightCard, streakCard), calCard, stepCard, weightChartCard, macroCard, totals];
   }
 
   function viewHistory() {
@@ -1885,6 +2407,19 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
       el("p", { class: "small muted" }, "The split sets protein 30%, carbs 40% and fats 30% of your calories (4 kcal per gram of protein or carbs, 9 per gram of fat)."),
       num("sWa", `Water (glasses a day, ${g.unit === "kg" ? "250 ml" : "8 oz"} each)`, g.waterGoal || 8, { min: 1, max: 40 }),
       el("div", { class: "row" }, el("button", { class: "btn", type: "submit" }, "Save goals"), saved));
+    const saved3 = el("span", { class: "small muted", hidden: true }, "Saved");
+    const actForm = el("form", { class: "card stack", onsubmit: async (e) => {
+      e.preventDefault();
+      g.stepGoal = Math.min(Math.max(int($("sSt").value, 100000) || 8000, 500), 100000);
+      g.exGoal = Math.min(Math.max(int($("sEx").value, 600) || 30, 5), 600);
+      try { await store.saveSettings(g); saved3.hidden = false; setTimeout(() => (saved3.hidden = true), 1800); } catch {}
+    } },
+      el("h2", {}, "Activity goals"),
+      el("div", { class: "row", style: "align-items:stretch" }, num("sSt", "Steps a day", g.stepGoal || 8000, { min: 500, step: 500 }), num("sEx", "Exercise minutes a day", g.exGoal || 30, { min: 5 })),
+      el("div", { class: "field" }, el("label", {}, "Exercise calories"), el("div", { class: "seg", role: "group", "aria-label": "Exercise calories" },
+        [[false, "Keep budget fixed"], [true, "Add to food budget"]].map(([v, l]) => el("button", { type: "button", "aria-pressed": String(!!g.eatBack === v), onclick: async () => { g.eatBack = v; await store.saveSettings(g).catch(() => {}); renderTabs(true); } }, l)))),
+      el("p", { class: "small muted" }, g.eatBack ? "Active calories you burn are added to that day's calorie budget, so a 400-calorie run gives you 400 more to eat." : "Your calorie budget stays at your goal. Burned calories are shown for reference."),
+      el("div", { class: "row" }, el("button", { class: "btn", type: "submit" }, "Save"), saved3));
     const u = g.unit, toU = (kg) => (u === "lb" ? kg * KG_LB : kg);
     const saved2 = el("span", { class: "small muted", hidden: true }, "Saved");
     const body = el("form", { class: "card stack", onsubmit: async (e) => {
@@ -1912,17 +2447,20 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
         ? "Meals, photos, weights, water, recipes, plans and check-ins are saved to your Claude account under a private path. Only you can read them, on any device where you open this page."
         : "Your log is saved in this browser only. Open this page in Claude while signed in to keep it on your account."),
       el("p", { class: "small muted" }, "Photo and text estimates run on your own Claude plan, so there's no subscription. Estimates are usually within 15–25% of the true value; hidden oil, butter and dressings cause the biggest misses, so mention them when you can."));
-    return [el("div", { class: "row" }, el("button", { class: "iconbtn", "aria-label": "Back to home", onclick: () => { S.tab = "home"; paint(); } }, ico("left")), el("h1", {}, "Settings")), status, goals, body, about];
+    return [el("div", { class: "row" }, el("button", { class: "iconbtn", "aria-label": "Back to home", onclick: () => { S.tab = "home"; paint(); } }, ico("left")), el("h1", {}, "Settings")), status, goals, actForm, body, about];
   }
 
   // ================= render =================
   function renderTabs(force) { if (S.tab !== "settings" || force) paint(); }
   function paint() {
     const v = $("view");
-    const views = { home: viewHome, recipes: viewRecipes, plan: viewPlan, progress: viewProgress, settings: viewSettings };
+    const views = { home: viewHome, recipes: viewRecipes, plan: viewPlan, hero: viewHero, progress: viewProgress, settings: viewSettings };
+    animNow = S.enter;
     const nodes = views[S.tab]();
+    animNow = false;
     if (S.storeError) nodes.push(el("p", { class: "note" }, "Lost the connection to your saved log. Reload the page to reconnect."));
     v.replaceChildren(...nodes.filter(Boolean));
+    if (S.enter) { v.classList.remove("enter"); void v.offsetWidth; v.classList.add("enter"); S.enter = false; setTimeout(() => v.classList.remove("enter"), 700); }
     document.querySelectorAll(".tab").forEach((b) => b.setAttribute("aria-current", b.dataset.tab === S.tab ? "page" : "false"));
   }
   // Settings has live form fields, so background updates don't repaint it.
@@ -1930,10 +2468,10 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
   function renderAll() { paint(); renderSheet(); }
 
   // ================= wiring =================
-  const TAB_LABEL = { home: "Home", recipes: "Recipes", plan: "Plan", progress: "Progress" };
+  const TAB_LABEL = { home: "Home", recipes: "Recipes", plan: "Plan", hero: "Hero", progress: "Progress" };
   document.querySelectorAll(".tab").forEach((b) => {
     b.append(ico(b.dataset.tab), el("span", {}, TAB_LABEL[b.dataset.tab]));
-    b.onclick = () => { S.tab = b.dataset.tab; if (S.tab === "progress") S.histDay = S.day; paint(); window.scrollTo(0, 0); };
+    b.onclick = () => { S.tab = b.dataset.tab; S.enter = true; if (S.tab === "progress") S.histDay = S.day; paint(); window.scrollTo(0, 0); };
   });
   $("fab").append(ico("plus"));
   $("fab").onclick = () => openSheet("add");
@@ -1962,7 +2500,8 @@ Reply with only JSON: {"headline":"one sentence summary of the week","wins":["sp
     d.photo = await makeImage(file, 480, false); d.photoChanged = !!d.photo;
     if (S.rdraft === d) renderSheet();
   };
-  document.addEventListener("keydown", (e) => { if (e.key === "Escape" && S.sheet) closeSheet(); });
+  $("activityFiles").onchange = (e) => { const files = [...(e.target.files || [])].slice(0, imgMax); e.target.value = ""; importActivity(files); };
+  document.addEventListener("keydown", (e) => { if (e.key !== "Escape") return; if (!$("levelUp").hidden) { $("levelUp").hidden = true; return; } if (S.sheet) closeSheet(); });
 
   async function boot() {
     S.planWeek = weekStartOf(today());
