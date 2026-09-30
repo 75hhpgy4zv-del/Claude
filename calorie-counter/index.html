@@ -265,6 +265,53 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
 .dayrow .t div { font-weight: 600; overflow: hidden; text-overflow: ellipsis; white-space: nowrap; }
 .dayrow .t small { color: var(--ink2); }
 
+/* Recipes, plan, groceries */
+.hbtns { display: flex; gap: 8px; align-items: center; }
+.iconbtn { width: 38px; height: 38px; border-radius: 50%; background: var(--card); box-shadow: var(--shadow); display: grid; place-items: center; flex: none; }
+.iconbtn svg { width: 20px; height: 20px; }
+.titlerow { display: flex; align-items: center; justify-content: space-between; gap: 10px; }
+.search { position: relative; }
+.search svg { position: absolute; left: 14px; top: 50%; transform: translateY(-50%); width: 18px; height: 18px; color: var(--muted); pointer-events: none; }
+.search .input { padding-left: 42px; background: var(--card); box-shadow: var(--shadow); }
+.rgrid { display: grid; grid-template-columns: 1fr 1fr; gap: 12px; }
+.rcard { padding: 0; overflow: hidden; text-align: left; display: flex; flex-direction: column; min-width: 0; }
+.rcard .rimg { width: 100%; aspect-ratio: 1 / 1; max-width: 100%; object-fit: cover; background: var(--sunk); display: grid; place-items: center; color: var(--muted); }
+.rcard .rimg svg { width: 32px; height: 32px; }
+.rcard .rb { padding: 10px 12px 12px; display: flex; flex-direction: column; gap: 4px; min-width: 0; }
+.rcard .rt { font-weight: 700; font-size: 14.5px; line-height: 1.25; display: -webkit-box; -webkit-line-clamp: 2; -webkit-box-orient: vertical; overflow: hidden; overflow-wrap: anywhere; }
+.rcard .rm { font-size: 12.5px; color: var(--ink2); font-weight: 600; }
+.howto { counter-reset: s; display: flex; flex-direction: column; gap: 10px; margin: 0; padding: 0; list-style: none; }
+.howto li { display: flex; gap: 10px; font-size: 14px; color: var(--ink2); }
+.howto li::before { counter-increment: s; content: counter(s); width: 22px; height: 22px; border-radius: 50%; background: var(--btn); color: var(--btn-ink); font-size: 12px; font-weight: 700; display: grid; place-items: center; flex: none; }
+.thumbs-row { display: flex; gap: 8px; overflow-x: auto; }
+.thumbs-row img { width: 72px; height: 96px; object-fit: cover; border-radius: 10px; flex: none; }
+.steps { margin: 0; padding-left: 20px; display: flex; flex-direction: column; gap: 8px; }
+.steps li { padding-left: 4px; }
+.tags { display: flex; gap: 6px; flex-wrap: wrap; }
+.weeknav { display: flex; align-items: center; justify-content: space-between; gap: 8px; }
+.weeknav button.nav { width: 38px; height: 38px; border-radius: 50%; background: var(--card); box-shadow: var(--shadow); display: grid; place-items: center; flex: none; }
+.weeknav button.nav:disabled { opacity: .35; cursor: default; }
+.weeknav svg { width: 18px; height: 18px; }
+.planday { display: flex; flex-direction: column; gap: 6px; padding: 16px; }
+.planday.today { box-shadow: inset 0 0 0 2px var(--ink), var(--shadow); }
+.prow { display: flex; align-items: center; gap: 12px; padding-block: 8px; border-top: 1px solid var(--line); width: 100%; text-align: left; }
+.prow .thumb { width: 44px; height: 44px; border-radius: 12px; }
+.prow .thumb svg { width: 20px; height: 20px; }
+.prow .t { flex: 1; min-width: 0; }
+.prow .t div { font-weight: 600; overflow: hidden; text-overflow: ellipsis; white-space: nowrap; }
+.prow .t small { color: var(--ink2); }
+.done { display: inline-flex; align-items: center; gap: 3px; font-size: 11.5px; font-weight: 700; color: var(--good); }
+.done svg { width: 13px; height: 13px; }
+.daychips { display: flex; gap: 6px; overflow-x: auto; padding-bottom: 2px; }
+.daychips button { flex: none; padding: 8px 12px; border-radius: 12px; background: var(--sunk); font-weight: 600; font-size: 13px; text-align: center; }
+.daychips button[aria-pressed="true"] { background: var(--btn); color: var(--btn-ink); }
+.gsec h3 { font-size: 12.5px; text-transform: uppercase; letter-spacing: .06em; color: var(--muted); font-weight: 700; margin: 12px 0 2px; }
+.gitem { display: flex; align-items: center; gap: 12px; padding-block: 10px; border-bottom: 1px solid var(--line); cursor: pointer; }
+.gitem input { width: 22px; height: 22px; accent-color: var(--ink); flex: none; margin: 0; }
+.gitem .gn { flex: 1; min-width: 0; overflow-wrap: anywhere; }
+.gitem.checked .gn { text-decoration: line-through; color: var(--muted); }
+.gitem .gq { color: var(--ink2); font-size: 13.5px; white-space: nowrap; }
+
 @media (max-width: 380px) {
   .hero .num { font-size: 40px; }
   .mcard { padding: 12px 10px; }
@@ -277,14 +324,16 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
 <nav class="tabs" aria-label="Sections">
   <div class="in">
     <button class="tab" data-tab="home" aria-current="page"></button>
+    <button class="tab" data-tab="recipes"></button>
+    <button class="tab" data-tab="plan"></button>
     <button class="tab" data-tab="progress"></button>
-    <button class="tab" data-tab="history"></button>
-    <button class="tab" data-tab="settings"></button>
     <button class="fab" id="fab" aria-label="Add food or weight"></button>
   </div>
 </nav>
 <div id="sheetRoot"></div>
 <input type="file" id="photoInput" accept="image/*" capture="environment" class="vh" tabindex="-1" aria-hidden="true">
+<input type="file" id="recipeFiles" accept="image/*" multiple class="vh" tabindex="-1" aria-hidden="true">
+<input type="file" id="recipePhoto" accept="image/*" class="vh" tabindex="-1" aria-hidden="true">
 
 <script>
 (() => {
@@ -307,7 +356,13 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     close: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2.4" stroke-linecap="round"><path d="M6 6l12 12M18 6 6 18"/></svg>',
     left: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2.4" stroke-linecap="round" stroke-linejoin="round"><path d="M15 5l-7 7 7 7"/></svg>',
     right: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2.4" stroke-linecap="round" stroke-linejoin="round"><path d="M9 5l7 7-7 7"/></svg>',
+    book: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M5 5.5a2 2 0 0 1 2-2h11.5V17H7a2 2 0 0 0-2 2z"/><path d="M5 19a2 2 0 0 0 2 2h11.5v-4M9 8h6"/></svg>',
+    check: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="3" stroke-linecap="round" stroke-linejoin="round"><path d="M5 12.5l4.5 4.5L19 7.5"/></svg>',
+    search: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2.2" stroke-linecap="round"><circle cx="11" cy="11" r="6.5"/><path d="m16 16 4 4"/></svg>',
+    cart: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M3.5 4.5h2.2l2.2 11h10.3l2-8H7"/><circle cx="9.5" cy="19.5" r="1.3"/><circle cx="17" cy="19.5" r="1.3"/></svg>',
+    import: '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M12 4v11M7.5 10.5 12 15l4.5-4.5M5 19.5h14"/></svg>',
   };
+  ICONS.recipes = ICONS.book; ICONS.plan = ICONS.history;
   const ico = (name, cls = "") => { const t = document.createElement("template"); t.innerHTML = ICONS[name].trim(); const s = t.content.firstChild; s.setAttribute("aria-hidden", "true"); if (cls) s.setAttribute("class", cls); return s; };
 
   // ================= helpers =================
@@ -335,6 +390,7 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     const t = today();
     if (k === t) return "Today";
     if (k === addDays(t, -1)) return "Yesterday";
+    if (k === addDays(t, 1)) return "Tomorrow";
     return fromKey(k).toLocaleDateString(undefined, style === "long" ? { weekday: "short", month: "short", day: "numeric" } : { month: "short", day: "numeric" });
   };
   const timeOf = (iso) => { const d = new Date(iso); return isNaN(d) ? "" : d.toLocaleTimeString(undefined, { hour: "numeric", minute: "2-digit" }); };
@@ -350,6 +406,7 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     settings: { goal: 2000, protein: 150, carbs: 200, fat: 65, unit: "lb", goalWeight: null },
     calRange: 7, wRange: 90, month: today().slice(0, 7), histDay: today(),
     draft: null, sheet: null, storeMode: "local",
+    recipes: [], plan: [], groceries: new Map(), rdraft: null, rq: "", pq: "", planWeek: null, progView: "trends",
   };
 
   function derive() {
@@ -361,6 +418,7 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
     }
     S.byDay = m;
     S.weights.sort((a, b) => a.date.localeCompare(b.date));
+    S.recipes.sort((a, b) => String(b.createdAt).localeCompare(String(a.createdAt)));
   }
   const dayTotals = (k) => S.byDay.get(k) || { kcal: 0, protein: 0, carbs: 0, fat: 0, count: 0 };
   function streakInfo() {
@@ -380,68 +438,93 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
   };
   const localStore = {
     mode: "local", ls: new Set(),
-    emit() { for (const f of this.ls) f(); },
-    subscribeMeals(start, cb) { const f = () => cb(LS.get("pc.meals", []).filter((m) => m.date >= start)); this.ls.add(f); f(); return () => this.ls.delete(f); },
-    subscribeWeights(cb) { const f = () => cb(LS.get("pc.weights", [])); this.ls.add(f); f(); return () => this.ls.delete(f); },
-    async addMeal(meal, photo) {
-      const all = LS.get("pc.meals", []); all.push(meal); LS.set("pc.meals", all);
-      if (photo) { const t = LS.get("pc.thumbs", {}); t[meal.id] = photo; LS.set("pc.thumbs", t); }
-      this.emit();
+    read(name) {
+      const raw = LS.get("pc." + name, {}), m = {};
+      if (Array.isArray(raw)) { for (const x of raw) if (x) m[x.id || x.date] = x; return m; }
+      for (const [k, v] of Object.entries(raw || {})) m[k] = typeof v === "string" ? { src: v } : v;
+      return m;
     },
-    async removeMeal(id) { LS.set("pc.meals", LS.get("pc.meals", []).filter((m) => m.id !== id)); const t = LS.get("pc.thumbs", {}); delete t[id]; LS.set("pc.thumbs", t); this.emit(); },
-    async getPhoto(id) { return LS.get("pc.thumbs", {})[id] || ""; },
-    async setWeight(date, kg) { const w = LS.get("pc.weights", []).filter((x) => x.date !== date); w.push({ date, kg }); LS.set("pc.weights", w); this.emit(); },
-    async removeWeight(date) { LS.set("pc.weights", LS.get("pc.weights", []).filter((x) => x.date !== date)); this.emit(); },
+    emit() { for (const f of this.ls) f(); },
+    watch(name, opts, cb) {
+      const f = () => { let list = Object.entries(this.read(name)).map(([id, b]) => ({ ...b, id })); if (opts.since) list = list.filter((x) => x.date >= opts.since); cb(list); };
+      this.ls.add(f); f(); return () => this.ls.delete(f);
+    },
+    async get(name, id) { return this.read(name)[id] || null; },
+    async put(name, id, body) { const m = this.read(name); m[id] = body; if (!LS.set("pc." + name, m)) throw new Error("storage full"); this.emit(); },
+    async del(name, id) { const m = this.read(name); delete m[id]; LS.set("pc." + name, m); this.emit(); },
     async getSettings() { return LS.get("pc.settings", null) || (LS.get("pc.goal", null) ? { goal: Number(LS.get("pc.goal", 2000)) } : {}); },
     async saveSettings(s) { LS.set("pc.settings", s); },
   };
+  // Every collection lives under the viewer's private data/users/<id>/ subtree.
   function dbStore(db, uid) {
-    const log = db.doc(`data/users/${uid}/log`);
-    const meals = log.collection("meals"), photos = log.collection("thumbs"), weights = log.collection("weights");
-    const settings = db.doc(`data/users/${uid}/settings`);
+    const log = db.doc(`data/users/${uid}/log`), settings = db.doc(`data/users/${uid}/settings`);
     const lost = () => { S.storeError = true; render(); };
     return {
       mode: "db",
-      subscribeMeals(start, cb) { return meals.where("date", ">=", start).orderBy("date", "desc").limit(1000).onSnapshot((s) => cb(s.docs.map((d) => ({ id: d.id, ...d.data() }))), lost); },
-      subscribeWeights(cb) { return weights.orderBy("date").limit(1000).onSnapshot((s) => cb(s.docs.map((d) => d.data())), lost); },
-      async addMeal(meal, photo) { const { id, ...body } = meal; await meals.doc(id).set(body); if (photo) await photos.doc(id).set({ src: photo }).catch(() => {}); },
-      async removeMeal(id) { await meals.doc(id).delete(); await photos.doc(id).delete().catch(() => {}); },
-      async getPhoto(id) { const s = await photos.doc(id).get(); return (s.exists && s.data().src) || ""; },
-      async setWeight(date, kg) { await weights.doc(date).set({ date, kg }); },
-      async removeWeight(date) { await weights.doc(date).delete(); },
+      watch(name, opts, cb) {
+        let q = log.collection(name);
+        if (opts.since) q = q.where("date", ">=", opts.since).orderBy("date", "desc");
+        else if (opts.order) q = q.orderBy(opts.order, opts.dir || "asc");
+        return q.limit(1000).onSnapshot((s) => cb(s.docs.map((d) => ({ ...d.data(), id: d.id }))), lost);
+      },
+      async get(name, id) { const s = await log.collection(name).doc(id).get(); return s.exists ? s.data() : null; },
+      async put(name, id, body) { await log.collection(name).doc(id).set(body); },
+      async del(name, id) { await log.collection(name).doc(id).delete(); },
       async getSettings() { const s = await settings.get(); return s.exists ? s.data() : {}; },
       async saveSettings(s) { await settings.set(s); },
     };
   }
   let store = localStore, unsubs = [];
+  const strip = (o) => { const b = { ...o }; delete b.id; for (const k of Object.keys(b)) if (b[k] === undefined) delete b[k]; return b; };
+  async function addMeal(meal, photo) {
+    await store.put("meals", meal.id, strip(meal));
+    if (photo) { photoCache.set(meal.id, photo); await store.put("thumbs", meal.id, { src: photo }).catch(() => {}); }
+  }
+  async function removeMeal(m) {
+    await store.del("meals", m.id);
+    if (m.source === "photo" && !S.meals.some((x) => x.photoKey === m.id)) await store.del("thumbs", m.id).catch(() => {});
+  }
+  const LIVE_SHEETS = new Set(["meal", "recipe", "entry", "grocery"]);
   function subscribeAll() {
     unsubs.forEach((u) => u()); unsubs = [];
-    const start = addDays(today(), -400);
-    unsubs.push(store.subscribeMeals(start, (list) => { S.meals = list; derive(); render(); }));
-    unsubs.push(store.subscribeWeights((list) => { S.weights = list.filter((w) => w && w.date && Number(w.kg) > 0); derive(); render(); }));
+    const t = today();
+    const on = (name, opts, fn) => unsubs.push(store.watch(name, opts, (list) => {
+      fn(list); derive(); render();
+      if (S.sheet && LIVE_SHEETS.has(S.sheet.type)) renderSheet();
+    }));
+    on("meals", { since: addDays(t, -400) }, (l) => { S.meals = l; });
+    on("weights", { order: "date" }, (l) => { S.weights = l.filter((w) => w && w.date && Number(w.kg) > 0); });
+    on("recipes", { order: "createdAt", dir: "desc" }, (l) => { S.recipes = l; });
+    on("plan", { since: addDays(t, -70) }, (l) => { S.plan = l; });
+    on("groceries", {}, (l) => { S.groceries = new Map(l.map((g) => [g.id, g])); });
   }
 
-  // Photos live in their own documents and load on demand.
+  // Photos live in their own documents and load on demand. Meal photos use the meal id; recipe photos use "r_" + recipe id.
   const photoCache = new Map();
-  function photoFor(meal) {
-    if (meal.thumb) return meal.thumb;
-    if (photoCache.has(meal.id)) return photoCache.get(meal.id);
-    if (meal.source !== "photo") return "";
-    photoCache.set(meal.id, "");
-    store.getPhoto(meal.id).then((src) => {
+  const photoKeyOf = (m) => m.photoKey || (m.source === "photo" ? m.id : null);
+  function photoByKey(key) {
+    if (!key) return "";
+    if (photoCache.has(key)) return photoCache.get(key);
+    photoCache.set(key, "");
+    store.get("thumbs", key).then((b) => {
+      const src = b && b.src;
       if (!src) return;
-      photoCache.set(meal.id, src);
-      document.querySelectorAll(`[data-photo="${meal.id}"]`).forEach((n) => {
-        const img = el("img", { class: n.className, src, alt: "" });
-        n.replaceWith(img);
-      });
+      photoCache.set(key, src);
+      document.querySelectorAll(`[data-photo="${key}"]`).forEach((n) => n.replaceWith(el("img", { class: n.className, src, alt: "" })));
     }).catch(() => {});
     return "";
   }
-  const thumbNode = (meal, cls = "thumb") => {
-    const src = photoFor(meal);
+  const photoFor = (m) => m.thumb || photoByKey(photoKeyOf(m));
+  const srcIcon = (s) => (s === "quick" ? "bolt" : s === "describe" ? "text" : s === "recipe" ? "book" : "plate");
+  const thumbNode = (m, cls = "thumb") => {
+    const src = photoFor(m);
     if (src) return el("img", { class: cls, src, alt: "" });
-    return el("div", { class: cls, "data-photo": meal.id }, ico(meal.source === "quick" ? "bolt" : meal.source === "describe" ? "text" : "plate"));
+    return el("div", { class: cls, "data-photo": photoKeyOf(m) || "" }, ico(srcIcon(m.source)));
+  };
+  const recipeImg = (r, cls) => {
+    const src = r && r.hasPhoto ? photoByKey("r_" + r.id) : "";
+    if (src) return el("img", { class: cls, src, alt: "" });
+    return el("div", { class: cls, "data-photo": r && r.hasPhoto ? "r_" + r.id : "" }, ico("book"));
   };
 
   function makeImage(file, size, square) {
@@ -462,7 +545,7 @@ details.data td:last-child, details.data th:last-child { text-align: right; }
   }
 
   // ================= Claude estimates (on the viewer's own plan) =================
-  let sample = null, canImages = false, ctl = null;
+  let sample = null, canImages = false, imgMax = 4, ctl = null;
   const ERR = {
     not_granted: "Claude access was declined for this page. Quick add still works.",
     sampling_disabled: "Claude isn't available on this account. Quick add still works.",
@@ -528,6 +611,7 @@ ${SHAPE}`;
   function closeSheet() {
     S.sheet = null; renderSheet();
     if (S.draft && S.draft.phase === "input") dropDraft();
+    if (S.rdraft) { if (rctl) rctl.abort(); S.rdraft.previews.forEach((u) => URL.revokeObjectURL(u)); S.rdraft = null; }
     render();
   }
   function dropDraft() {
@@ -553,7 +637,7 @@ ${SHAPE}`;
     document.body.style.overflow = "hidden";
     const sheet = el("div", { class: "sheet", role: "dialog", "aria-modal": "true" }, el("div", { class: "grabber" }));
     const scrim = el("div", { class: "scrim", onclick: (e) => { if (e.target === scrim) closeSheet(); } }, sheet);
-    const body = { add: sheetAdd, draft: sheetDraft, meal: sheetMeal, weight: sheetWeight }[S.sheet.type || S.sheet]();
+    const body = { add: sheetAdd, draft: sheetDraft, meal: sheetMeal, weight: sheetWeight, rimport: sheetRImport, recipe: sheetRecipe, pick: sheetPick, entry: sheetEntry, grocery: sheetGrocery }[S.sheet.type || S.sheet]();
     sheet.append(...[].concat(body).filter(Boolean));
     root.append(scrim);
     if (prevScroll) sheet.scrollTop = prevScroll;
@@ -569,8 +653,10 @@ ${SHAPE}`;
         tile("camera", "Scan food", ai && canImages ? "Photo of your plate" : "Needs Claude photos", () => { S.sheet = null; renderSheet(); $("photoInput").click(); }, !(ai && canImages)),
         tile("text", "Describe food", ai ? "Type what you ate" : "Needs Claude", () => startDraft("describe"), !ai),
         tile("bolt", "Quick add", "Enter known calories", () => startDraft("quick")),
+        tile("book", "Saved recipe", S.recipes.length ? `${S.recipes.length} saved` : "None saved yet", () => { S.pq = ""; openSheet({ type: "pick", mode: "log" }); }),
+        tile("import", "Import recipe", ai ? "From a caption or screenshot" : "Type one in", () => startImport()),
         tile("scale", "Log weight", "Track your trend", () => openSheet("weight"))),
-      !ai ? el("p", { class: "note" }, "Photo and text estimates run on your Claude plan and need this page open in Claude. Quick add and weight work anywhere.") : null,
+      !ai ? el("p", { class: "note" }, "Photo, text and recipe estimates run on your Claude plan and need this page open in Claude. Quick add, saved recipes and weight work anywhere.") : null,
     ];
   }
 
@@ -689,8 +775,7 @@ ${SHAPE}`;
       items, kcal: sum("kcal"), protein: sum("protein"), carbs: sum("carbs"), fat: sum("fat"), source: d.kind,
     };
     try {
-      await store.addMeal(meal, d.photo || "");
-      if (d.photo) photoCache.set(meal.id, d.photo);
+      await addMeal(meal, d.photo || "");
       dropDraft(); S.sheet = null; S.day = meal.date; S.tab = "home"; renderAll();
     } catch { d.error = "Couldn't save that meal. Check your connection and tap Done again."; renderSheet(); }
   }
@@ -712,13 +797,11 @@ ${SHAPE}`;
       el("div", { class: "sheetfoot" },
         el("button", { class: "btn danger", onclick: async () => {
           if (!confirm) { S.sheet = { ...S.sheet, confirm: true }; renderSheet(); return; }
-          try { await store.removeMeal(m.id); closeSheet(); } catch {}
+          try { await removeMeal(m); closeSheet(); } catch {}
         } }, confirm ? "Tap again to delete" : "Delete"),
         el("button", { class: "btn", onclick: async () => {
-          const copy = { ...m, id: newId(), date: today(), at: new Date().toISOString(), slot: guessSlot() };
-          delete copy.thumb;
-          const photo = src || "";
-          try { await store.addMeal(copy, photo); if (photo) photoCache.set(copy.id, photo); S.day = today(); S.tab = "home"; closeSheet(); } catch {}
+          const copy = { ...m, id: newId(), date: today(), at: new Date().toISOString(), slot: guessSlot(), photoKey: photoKeyOf(m) || undefined };
+          try { await addMeal(copy); S.day = today(); S.tab = "home"; closeSheet(); } catch {}
         } }, "Log again today")),
     ];
   }
@@ -733,7 +816,7 @@ ${SHAPE}`;
       const date = $("wDate").value || today();
       if (!(v > 0)) { $("wIn").focus(); return; }
       const kg = Math.round((u === "lb" ? v / KG_LB : v) * 100) / 100;
-      try { await store.setWeight(date > today() ? today() : date, kg); S.tab = "progress"; closeSheet(); } catch { $("wErr").hidden = false; }
+      try { const dd = date > today() ? today() : date; await store.put("weights", dd, { date: dd, kg }); S.tab = "progress"; closeSheet(); } catch { $("wErr").hidden = false; }
     } },
       el("div", { class: "row", style: "align-items:stretch" },
         el("div", { class: "field" }, el("label", { for: "wIn" }, `Weight (${u})`), el("input", { class: "input tnum", id: "wIn", type: "number", step: "0.1", min: "0", inputmode: "decimal", value: last ? toU(last.kg).toFixed(1) : "", style: "font-size:22px;font-weight:700" })),
@@ -743,6 +826,372 @@ ${SHAPE}`;
       el("div", { class: "sheetfoot" }, el("button", { class: "btn", type: "submit" }, "Save weight")));
     setTimeout(() => $("wIn")?.select(), 0);
     return [sheetHead("Log weight"), form];
+  }
+
+  // ================= recipes =================
+  const perServing = (r) => ({ kcal: r.kcal || 0, protein: r.protein || 0, carbs: r.carbs || 0, fat: r.fat || 0 });
+  function recipeTotals(ings, servings) {
+    const n = Math.max(Number(servings) || 1, 0.5), sum = (k) => ings.reduce((a, i) => a + (Number(i[k]) || 0), 0);
+    return { kcal: Math.round(sum("kcal") / n), protein: Math.round(sum("protein") / n), carbs: Math.round(sum("carbs") / n), fat: Math.round(sum("fat") / n) };
+  }
+  const servLabel = (n) => `${n === 0.5 ? "½" : n} serving${n === 1 ? "" : "s"}`;
+  const RECIPE_SHAPE = `Reply with only JSON in exactly this shape:
+{"title":"Garlic butter chicken thighs","servings":4,"time":"35 min","tags":["high protein","dinner"],"ingredients":[{"text":"2 lb boneless skinless chicken thighs","kcal":1090,"protein":155,"carbs":0,"fat":50}],"steps":["Season the chicken with salt and pepper."],"notes":"one short sentence on assumptions, or empty"}
+Rules: each ingredient's kcal and grams are whole numbers for the full amount used in the whole recipe, not per serving. Keep each step under 30 words and keep the author's order. tags are 1 to 4 short lowercase labels. If there is no recipe, return an empty ingredients array and say why in notes.`;
+  const recipePrompt = (text, nImages) => `You are saving a recipe into someone's calorie tracker.${nImages ? ` The ${nImages > 1 ? `${nImages} attached images are screenshots` : "attached image is a screenshot"} of a recipe post, for example from Instagram or TikTok. Read the recipe from ${nImages > 1 ? "them" : "it"} and ignore likes, comments and app buttons.` : ""}${text ? `\nRecipe text:\n"""\n${text.slice(0, 12000)}\n"""` : ""}
+Extract the title, the number of servings, total time if given, every ingredient with its amount, and the method. Where an amount is missing, assume a typical one and mention it in notes. If servings aren't stated, estimate a sensible number. Estimate calories, protein, carbohydrate and fat for each ingredient using standard references such as USDA FoodData Central.
+${RECIPE_SHAPE}`;
+  function cleanRecipe(raw) {
+    const r = raw || {};
+    return {
+      title: String(r.title || "Untitled recipe").slice(0, 100), servings: Math.min(Math.max(Math.round(Number(r.servings)) || 2, 1), 50), time: String(r.time || "").slice(0, 30),
+      tags: (Array.isArray(r.tags) ? r.tags : []).slice(0, 4).map((t) => String(t).toLowerCase().slice(0, 24)),
+      ingredients: (Array.isArray(r.ingredients) ? r.ingredients : []).slice(0, 60)
+        .map((i) => ({ text: String((i && i.text) || "").slice(0, 140), kcal: int(i && i.kcal, 20000), protein: int(i && i.protein, 2000), carbs: int(i && i.carbs, 3000), fat: int(i && i.fat, 2000) }))
+        .filter((i) => i.text),
+      steps: (Array.isArray(r.steps) ? r.steps : []).slice(0, 40).map((s) => String(s).slice(0, 400)).filter(Boolean),
+      notes: String(r.notes || "").slice(0, 300),
+    };
+  }
+  const blankRecipe = () => ({ title: "", servings: 2, time: "", tags: [], ingredients: [], steps: [], notes: "" });
+
+  let rctl = null;
+  function startImport(extra = {}) {
+    if (rctl) rctl.abort();
+    if (S.rdraft) S.rdraft.previews.forEach((u) => URL.revokeObjectURL(u));
+    S.rdraft = { phase: "input", mode: "text", text: "", files: [], previews: [], source: "", error: "", recipe: null, photo: "", photoChanged: false, editingId: null, open: -1, addText: "", addKcal: "", adding: false, ...extra };
+    openSheet({ type: "rimport" });
+  }
+  async function runImport() {
+    const d = S.rdraft;
+    let text = d.mode === "text" ? d.text.trim() : "";
+    const url = (text.match(/https?:\/\/\S+/) || [])[0];
+    if (url && !d.source) d.source = url;
+    if (url && text.replace(url, "").trim().length < 20) {
+      d.error = "Links can't be opened from here. Paste the caption text itself, or switch to Screenshots and add a screenshot of the post.";
+      renderSheet(); return;
+    }
+    const files = d.mode === "image" ? d.files : [];
+    if (!text && !files.length) { d.error = d.mode === "text" ? "Paste the recipe text first." : "Add at least one screenshot first."; renderSheet(); return; }
+    rctl = new AbortController(); d.phase = "thinking"; d.error = ""; renderSheet();
+    try {
+      const opts = { signal: rctl.signal, modelTier: "default" };
+      if (files.length) opts.images = files;
+      const r = cleanRecipe(await sample.json(recipePrompt(text, files.length), opts));
+      if (S.rdraft !== d) return;
+      if (!r.ingredients.length) { d.phase = "input"; d.error = r.notes || "No recipe found. Try the full caption or a clearer screenshot."; }
+      else {
+        d.recipe = r; d.phase = "review";
+        if (files[0] && !d.photo) { d.photo = await makeImage(files[0], 480, false); d.photoChanged = !!d.photo; }
+      }
+    } catch (e) {
+      if (S.rdraft !== d) return;
+      d.phase = "input";
+      if (!(e && e.code === "cancelled")) d.error = errText(e);
+    }
+    if (S.sheet && S.sheet.type === "rimport") renderSheet();
+  }
+  async function addIngredient() {
+    const d = S.rdraft, r = d.recipe;
+    const text = d.addText.trim();
+    if (!text) { $("aiT")?.focus(); return; }
+    const k = d.addKcal === "" ? NaN : Number(d.addKcal);
+    if (Number.isFinite(k)) { r.ingredients.push({ text, kcal: int(k, 20000), protein: 0, carbs: 0, fat: 0 }); }
+    else if (sample) {
+      d.adding = true; renderSheet();
+      try {
+        const v = await sample.json(`Estimate nutrition for this recipe ingredient at the amount given: "${text}". Use USDA FoodData Central values. Reply with only JSON: {"kcal":0,"protein":0,"carbs":0,"fat":0} using whole numbers.`, { modelTier: "quick" });
+        r.ingredients.push({ text, kcal: int(v.kcal, 20000), protein: int(v.protein, 2000), carbs: int(v.carbs, 3000), fat: int(v.fat, 2000) });
+      } catch (e) { d.error = errText(e); }
+      d.adding = false;
+    } else { d.error = "Enter the calories for that ingredient."; renderSheet(); return; }
+    d.addText = ""; d.addKcal = ""; renderSheet();
+    setTimeout(() => $("aiT")?.focus(), 0);
+  }
+  async function saveRecipe() {
+    const d = S.rdraft, r = d.recipe;
+    if (!r.ingredients.length) { d.error = "Add at least one ingredient."; renderSheet(); return; }
+    const id = d.editingId || newId(), prev = d.editingId ? S.recipes.find((x) => x.id === id) : null;
+    const body = {
+      title: r.title.trim() || "Untitled recipe", servings: r.servings, time: r.time.trim(), tags: r.tags, ingredients: r.ingredients, steps: r.steps, notes: r.notes,
+      source: (d.source || "").trim().slice(0, 500), ...recipeTotals(r.ingredients, r.servings),
+      hasPhoto: !!(d.photo || (prev && prev.hasPhoto)), createdAt: (prev && prev.createdAt) || new Date().toISOString(),
+    };
+    try {
+      if (d.photo && d.photoChanged) { photoCache.set("r_" + id, d.photo); await store.put("thumbs", "r_" + id, { src: d.photo }).catch(() => { body.hasPhoto = !!(prev && prev.hasPhoto); }); }
+      await store.put("recipes", id, body);
+      d.previews.forEach((u) => URL.revokeObjectURL(u));
+      S.rdraft = null; S.tab = "recipes"; paint();
+      openSheet({ type: "recipe", id, servings: 1, slot: guessSlot() });
+    } catch { d.error = "Couldn't save the recipe. Check your connection and try again."; renderSheet(); }
+  }
+  async function logRecipe(r, n, slot, date) {
+    const p = perServing(r);
+    const meal = {
+      id: newId(), date, slot, at: new Date().toISOString(), name: r.title,
+      items: [{ name: r.title, portion: servLabel(n), kcal: Math.round(p.kcal * n), protein: Math.round(p.protein * n), carbs: Math.round(p.carbs * n), fat: Math.round(p.fat * n) }],
+      kcal: Math.round(p.kcal * n), protein: Math.round(p.protein * n), carbs: Math.round(p.carbs * n), fat: Math.round(p.fat * n),
+      source: "recipe", recipeId: r.id, photoKey: r.hasPhoto ? "r_" + r.id : undefined,
+    };
+    await addMeal(meal);
+    const planned = S.plan.find((e) => e.date === date && e.recipeId === r.id && !isLogged(e));
+    if (planned) await store.put("plan", planned.id, { ...strip(planned), mealId: meal.id }).catch(() => {});
+    return meal;
+  }
+
+  function sheetRImport() {
+    const d = S.rdraft;
+    if (!d) return [sheetHead("Import recipe")];
+    const previews = d.previews.length ? el("div", { class: "thumbs-row" }, d.previews.map((u) => el("img", { src: u, alt: "Screenshot" }))) : null;
+    if (d.phase === "thinking") {
+      return [sheetHead("Reading the recipe"), d.mode === "image" ? previews : null,
+        el("div", { class: "card stack" }, el("div", { class: "bar-ind" }, el("i")),
+          el("p", { class: "muted" }, "Pulling out ingredients and steps, then working out calories and macros for each ingredient. Long recipes can take up to a minute.")),
+        el("div", { class: "sheetfoot" }, el("button", { class: "btn line", onclick: () => rctl && rctl.abort() }, "Stop"))];
+    }
+    if (d.phase === "input") {
+      const manual = el("button", { class: "small muted", style: "align-self:flex-start;text-decoration:underline", onclick: () => { d.recipe = blankRecipe(); d.phase = "review"; renderSheet(); } }, "Enter a recipe by hand instead");
+      if (!sample) return [sheetHead("Add recipe"), el("p", { class: "note" }, "Importing from captions and screenshots runs on your Claude plan and needs this page open in Claude. You can still type a recipe in by hand."), el("div", { class: "sheetfoot" }, el("button", { class: "btn", onclick: () => { d.recipe = blankRecipe(); d.phase = "review"; renderSheet(); } }, "Enter by hand"))];
+      const modeSeg = el("div", { class: "seg", role: "group", "aria-label": "Import from" },
+        [["text", "Paste text"], ["image", "Screenshots"]].map(([v, l]) => el("button", { "aria-pressed": String(d.mode === v), disabled: v === "image" && !canImages, onclick: () => { d.mode = v; d.error = ""; renderSheet(); } }, l)));
+      const body = d.mode === "text"
+        ? el("div", { class: "field" }, el("label", { for: "rText" }, "Recipe caption or text"),
+            el("textarea", { class: "input", id: "rText", style: "min-height:160px", placeholder: "Paste the caption from Instagram or TikTok, or a recipe from a website or your notes.", oninput: (e) => { d.text = e.target.value; } }, d.text))
+        : el("div", { class: "stack" }, previews,
+            el("button", { class: "btn ghost", onclick: () => $("recipeFiles").click() }, ico("camera", "ico"), d.files.length ? "Choose different screenshots" : "Choose screenshots"),
+            el("p", { class: "small muted" }, `Screenshot the caption and ingredient list. If the recipe spans several slides, add up to ${imgMax} screenshots.`));
+      return [sheetHead("Import recipe", "From Instagram, TikTok, websites or notes"), modeSeg, body,
+        el("div", { class: "field" }, el("label", { for: "rSrc" }, "Link to the original (optional, for your reference)"),
+          el("input", { class: "input", id: "rSrc", type: "url", placeholder: "https://www.instagram.com/p/…", value: d.source, oninput: (e) => { d.source = e.target.value; } })),
+        d.error ? el("p", { class: "err" }, d.error) : null, manual,
+        el("div", { class: "sheetfoot" }, el("button", { class: "btn", onclick: runImport }, d.error ? "Try again" : "Import recipe"))];
+    }
+    // review / edit
+    const r = d.recipe, per = recipeTotals(r.ingredients, r.servings);
+    const ing = el("div", { class: "ing" }, r.ingredients.map((it, i) => el("div", { class: "ingrow" },
+      el("button", { class: "head", "aria-expanded": String(d.open === i), onclick: () => { d.open = d.open === i ? -1 : i; renderSheet(); } },
+        el("div", { class: "n" }, it.text), el("div", { class: "k tnum" }, fmt(it.kcal) + " cal")),
+      d.open === i ? el("div", { class: "qtys" },
+        el("input", { class: "input tnum", id: "rik" + i, type: "number", min: "0", value: it.kcal, "aria-label": `Calories for ${it.text}`, style: "width:110px;padding:6px 10px;font-size:14px", onchange: (e) => { it.kcal = int(e.target.value, 20000); renderSheet(); } }),
+        el("span", { class: "small muted tnum" }, `P ${it.protein}g · C ${it.carbs}g · F ${it.fat}g`),
+        el("button", { class: "btn danger sm", onclick: () => { r.ingredients.splice(i, 1); d.open = -1; renderSheet(); } }, "Remove")) : null)));
+    const addRow = el("div", { class: "row", style: "align-items:flex-end;padding-block:12px 4px" },
+      el("div", { class: "field", style: "flex:3 1 150px" }, el("label", { for: "aiT" }, "Add ingredient"), el("input", { class: "input", id: "aiT", placeholder: "e.g. 1 tbsp olive oil", value: d.addText, oninput: (e) => { d.addText = e.target.value; }, onkeydown: (e) => { if (e.key === "Enter") { e.preventDefault(); addIngredient(); } } })),
+      el("div", { class: "field", style: "flex:1 1 70px" }, el("label", { for: "aiK" }, "Cal"), el("input", { class: "input tnum", id: "aiK", type: "number", min: "0", placeholder: sample ? "auto" : "0", value: d.addKcal, oninput: (e) => { d.addKcal = e.target.value; } })),
+      el("button", { class: "btn sm", disabled: d.adding, onclick: addIngredient }, d.adding ? "…" : "Add"));
+    return [
+      d.photo ? el("img", { class: "photo", src: d.photo, alt: "" }) : null,
+      el("div", { class: "row between", style: "align-items:flex-start" },
+        el("input", { class: "titlein", id: "rTitle", value: r.title, placeholder: "Recipe name", "aria-label": "Recipe name", oninput: (e) => { r.title = e.target.value; } }),
+        el("button", { class: "x", "aria-label": "Close", onclick: closeSheet }, ico("close"))),
+      el("button", { class: "btn ghost sm", style: "align-self:flex-start", onclick: () => $("recipePhoto").click() }, ico("camera", "ico"), d.photo ? "Change photo" : "Add a photo"),
+      el("div", { class: "row between wrap" },
+        el("div", { class: "row" }, el("b", {}, "Makes"),
+          el("div", { class: "stepper" },
+            el("button", { "aria-label": "Fewer servings", onclick: () => { r.servings = Math.max(1, r.servings - 1); renderSheet(); } }, "−"),
+            el("span", { class: "tnum" }, String(r.servings)),
+            el("button", { "aria-label": "More servings", onclick: () => { r.servings = Math.min(50, r.servings + 1); renderSheet(); } }, "+")),
+          el("span", { class: "muted" }, "servings")),
+        el("input", { class: "input", id: "rTime", value: r.time, placeholder: "Time, e.g. 30 min", "aria-label": "Total time", style: "width:150px;padding:9px 12px;font-size:14px", oninput: (e) => { r.time = e.target.value; } })),
+      calRow(per.kcal, "Calories per serving"),
+      el("div", { class: "mini3" }, macroMini("protein", per.protein), macroMini("carbs", per.carbs), macroMini("fat", per.fat)),
+      el("div", { class: "card", style: "padding:6px 16px 12px" },
+        el("div", { class: "row between", style: "padding-top:10px" }, el("b", {}, `Ingredients (${r.ingredients.length})`), el("span", { class: "small muted" }, "Whole recipe · tap to edit")),
+        r.ingredients.length ? ing : el("p", { class: "small muted", style: "padding-top:8px" }, "No ingredients yet."), addRow),
+      r.steps.length ? el("div", { class: "card stack" }, el("b", {}, "Steps"), el("ol", { class: "steps" }, r.steps.map((s) => el("li", {}, s)))) : null,
+      r.notes ? el("p", { class: "note" }, r.notes) : null,
+      el("div", { class: "field" }, el("label", { for: "rSrc2" }, "Link to the original (optional)"),
+        el("input", { class: "input", id: "rSrc2", type: "url", value: d.source, placeholder: "https://…", oninput: (e) => { d.source = e.target.value; } })),
+      d.error ? el("p", { class: "err" }, d.error) : null,
+      el("div", { class: "sheetfoot" }, el("button", { class: "btn", onclick: saveRecipe }, d.editingId ? "Save changes" : "Save recipe")),
+    ];
+  }
+
+  function sheetRecipe() {
+    const sh = S.sheet, r = S.recipes.find((x) => x.id === sh.id);
+    if (!r) return [sheetHead("Recipe"), el("p", { class: "muted" }, "This recipe was deleted.")];
+    const p = perServing(r), t = today();
+    const qtySeg = el("div", { class: "qtys", role: "group", "aria-label": "Servings" },
+      [0.5, 1, 1.5, 2, 3].map((q) => el("button", { class: "q", "aria-pressed": String(sh.servings === q), onclick: () => { sh.servings = q; renderSheet(); } }, q === 0.5 ? "½" : String(q))),
+      el("span", { class: "small muted tnum" }, `= ${fmt(p.kcal * sh.servings)} cal`));
+    const days = Array.from({ length: 14 }, (_, i) => addDays(t, i));
+    const planBox = sh.planning ? el("div", { class: "stack" },
+      el("div", { class: "daychips", role: "group", "aria-label": "Plan for" }, days.map((k) => el("button", { "aria-pressed": String(sh.planDay === k), onclick: () => { sh.planDay = k; renderSheet(); } },
+        el("div", {}, k === t ? "Today" : fromKey(k).toLocaleDateString(undefined, { weekday: "short" })), el("div", { class: "tnum", style: "font-size:12px;opacity:.8" }, fromKey(k).toLocaleDateString(undefined, { month: "numeric", day: "numeric" }))))),
+      el("button", { class: "btn", onclick: async () => {
+        try { await addPlanEntry({ date: sh.planDay, slot: sh.slot, recipe: r, servings: sh.servings }); sh.planning = false; sh.flash = `Added to ${dayName(sh.planDay)}'s plan`; renderSheet(); } catch {}
+      } }, `Add to ${dayName(sh.planDay)}`)) : null;
+    const src = r.source || "";
+    return [
+      r.hasPhoto ? recipeImg(r, "photo") : null,
+      sheetHead(r.title, [r.time, `Makes ${r.servings}`].filter(Boolean).join(" · ")),
+      r.tags && r.tags.length ? el("div", { class: "tags" }, r.tags.map((x) => el("span", { class: "chip" }, x))) : null,
+      calRow(p.kcal, "Calories per serving"),
+      el("div", { class: "mini3" }, macroMini("protein", p.protein), macroMini("carbs", p.carbs), macroMini("fat", p.fat)),
+      el("div", { class: "card stack" },
+        el("b", {}, "Eat or plan it"),
+        el("div", { class: "row wrap" }, el("span", { class: "small muted", style: "font-weight:600" }, "Servings"), qtySeg),
+        slotSeg(() => sh.slot, (s) => { sh.slot = s; }),
+        sh.flash ? el("p", { class: "small", style: "color:var(--good);font-weight:600" }, sh.flash) : null,
+        el("div", { class: "row" },
+          el("button", { class: "btn", style: "flex:1", disabled: S.day > t, onclick: async () => {
+            try { await logRecipe(r, sh.servings, sh.slot, S.day); sh.flash = `Logged ${servLabel(sh.servings)} to ${dayName(S.day)}`; renderSheet(); } catch {}
+          } }, `Log to ${dayName(S.day)}`),
+          el("button", { class: "btn line", style: "flex:1", onclick: () => { sh.planning = !sh.planning; sh.planDay = sh.planDay || t; renderSheet(); } }, sh.planning ? "Cancel" : "Add to plan")),
+        planBox),
+      el("div", { class: "card", style: "padding:6px 16px" }, el("div", { style: "padding-top:10px" }, el("b", {}, `Ingredients · makes ${r.servings}`)),
+        el("div", { class: "ing" }, (r.ingredients || []).map((it) => el("div", { class: "ingrow" }, el("div", { class: "head" }, el("div", { class: "n" }, it.text), el("div", { class: "k tnum muted" }, fmt(it.kcal) + " cal")))))),
+      (r.steps || []).length ? el("div", { class: "card stack" }, el("b", {}, "Steps"), el("ol", { class: "steps" }, r.steps.map((s) => el("li", {}, s)))) : null,
+      r.notes ? el("p", { class: "note" }, r.notes) : null,
+      /^https?:\/\//i.test(src) ? el("a", { href: src, target: "_blank", rel: "noopener noreferrer", class: "btn ghost sm", style: "align-self:flex-start;text-decoration:none" }, "Open the original post") : null,
+      el("div", { class: "sheetfoot" },
+        el("button", { class: "btn danger", onclick: async () => {
+          if (!sh.confirm) { sh.confirm = true; renderSheet(); return; }
+          try { await store.del("recipes", r.id); if (r.hasPhoto) store.del("thumbs", "r_" + r.id).catch(() => {}); closeSheet(); } catch {}
+        } }, sh.confirm ? "Tap again to delete" : "Delete"),
+        el("button", { class: "btn line", onclick: () => startImport({ phase: "review", editingId: r.id, source: r.source || "", photo: r.hasPhoto ? photoByKey("r_" + r.id) : "",
+          recipe: { title: r.title, servings: r.servings || 1, time: r.time || "", tags: [...(r.tags || [])], ingredients: (r.ingredients || []).map((i) => ({ ...i })), steps: [...(r.steps || [])], notes: r.notes || "" } }) }, "Edit")),
+    ];
+  }
+
+  // ================= meal plan =================
+  const weekStartOf = (k) => addDays(k, -fromKey(k).getDay());
+  const entryTotals = (e) => { const s = Number(e.servings) || 1, p = e.per || {}; return { kcal: Math.round((p.kcal || 0) * s), protein: Math.round((p.protein || 0) * s), carbs: Math.round((p.carbs || 0) * s), fat: Math.round((p.fat || 0) * s) }; };
+  const isLogged = (e) => !!(e.mealId && S.meals.some((m) => m.id === e.mealId));
+  const slotOrder = (s) => SLOTS.indexOf(s);
+  const entriesOn = (k) => S.plan.filter((e) => e.date === k).sort((a, b) => slotOrder(a.slot) - slotOrder(b.slot) || String(a.createdAt).localeCompare(String(b.createdAt)));
+  async function addPlanEntry({ date, slot, recipe, servings = 1, name, per }) {
+    await store.put("plan", newId(), { date, slot, servings, recipeId: recipe ? recipe.id : null, name: recipe ? recipe.title : name, per: recipe ? perServing(recipe) : per, mealId: null, createdAt: new Date().toISOString() });
+  }
+  async function logEntry(e) {
+    const r = e.recipeId ? S.recipes.find((x) => x.id === e.recipeId) : null, tot = entryTotals(e);
+    const meal = { id: newId(), date: e.date, slot: e.slot, at: new Date().toISOString(), name: e.name,
+      items: [{ name: e.name, portion: servLabel(Number(e.servings) || 1), ...tot }], ...tot,
+      source: r ? "recipe" : "quick", recipeId: r ? r.id : undefined, photoKey: r && r.hasPhoto ? "r_" + r.id : undefined };
+    await addMeal(meal);
+    await store.put("plan", e.id, { ...strip(e), mealId: meal.id });
+  }
+  const entryThumb = (e) => { const r = e.recipeId && S.recipes.find((x) => x.id === e.recipeId); return r ? recipeImg(r, "thumb") : el("div", { class: "thumb" }, ico("bolt")); };
+
+  function sheetPick() {
+    const sh = S.sheet, plan = sh.mode === "plan";
+    const q = (S.pq || "").toLowerCase();
+    const list = el("div");
+    const fill = () => {
+      const qq = (S.pq || "").toLowerCase();
+      const rs = S.recipes.filter((r) => !qq || (r.title + " " + (r.tags || []).join(" ")).toLowerCase().includes(qq));
+      list.replaceChildren(...(rs.length ? rs.map((r) => el("button", { class: "dayrow", onclick: async () => {
+        if (plan) { try { await addPlanEntry({ date: sh.date, slot: sh.slot, recipe: r }); closeSheet(); } catch {} }
+        else openSheet({ type: "recipe", id: r.id, servings: 1, slot: guessSlot() });
+      } }, recipeImg(r, "thumb"), el("div", { class: "t" }, el("div", {}, r.title), el("small", { class: "tnum" }, `${fmt(r.kcal)} cal · ${fmt(r.protein)}g protein per serving`)), el("span", { class: "chip" }, plan ? "Add" : "Open")))
+        : [el("p", { class: "small muted", style: "padding-block:10px" }, S.recipes.length ? "No recipes match." : "No saved recipes yet.")]));
+    };
+    fill();
+    const custom = plan ? el("form", { class: "card stack", onsubmit: async (e) => {
+      e.preventDefault();
+      const name = $("cN").value.trim(), kcal = int($("cK").value);
+      if (!name) { $("cN").focus(); return; }
+      try { await addPlanEntry({ date: sh.date, slot: sh.slot, name, per: { kcal, protein: 0, carbs: 0, fat: 0 } }); closeSheet(); } catch {}
+    } },
+      el("b", {}, "Or plan something else"),
+      el("div", { class: "row", style: "align-items:flex-end" },
+        el("div", { class: "field", style: "flex:3 1 140px" }, el("label", { for: "cN" }, "Name"), el("input", { class: "input", id: "cN", placeholder: "e.g. Dinner out" })),
+        el("div", { class: "field", style: "flex:1 1 80px" }, el("label", { for: "cK" }, "Calories"), el("input", { class: "input tnum", id: "cK", type: "number", min: "0", inputmode: "numeric" })),
+        el("button", { class: "btn sm", type: "submit" }, "Add"))) : null;
+    return [
+      sheetHead(plan ? `Plan ${dayName(sh.date)}` : "Saved recipes", plan ? fromKey(sh.date).toLocaleDateString(undefined, { weekday: "long", month: "long", day: "numeric" }) : `Log to ${dayName(S.day)}`),
+      plan ? slotSeg(() => sh.slot, (s) => { sh.slot = s; }) : null,
+      S.recipes.length > 4 ? el("div", { class: "search" }, ico("search"), el("input", { class: "input", id: "pq", type: "search", placeholder: "Search recipes", value: S.pq || "", oninput: (e) => { S.pq = e.target.value; fill(); } })) : null,
+      el("div", { class: "card", style: "padding:4px 14px" }, list),
+      !S.recipes.length ? el("button", { class: "btn ghost", onclick: () => startImport() }, ico("import", "ico"), "Import a recipe") : null,
+      custom,
+    ];
+  }
+
+  function sheetEntry() {
+    const sh = S.sheet, e = S.plan.find((x) => x.id === sh.id);
+    if (!e) return [sheetHead("Planned meal"), el("p", { class: "muted" }, "This was removed from your plan.")];
+    const r = e.recipeId && S.recipes.find((x) => x.id === e.recipeId), tot = entryTotals(e), logged = isLogged(e), t = today();
+    const save = (patch) => store.put("plan", e.id, { ...strip(e), ...patch }).catch(() => {});
+    return [
+      r && r.hasPhoto ? recipeImg(r, "photo") : null,
+      sheetHead(e.name, `Planned for ${dayName(e.date)}`),
+      el("div", { class: "row between" }, el("b", {}, "Servings"),
+        el("div", { class: "stepper" },
+          el("button", { "aria-label": "Fewer servings", onclick: () => save({ servings: Math.max(0.5, (Number(e.servings) || 1) - 0.5) }) }, "−"),
+          el("span", { class: "tnum" }, String(e.servings)),
+          el("button", { "aria-label": "More servings", onclick: () => save({ servings: Math.min(10, (Number(e.servings) || 1) + 0.5) }) }, "+"))),
+      slotSeg(() => e.slot, (s) => save({ slot: s })),
+      calRow(tot.kcal),
+      el("div", { class: "mini3" }, macroMini("protein", tot.protein), macroMini("carbs", tot.carbs), macroMini("fat", tot.fat)),
+      logged ? el("p", { class: "note" }, "Logged to your food diary.") : e.date > t ? el("p", { class: "small muted" }, `You can log this on ${dayName(e.date)}.`) : null,
+      r ? el("button", { class: "btn ghost sm", style: "align-self:flex-start", onclick: () => openSheet({ type: "recipe", id: r.id, servings: Number(e.servings) || 1, slot: e.slot }) }, "View recipe") : null,
+      el("div", { class: "sheetfoot" },
+        el("button", { class: "btn danger", onclick: async () => {
+          if (!sh.confirm) { sh.confirm = true; renderSheet(); return; }
+          try { await store.del("plan", e.id); closeSheet(); } catch {}
+        } }, sh.confirm ? "Tap again to remove" : "Remove"),
+        !logged && e.date <= t ? el("button", { class: "btn", onclick: async () => { try { await logEntry(e); closeSheet(); } catch {} } }, "Log it") : null),
+    ];
+  }
+
+  // ================= grocery list =================
+  const planSig = (entries) => JSON.stringify(entries.filter((e) => e.recipeId).map((e) => [e.recipeId, Number(e.servings) || 1]).sort());
+  let groceryWrite = Promise.resolve();
+  async function buildGrocery(ws) {
+    const sh = S.sheet;
+    const entries = S.plan.filter((e) => e.date >= ws && e.date <= addDays(ws, 6));
+    const recs = entries.map((e) => [e, S.recipes.find((r) => r.id === e.recipeId)]).filter(([, r]) => r);
+    sh.building = true; sh.error = ""; renderSheet();
+    let sections;
+    try {
+      if (sample) {
+        const lines = recs.map(([e, r]) => `${r.title}: use ${Math.round(((Number(e.servings) || 1) / (r.servings || 1)) * 100) / 100} × the amounts below\n` + (r.ingredients || []).map((i) => "- " + i.text).join("\n")).join("\n\n");
+        const out = await sample.json(`Make one grocery list for these planned recipes. Multiply each recipe's amounts by the factor shown, combine the same ingredient across recipes, round to practical shopping amounts, and group items by store section: Produce, Meat & Seafood, Dairy & Eggs, Bakery, Pantry, Frozen, Other. Leave out water.\n\n${lines}\n\nReply with only JSON: {"sections":[{"name":"Produce","items":[{"name":"Yellow onion","qty":"2"}]}]}`, { modelTier: "quick" });
+        sections = (Array.isArray(out && out.sections) ? out.sections : []).map((s) => ({ name: String(s.name || "Other").slice(0, 40), items: (Array.isArray(s.items) ? s.items : []).map((i) => ({ name: String(i.name || "").slice(0, 80), qty: String(i.qty || "").slice(0, 40) })).filter((i) => i.name) })).filter((s) => s.items.length);
+      } else {
+        sections = recs.map(([, r]) => ({ name: r.title, items: (r.ingredients || []).map((i) => ({ name: i.text, qty: "" })) }));
+      }
+      await store.put("groceries", ws, { sig: planSig(entries), sections, checked: {}, builtAt: new Date().toISOString() });
+    } catch (e) { sh.error = e && e.code ? errText(e) : "Couldn't save the list. Try again."; }
+    sh.building = false;
+    if (S.sheet === sh) renderSheet();
+  }
+  function toggleGrocery(ws, key) {
+    const doc = S.groceries.get(ws);
+    if (!doc) return;
+    const checked = { ...(doc.checked || {}) };
+    if (checked[key]) delete checked[key]; else checked[key] = true;
+    const next = { ...doc, checked };
+    S.groceries.set(ws, next);
+    renderSheet();
+    groceryWrite = groceryWrite.then(() => store.put("groceries", ws, strip(S.groceries.get(ws)))).catch(() => {});
+  }
+  function sheetGrocery() {
+    const sh = S.sheet, ws = sh.week;
+    const entries = S.plan.filter((e) => e.date >= ws && e.date <= addDays(ws, 6));
+    const recCount = entries.filter((e) => e.recipeId && S.recipes.some((r) => r.id === e.recipeId)).length;
+    const customCount = entries.filter((e) => !e.recipeId).length;
+    const doc = S.groceries.get(ws), stale = doc && doc.sig !== planSig(entries);
+    const label = `${fromKey(ws).toLocaleDateString(undefined, { month: "short", day: "numeric" })} – ${fromKey(addDays(ws, 6)).toLocaleDateString(undefined, { month: "short", day: "numeric" })}`;
+    const head = sheetHead("Grocery list", label);
+    if (!recCount && !doc) return [head, el("div", { class: "card empty" }, el("div", { class: "art" }, ico("cart")), el("b", {}, "No recipes planned this week"), el("p", {}, "Add saved recipes to your meal plan and their ingredients will show up here."))];
+    if (sh.building) return [head, el("div", { class: "card stack" }, el("div", { class: "bar-ind" }, el("i")), el("p", { class: "muted" }, `Combining ingredients from ${recCount} planned ${recCount === 1 ? "recipe" : "recipes"}…`))];
+    if (!doc) return [head, el("p", { class: "muted" }, sample
+        ? `${recCount} planned ${recCount === 1 ? "recipe" : "recipes"} this week. Claude combines their ingredients into one list, scaled to your servings and grouped by store section.`
+        : "Claude isn't available here, so the list shows each recipe's ingredients as written."),
+      sh.error ? el("p", { class: "err" }, sh.error) : null,
+      el("div", { class: "sheetfoot" }, el("button", { class: "btn", onclick: () => buildGrocery(ws) }, "Build list"))];
+    const checked = doc.checked || {};
+    const total = doc.sections.reduce((a, s) => a + s.items.length, 0), done = Object.keys(checked).length;
+    return [head,
+      stale ? el("div", { class: "note row between wrap" }, el("span", {}, "Your plan changed since this list was made."), el("button", { class: "btn sm", onclick: () => buildGrocery(ws) }, "Rebuild")) : null,
+      el("div", { class: "small muted tnum" }, `${done} of ${total} items checked` + (customCount ? ` · ${customCount} custom ${customCount === 1 ? "item isn't" : "items aren't"} included` : "")),
+      el("div", { class: "card", style: "padding:6px 16px 10px" }, doc.sections.map((s, si) => el("div", { class: "gsec" }, el("h3", {}, s.name),
+        s.items.map((it, ii) => { const key = `${si}.${ii}`, on = !!checked[key];
+          return el("label", { class: "gitem" + (on ? " checked" : "") }, el("input", { type: "checkbox", id: "g" + key.replace(".", "_"), checked: on, onchange: () => toggleGrocery(ws, key) }), el("span", { class: "gn" }, it.name), it.qty ? el("span", { class: "gq" }, it.qty) : null); })))),
+      sh.error ? el("p", { class: "err" }, sh.error) : null,
+      el("div", { class: "sheetfoot" }, el("button", { class: "btn line", onclick: () => buildGrocery(ws) }, "Rebuild list"))];
   }
 
   // ================= charts =================
@@ -870,6 +1319,7 @@ ${SHAPE}`;
       return el("div", { class: "card mcard" }, el("div", {}, el("div", { class: "num tnum" }, fmt(Math.abs(rem)) + "g"), el("div", { class: "lbl" }, `${label} ${rem >= 0 ? "left" : "over"}`)),
         el("div", { class: "ring", style: "width:64px;height:64px" }, ringSvg(64, 7, eaten / goal, `var(--${k})`), el("div", { class: "mid" }, ico(k, "ico c-" + k))));
     };
+    const planned = entriesOn(S.day).filter((e) => !isLogged(e));
     const meals = S.meals.filter((m) => m.date === S.day).sort((a, b) => String(b.at).localeCompare(String(a.at)));
     const list = el("div", { class: "stack" });
     const d = S.draft;
@@ -891,10 +1341,78 @@ ${SHAPE}`;
       el("p", {}, "Tap + to scan your plate, describe a meal, or add calories you already know.")));
     return [
       el("header", { class: "apphead" }, el("div", { class: "logo" }, el("span", { class: "logo-mark" }, ico("plate")), "Plate Counter"),
-        el("span", { class: "streak tnum", "aria-label": `${cur} day streak` }, ico("flame"), String(cur))),
+        el("div", { class: "hbtns" }, el("span", { class: "streak tnum", "aria-label": `${cur} day streak` }, ico("flame"), String(cur)),
+          el("button", { class: "iconbtn", "aria-label": "Settings", onclick: () => { S.tab = "settings"; paint(); window.scrollTo(0, 0); } }, ico("settings")))),
       week, hero, el("div", { class: "macros3" }, mc("protein", "Protein"), mc("carbs", "Carbs"), mc("fat", "Fats")),
+      planned.length ? el("div", { class: "sechead" }, el("h2", {}, "Planned"), el("span", { class: "small muted" }, "From your meal plan")) : null,
+      planned.length ? el("div", { class: "card", style: "padding:2px 14px" }, planned.map((e) => el("div", { class: "prow", style: "border-top:0" },
+        el("button", { class: "row", style: "flex:1;min-width:0;text-align:left", onclick: () => openSheet({ type: "entry", id: e.id }) }, entryThumb(e),
+          el("div", { class: "t" }, el("div", {}, e.name), el("small", { class: "tnum" }, `${SLOT_LABEL[e.slot] || "Snack"} · ${fmt(entryTotals(e).kcal)} cal`))),
+        S.day <= t ? el("button", { class: "btn sm", onclick: () => logEntry(e).catch(() => {}) }, "Log") : null))) : null,
       el("div", { class: "sechead" }, el("h2", {}, S.day === t ? "Logged today" : `Logged ${dayName(S.day)}`), meals.length ? el("span", { class: "small muted tnum" }, `${meals.length} ${meals.length === 1 ? "meal" : "meals"}`) : null),
       list,
+    ];
+  }
+
+  function viewRecipes() {
+    const head = el("div", { class: "titlerow" }, el("h1", {}, "Recipes"),
+      el("button", { class: "btn sm", onclick: () => startImport() }, ico("import", "ico"), "Import"));
+    if (!S.recipes.length) {
+      return [head, el("div", { class: "card stack", style: "padding:22px" },
+        el("div", { class: "empty", style: "padding:4px 0 0" }, el("div", { class: "art" }, ico("book")), el("b", {}, "Save recipes you find online"),
+          el("p", {}, "Every saved recipe gets calories and macros per serving, so you can log it or plan it in one tap.")),
+        el("ol", { class: "howto" },
+          el("li", {}, "On Instagram or TikTok, copy the recipe caption, or screenshot the caption and ingredient list."),
+          el("li", {}, "Tap Import and paste the text or add the screenshots."),
+          el("li", {}, "Claude pulls out the ingredients and steps and works out calories per serving. Check them, then save.")),
+        el("button", { class: "btn block", onclick: () => startImport() }, "Import your first recipe"))];
+    }
+    const match = (r, q) => !q || [r.title, ...(r.tags || []), ...(r.ingredients || []).map((i) => i.text)].join(" ").toLowerCase().includes(q);
+    const grid = el("div", { class: "rgrid" });
+    const fill = () => {
+      const q = (S.rq || "").trim().toLowerCase(), rs = S.recipes.filter((r) => match(r, q));
+      grid.replaceChildren(...(rs.length ? rs.map((r) => el("button", { class: "card rcard", onclick: () => openSheet({ type: "recipe", id: r.id, servings: 1, slot: guessSlot() }) },
+        recipeImg(r, "rimg"),
+        el("div", { class: "rb" }, el("div", { class: "rt" }, r.title), el("div", { class: "rm tnum" }, `${fmt(r.kcal)} cal · ${fmt(r.protein)}g protein`), r.time ? el("div", { class: "small muted" }, r.time) : null)))
+        : [el("p", { class: "muted", style: "grid-column:1/-1" }, "No recipes match that search.")]));
+    };
+    fill();
+    return [head,
+      el("div", { class: "search" }, ico("search"), el("input", { class: "input", id: "rq", type: "search", placeholder: "Search by name, tag or ingredient", value: S.rq || "", oninput: (e) => { S.rq = e.target.value; fill(); } })),
+      el("div", { class: "small muted tnum" }, `${S.recipes.length} saved ${S.recipes.length === 1 ? "recipe" : "recipes"}`),
+      grid];
+  }
+
+  function viewPlan() {
+    const t = today(), g = S.settings, ws = S.planWeek;
+    const days = Array.from({ length: 7 }, (_, i) => addDays(ws, i));
+    const minWs = addDays(weekStartOf(t), -56), maxWs = addDays(weekStartOf(t), 56);
+    const short = (k) => fromKey(k).toLocaleDateString(undefined, { month: "short", day: "numeric" });
+    const plannedDays = days.filter((k) => entriesOn(k).length);
+    const avg = plannedDays.length ? plannedDays.reduce((a, k) => a + entriesOn(k).reduce((s, e) => s + entryTotals(e).kcal, 0), 0) / plannedDays.length : 0;
+    const nextSlot = (k) => { const used = new Set(entriesOn(k).map((e) => e.slot)); return ["breakfast", "lunch", "dinner"].find((s) => !used.has(s)) || "snack"; };
+    const cards = days.map((k) => {
+      const es = entriesOn(k), tot = es.reduce((a, e) => a + entryTotals(e).kcal, 0), frac = tot / g.goal;
+      return el("div", { class: "card planday" + (k === t ? " today" : "") },
+        el("div", { class: "row between" },
+          el("div", {}, el("h2", {}, k === t ? "Today" : k === addDays(t, 1) ? "Tomorrow" : fromKey(k).toLocaleDateString(undefined, { weekday: "long" })),
+            el("div", { class: "small muted tnum" }, `${short(k)} · ${es.length ? `${fmt(tot)} of ${fmt(g.goal)} cal planned` : "Nothing planned"}`)),
+          el("button", { class: "btn ghost sm", "aria-label": `Add to ${dayName(k)}`, onclick: () => openSheet({ type: "pick", mode: "plan", date: k, slot: nextSlot(k) }) }, ico("plus", "ico"), "Add")),
+        es.length ? el("div", { class: "meter", style: "margin-block:4px 2px" }, el("i", { style: `width:${Math.min(100, Math.round(frac * 100))}%;background:${frac > 1 ? "var(--over)" : "var(--ink)"}` })) : null,
+        es.map((e) => el("button", { class: "prow", onclick: () => openSheet({ type: "entry", id: e.id }) }, entryThumb(e),
+          el("div", { class: "t" }, el("div", {}, e.name), el("small", {}, `${SLOT_LABEL[e.slot] || "Snack"} · ${servLabel(Number(e.servings) || 1)}`)),
+          el("div", { style: "text-align:right" }, el("b", { class: "tnum" }, fmt(entryTotals(e).kcal)), isLogged(e) ? el("div", { class: "done" }, ico("check"), "Logged") : null))));
+    });
+    return [
+      el("div", { class: "titlerow" }, el("h1", {}, "Meal plan"),
+        el("button", { class: "btn sm", onclick: () => openSheet({ type: "grocery", week: ws }) }, ico("cart", "ico"), "Groceries")),
+      el("div", { class: "weeknav" },
+        el("button", { class: "nav", "aria-label": "Previous week", disabled: ws <= minWs, onclick: () => { S.planWeek = addDays(ws, -7); render(); } }, ico("left")),
+        el("div", { style: "text-align:center" }, el("b", {}, ws === weekStartOf(t) ? "This week" : ws === addDays(weekStartOf(t), 7) ? "Next week" : `Week of ${short(ws)}`),
+          el("div", { class: "small muted tnum" }, `${short(ws)} – ${short(addDays(ws, 6))}` + (plannedDays.length ? ` · ${fmt(avg)} cal/day planned` : ""))),
+        el("button", { class: "nav", "aria-label": "Next week", disabled: ws >= maxWs, onclick: () => { S.planWeek = addDays(ws, 7); render(); } }, ico("right"))),
+      !S.recipes.length ? el("p", { class: "note" }, "Save a few recipes first, then add them to days here. You can also plan custom items like a dinner out.") : null,
+      ...cards,
     ];
   }
 
@@ -903,6 +1421,10 @@ ${SHAPE}`;
   }
 
   function viewProgress() {
+    const top = [el("h1", {}, "Progress"), seg([["trends", "Trends"], ["calendar", "Calendar"]], S.progView, (v) => { S.progView = v; if (v === "calendar") S.histDay = S.day; })];
+    return [...top, ...(S.progView === "calendar" ? viewHistory() : viewTrends())];
+  }
+  function viewTrends() {
     const g = S.settings, u = g.unit, toU = (kg) => (u === "lb" ? kg * KG_LB : kg);
     const t = today(), { cur, best } = streakInfo();
     const W = S.weights, lastW = W[W.length - 1], firstW = W[0];
@@ -961,7 +1483,7 @@ ${SHAPE}`;
       el("div", { class: "card tile" }, el("div", { class: "k" }, "Days logged"), el("div", { class: "v tnum" }, fmt(allDays))),
       el("div", { class: "card tile" }, el("div", { class: "k" }, "Weigh-ins"), el("div", { class: "v tnum" }, fmt(W.length))));
 
-    return [el("h1", {}, "Progress"), el("div", { class: "stat2" }, weightCard, streakCard), calCard, weightChartCard, macroCard, totals];
+    return [el("div", { class: "stat2" }, weightCard, streakCard), calCard, weightChartCard, macroCard, totals];
   }
 
   function viewHistory() {
@@ -986,12 +1508,11 @@ ${SHAPE}`;
     const dm = S.meals.filter((m) => m.date === hd).sort((a, b) => String(a.at).localeCompare(String(b.at)));
     const dayCard = el("div", { class: "card stack" },
       el("div", { class: "row between" }, el("div", {}, el("h2", {}, dayName(hd)), el("div", { class: "small muted tnum" }, ht.count ? `${fmt(ht.kcal)} kcal · P ${fmt(ht.protein)}g · C ${fmt(ht.carbs)}g · F ${fmt(ht.fat)}g` : "Nothing logged")),
-        el("button", { class: "btn sm ghost", onclick: () => { S.day = hd; S.tab = "home"; render(); window.scrollTo(0, 0); } }, "Open day")),
+        el("button", { class: "btn sm ghost", onclick: () => { S.day = hd; S.tab = "home"; paint(); window.scrollTo(0, 0); } }, "Open day")),
       dm.length ? el("div", {}, dm.map((m) => el("button", { class: "dayrow", onclick: () => openSheet({ type: "meal", id: m.id }) }, thumbNode(m),
         el("div", { class: "t" }, el("div", {}, m.name), el("small", {}, `${SLOT_LABEL[m.slot] || "Snack"} · ${timeOf(m.at)}`)), el("b", { class: "tnum" }, fmt(m.kcal))))) : null);
     const nowMonth = t.slice(0, 7);
     return [
-      el("h1", {}, "History"),
       el("div", { class: "card stack" },
         el("div", { class: "monthnav" }, el("button", { "aria-label": "Previous month", onclick: () => shift(-1) }, ico("left")),
           el("h2", {}, first.toLocaleDateString(undefined, { month: "long", year: "numeric" })),
@@ -1041,14 +1562,14 @@ ${SHAPE}`;
         ? "Meals, photos and weights are saved to your Claude account under a private path. Only you can read them, on any device where you open this page."
         : "Your log is saved in this browser only. Open this page in Claude while signed in to keep it on your account."),
       el("p", { class: "small muted" }, "Photo and text estimates run on your own Claude plan, so there's no subscription. Estimates are usually within 15–25% of the true value; hidden oil, butter and dressings cause the biggest misses, so mention them when you can."));
-    return [el("h1", {}, "Settings"), goals, body, about];
+    return [el("div", { class: "row" }, el("button", { class: "iconbtn", "aria-label": "Back to home", onclick: () => { S.tab = "home"; paint(); } }, ico("left")), el("h1", {}, "Settings")), goals, body, about];
   }
 
   // ================= render =================
   function renderTabs(force) { if (S.tab !== "settings" || force) paint(); }
   function paint() {
     const v = $("view");
-    const views = { home: viewHome, progress: viewProgress, history: viewHistory, settings: viewSettings };
+    const views = { home: viewHome, recipes: viewRecipes, plan: viewPlan, progress: viewProgress, settings: viewSettings };
     const nodes = views[S.tab]();
     if (S.storeError) nodes.push(el("p", { class: "note" }, "Lost the connection to your saved log. Reload the page to reconnect."));
     v.replaceChildren(...nodes.filter(Boolean));
@@ -1059,10 +1580,10 @@ ${SHAPE}`;
   function renderAll() { paint(); renderSheet(); }
 
   // ================= wiring =================
-  const TAB_LABEL = { home: "Home", progress: "Progress", history: "History", settings: "Settings" };
+  const TAB_LABEL = { home: "Home", recipes: "Recipes", plan: "Plan", progress: "Progress" };
   document.querySelectorAll(".tab").forEach((b) => {
     b.append(ico(b.dataset.tab), el("span", {}, TAB_LABEL[b.dataset.tab]));
-    b.onclick = () => { S.tab = b.dataset.tab; if (S.tab === "history") S.histDay = S.day; paint(); window.scrollTo(0, 0); };
+    b.onclick = () => { S.tab = b.dataset.tab; if (S.tab === "progress") S.histDay = S.day; paint(); window.scrollTo(0, 0); };
   });
   $("fab").append(ico("plus"));
   $("fab").onclick = () => openSheet("add");
@@ -1074,17 +1595,35 @@ ${SHAPE}`;
     const d = S.draft;
     d.photo = await makeImage(file, 360, false);
   };
+  $("recipeFiles").onchange = (e) => {
+    const files = [...(e.target.files || [])].slice(0, imgMax);
+    e.target.value = "";
+    const d = S.rdraft;
+    if (!d || !files.length) return;
+    d.previews.forEach((u) => URL.revokeObjectURL(u));
+    d.files = files; d.previews = files.map((f) => URL.createObjectURL(f)); d.error = "";
+    renderSheet();
+  };
+  $("recipePhoto").onchange = async (e) => {
+    const file = e.target.files && e.target.files[0];
+    e.target.value = "";
+    const d = S.rdraft;
+    if (!d || !file) return;
+    d.photo = await makeImage(file, 480, false); d.photoChanged = !!d.photo;
+    if (S.rdraft === d) renderSheet();
+  };
   document.addEventListener("keydown", (e) => { if (e.key === "Escape" && S.sheet) closeSheet(); });
 
   async function boot() {
+    S.planWeek = weekStartOf(today());
     subscribeAll();
     paint();
     const C = window.claude;
     const [s, db, user] = C ? await Promise.all([C.use("sample"), C.use("db"), C.use("user")]) : [null, null, null];
     sample = s;
-    if (sample) { const caps = await sample.limits().catch(() => null); canImages = !!(caps && caps.images); }
+    if (sample) { const caps = await sample.limits().catch(() => null); canImages = !!(caps && caps.images); if (canImages) imgMax = Math.max(1, Math.min(caps.images.maxCount || 1, 6)); }
     const uid = user ? await user.id() : null;
-    if (db && uid) { store = dbStore(db, uid); S.storeMode = "db"; }
+    if (db && uid) { store = dbStore(db, uid); S.storeMode = "db"; photoCache.clear(); }
     try { Object.assign(S.settings, await store.getSettings()); } catch {}
     subscribeAll();
     paint(); renderSheet();
